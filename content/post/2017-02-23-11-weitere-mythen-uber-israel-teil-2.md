@@ -190,8 +190,7 @@ Humanitäre Normen sind unveräußerlicher Teil der völkerrechtlichen Verpflich
 
 
   
-** \* \* \***
-
+---
   
 1 http://mfa.gov.il/MFA/InternatlOrgs/MFADocuments/Pages/United%20Nations%20General%20Assembly%20Resolution%20194%20-II.aspx
 

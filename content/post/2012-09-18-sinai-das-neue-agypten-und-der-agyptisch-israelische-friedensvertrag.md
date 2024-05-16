@@ -263,7 +263,7 @@ Gegenwärtig besteht die Herausforderung darin, die sich durch die veränderte S
 
  
 
-**\* \* \***
+---
 
  
 

@@ -112,7 +112,7 @@ Angesichts dieser Herausforderung, die die Unterstützung der Hamas zu untergrab
 Auf diese Weise hat die Hamas die Terrormethoden des IS übernommen, ohne die Quelle zu nennen. Je mehr sich der stillschweigende Konkurrenzkampf mit dem IS an der palästinensischen Basis verschärft, desto wahrscheinlicher ist es, dass die Hamas auf diese Methoden zurückgreifen wird. Auf diese Weise – und dadurch, dass sie wiederholt eine "dritte Intifada" beschwört – will die Hamas als ausdauernde dschihadistische Widerstandskraft gegen Israel gesehen werden. Sie ist dabei zuversichtlich, dass Israel aufgrund der Feuerpause keine Hamas-Stellungen in Gaza angreifen wird in Reaktion auf Terrorangriffe vom Westjordanland.
 
 
-**\* \* \***
+---
   
 1 http://assafir.com/Article/372011/Archive   
 2 http://www.allofjo.net/index.php?page=article&amp;id=77222#sthash.Pu29BCnK.dpuf   

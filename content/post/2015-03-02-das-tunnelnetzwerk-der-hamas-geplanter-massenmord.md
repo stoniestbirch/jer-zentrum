@@ -37,7 +37,11 @@ IDF-Sprecher Oberstlt. Peter Lerner legte dar, wie wichtig die Zerstörung der T
 Nicht ausgeschlossen werden kann, dass es der Hamas möglich gewesen wäre, mit Hilfe der Tunnel hunderte von Kämpfern pro Tunnel nach Israel zu entsenden, was eine in die Tausende gehende Invasionsarmee bedeutet hätte. Hamas-Führer Ismail Haniyeh sagte selbst am 19. Oktober 2013: „Tausende von Kämpfern trainieren ober- und unterhalb der Erde in Ruhe eine Feldzug zur Befreiung Palästinas.“
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/lMzLCJyevCk"" width=""420""></iframe> > > > > >  Die Hamas-Einheiten von 10-15 Männern wurden darin trainiert, schnell die Tunnel zu durchqueren und Brückenköpfe zu errichten, um das Nachrücken weiterer Einheiten zu ermöglichen. Die Zahl der Kommandoeinheiten, die durch die Tunnel geschleust worden wären, wäre begrenzt gewesen durch das von den IDF benötigte Zeitfenster, sie zu entdecken und zu reagieren. (MEMRI)
+ 
+ https://youtu.be/lMzLCJyevCk 
+
+ 
+ >  Die Hamas-Einheiten von 10-15 Männern wurden darin trainiert, schnell die Tunnel zu durchqueren und Brückenköpfe zu errichten, um das Nachrücken weiterer Einheiten zu ermöglichen. Die Zahl der Kommandoeinheiten, die durch die Tunnel geschleust worden wären, wäre begrenzt gewesen durch das von den IDF benötigte Zeitfenster, sie zu entdecken und zu reagieren. (MEMRI)
 
 
    
@@ -45,7 +49,7 @@ Nicht ausgeschlossen werden kann, dass es der Hamas möglich gewesen wäre, mit 
 
 ---
 
-> >  ***Nicht ausgeschlossen werden kann, dass es der Hamas möglich gewesen wäre, mit Hilfe der Tunnel hunderte von Kämpfern pro Tunnel nach Israel zu entsenden, was eine in die Tausende gehende Invasionsarmee bedeutet hätte.***
+> >  **Nicht ausgeschlossen werden kann, dass es der Hamas möglich gewesen wäre, mit Hilfe der Tunnel hunderte von Kämpfern pro Tunnel nach Israel zu entsenden, was eine in die Tausende gehende Invasionsarmee bedeutet hätte.**
 
 ---
 
@@ -83,8 +87,10 @@ Im November 2012 eskalierte die Hamas ihre Raketenangriffe gegen israelische Woh
 Zwei Monate später – am 14. Januar 2013 – wurde Israel ein weiteres Mal wachgerüttelt, als die IDF einen Tunnel nahe Nir Oz entdeckten, einem Kibbutz nahe der Grenze zu Gaza. Die Untergrundpassage war dieselbe Art Tunnel, durch die 2006 Gilad Shalit entführt worden war.(17) „Solche Tunnel auf israelischem Territorium zeugen von der deutlichen Absicht der von der Hamas geführten Terrorgruppen in Gaza, israelische Zivilisten und Soldaten anzugreifen“, hieß es in der Stellungnahme der IDF.(18)
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/y2m_gy-rD_s"" width=""420""></iframe>   
-> > > > > > > „Mit diesen Tunnel weihen wir eine neue Strategie ein, den Feind zu bekämpfen“ Hamas-Führer Ismail Haniyeh am 23. März 2014. (IDF/YouTube) 
+ https://youtu.be/y2m_gy-rD_s
+
+   
+> „Mit diesen Tunnel weihen wir eine neue Strategie ein, den Feind zu bekämpfen“ Hamas-Führer Ismail Haniyeh am 23. März 2014. (IDF/YouTube) 
 
 
 
@@ -93,7 +99,9 @@ Am 7. Oktober 2013 entdeckten die IDF einen gigantischen Tunnel in 18 Meter Tief
 
 
    
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/E4-WlTG20Bo"" width=""560""></iframe> >   Am 7. Oktober 2013 entdeckter Terrortunnel nahe Ein Hashlosha.
+ https://youtu.be/E4-WlTG20Bo
+
+ >   Am 7. Oktober 2013 entdeckter Terrortunnel nahe Ein Hashlosha.
 
  
 
@@ -112,8 +120,8 @@ Das Dokument erklärte, dass den Tunneln eine wesentliche Rolle im Kampf zukomme
 
 ---
 
-> > > ***„Nun sind wir es, die in Israel einmarschieren, nicht mehr die Israelis bei uns.“***  
-> > > ***– Hamas-Mitbegründer Yahya al-Sinwar ***
+> **„Nun sind wir es, die in Israel einmarschieren, nicht mehr die Israelis bei uns.“**  
+> **– Hamas-Mitbegründer Yahya al-Sinwar **
 
 
 
@@ -125,7 +133,8 @@ Am 5. März 2014 fing die israelische Marine das Frachtschiff „Klos-C“ ab, w
 
 
 ![""]("/UserFiles/3twoimagestunnelgazabook1.jpg")  
- > > > > > Raketen (oben) und Zement zur Konstruktion der Tunnel (unten). Geliefert vom Iran auf dem Schiff "Klos-C", abgefangen von den IDF am 5. März 2014. (IDF/Flickr) 
+
+> Raketen (oben) und Zement zur Konstruktion der Tunnel (unten). Geliefert vom Iran auf dem Schiff "Klos-C", abgefangen von den IDF am 5. März 2014. (IDF/Flickr) 
 
    
  ![""]("/UserFiles/41932329_10151989920902076_2038859108_n.jpg")
@@ -141,7 +150,10 @@ Am 18. März 2014 wurde ein weiterer umfassender Tunnel entdeckt. (28) Er reicht
 Bereits bei der nächsten Entdeckung eines solchen Tunnels wurde Israel mit aus ihm herausströmenden Hamas-Kämpfern konfrontiert. Am 17. Juli 2014 – neun Tage nach Beginn der Operation „Schutzrand“, die bis zu diesem Zeitpunkt nur von der Luft aus geführt worden war – entdeckten die IDF 13 Palästinenser, die Israel durch einen Tunnel nahe des Kibbuz‘ Sufa infiltriert hatten. (30) Sie waren schwer bewaffnet mit Sturmgewehren und Raketenwerfern und beabsichtigten ein Massaker zu verüben.(31) Die IDF verhinderten dies und retteten damit zahllose Israelis. „In diesem Augenblick fiel für uns der Groschen.“ erklärte Generallt. Gantz später.(32)
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/SM6WUoel7xk"" width=""420""></iframe> > > > > > > > > Terrorkommando der Hamas infiltriert Israel durch Tunnel nähe Kibbuz Sufa am 17. Juli 2014 (IDF/YouTube) 
+https://www.https://youtu.be/SM6WUoel7xk
+
+ 
+ > Terrorkommando der Hamas infiltriert Israel durch Tunnel nähe Kibbuz Sufa am 17. Juli 2014 (IDF/YouTube) 
 
 
    
@@ -153,14 +165,20 @@ Am 21. Juli drangen zwei Hamas-Kommandos durch einen Tunnel in Nordgaza auf isra
 
 
    
-<iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/TlvnkECJkYc"" width=""420""></iframe>> > > Hamas-Terroristen, die am 21. Juli 2014 Nähe Sderot nach Israel eindrangen. (IDF/YouTube) 
+https://www.https://youtu.be/TlvnkECJkYc
+
+
+> Hamas-Terroristen, die am 21. Juli 2014 Nähe Sderot nach Israel eindrangen. (IDF/YouTube) 
 
 
     
 Am 28. Juli infiltrierten Hamas-Kämpfer unentdeckt Israel durch einen Tunnel nahe des Kibbuz‘ Nahal Oz. Sie griffen einen IDF-Posten an und töteten fünf IDF-Soldaten. (37) Die Hamas veröffentlichte später ein Video von dem Angriff. Vier der fünf Terroristen kehrten nach Gaza zurück, der fünfte starb beim Versuch, eine der israelischen Leichen zu entführen.(38) 
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/i9NNunTsO1c"" width=""420""></iframe> > > > > > > Ein auf YouTube veröffentlichtes Hamas-Video zeigt Hamas-Terroristen, die am 28. Juli 2014 Israel nähe Nahal Oz infiltrieren und eine IDF-Stellung angreifen.
+ https://www.https://youtu.be/i9NNunTsO1c
+
+ 
+ > Ein auf YouTube veröffentlichtes Hamas-Video zeigt Hamas-Terroristen, die am 28. Juli 2014 Israel nähe Nahal Oz infiltrieren und eine IDF-Stellung angreifen.
 
 
    
@@ -172,7 +190,7 @@ Die tödlichen Angiffe der Hamas bei Rafah, Nahal Oz und anderswo führten dazu,
 
 
  ![""]("/UserFiles/514636541788_fa0e153441_z.jpg")   
-> > > > > > In einem Hamas-Tunnel gefundene Motorräder, 3. August 2014. Hamas-Terroristen hätten sie genutzt, um tief ins Landesinnere Israels zu gelangen, und schnell mit Geiseln nach Gaza zurückzukehren. (IDF/Flickr) 
+> In einem Hamas-Tunnel gefundene Motorräder, 3. August 2014. Hamas-Terroristen hätten sie genutzt, um tief ins Landesinnere Israels zu gelangen, und schnell mit Geiseln nach Gaza zurückzukehren. (IDF/Flickr) 
 
 
    
@@ -223,7 +241,7 @@ Unmittelbar nach dem Ende des Konfliktes kündigte die Hamas an, dass sie das Tu
 
 
 
-**\* \* \***
+---
 1 Adam Ciralsky, “Did Israel Avert a Hamas Massacre?” Vanity Fair, 21. Oktober 2014, http://www.vanityfair.com/politics/2014/10/gaza-tunnel-plot-israeli-intelligence   
 2 Felice Friedson, “Israel Shocked by Scope of Hamas Tunnels in Gaza, But Locating Them Still a Challenge,” Media Line-National Post, 12. August 2014, http://news.nationalpost.com/2014/08/08/israel-shocked-by-scope-of-hamas-tunnels-in-gaza-but-locating-them-still-a-challenge/   
 3 James Bennet, “Arab Soldiers in the Israeli Army Find They Are Always on Guard,” New York Times, 19. Dezember 2001, http://www.nytimes.com/2001/12/19/world/arab-soldiers-in-the-israeli-army-find-they-are-always-on-guard.html   

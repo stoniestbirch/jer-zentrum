@@ -204,7 +204,7 @@ Mit anderen Worten, die wirklichen Absichten der Apartheid-Kampagne sind die Leu
 
  
 
-**\* \* \***
+---
 
  
 

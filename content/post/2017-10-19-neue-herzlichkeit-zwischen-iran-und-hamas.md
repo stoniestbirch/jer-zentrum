@@ -71,7 +71,7 @@ Unter diesen Bedingungen erweist sich die sunnitische Hamas, die sich in Teheran
 
 Die Hamas könnte diese Annäherung ausnutzen, um die Versöhnung mit dem Assad-Regime in die Wege zu leiten, womit die Organisation sich auf der schiitischen Achse von Teheran bis zum Libanon verorten würde und so den Konflikt mit Ägypten, Saudi Arabien und der Golfstaaten verschärfen wird. Iran dürfte es nicht schwer fallen, Damaskus davon zu überzeugen, die Hamas-Führung wieder in ihrem alten Hauptquartier in Damaskus willkommen zu heißen.
 
- **\* \* \***
+ ---
 
 1 https://tinyurl.com/isna-ir-news-96060703879
 

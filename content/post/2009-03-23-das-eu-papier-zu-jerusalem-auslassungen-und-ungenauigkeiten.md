@@ -25,7 +25,7 @@ Nadav Shragai
 
  
 
-****
+**
 
 Letzte Woche gelangte ein internes Positionspapier der Europäischen Union vom Dezember 2008 zum Thema Jerusalem an die Öffentlichkeit. Das Papier, das von den EU-Botschaftern in Tel Aviv vorbereitet wurde, wurde vom „Israelischen Komitee gegen den Abriss von Häusern“ (Israeli Committee Against House Demolition) an die Medien weitergeleitet. Dieses einseitige Dokument steckt voller Vorurteile. Nicht zu finden sind darin die vielen Fakten, die belegen, dass Jerusalem mit seinen heiligen Stätten, der Altstadt, dem „Heilige Becken“ und dem Tempelberg die historische Hauptstadt des jüdischen Volkes darstellen und dass der Staat Israel als jüdischer Staat seinen Anspruch im Einklang mit den rechtlichen Prinzipien ausübt und versucht, die Stadt als vereinte Hauptstadt des Staates Israel zu verankern.
 

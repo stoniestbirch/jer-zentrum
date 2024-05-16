@@ -217,8 +217,7 @@ Einige Familien haben kurdische oder ägyptische Wurzeln und in der Region Hebro
 
 Diese Studie bestreitet nicht das Recht palästinensischer Familien sich als Palästinenser zu definieren. Es wäre nur wünschenswert, würde die Palästinenserführung auf ein positives und konstruktives Narrativ setzen und nicht auf eines, das substanzlos ist und allein dem Zweck dient, das jüdische zu leugnen.
 
-**  
-\* \* \***  
+---  
 
 
   

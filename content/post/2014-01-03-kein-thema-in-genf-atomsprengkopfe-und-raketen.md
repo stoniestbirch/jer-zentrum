@@ -219,7 +219,7 @@ Zu fragen bleibt, ob die Europäer die notwendigen Maßnahmen ergreifen werden, 
 
    
 
-**\* \* \***
+---
 
    
 

@@ -17,7 +17,9 @@ url: /zehn-grunde-jerusalem-als-hauptstadt-israels-anzuerkennen/
 **  
 Amb. Alan Baker
 
-<iframe allow=""autoplay;" allowfullscreen="""" encrypted-media="" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/88yzrLDpftk"" width=""560""></iframe>
+https://youtu.be/88yzrLDpftk
+
+
 
   
 1\. Jerusalem ist seit 1950 die offizielle Hauptstadt und Regierungssitz des Staates Israel. In Jerusalem finden sich die Residenz des Präsidenten, die Knesset und der Oberste Gerichtshof sowie die meisten Ministerien und sozialen und kulturellen Institutionen der Regierung. Zudem handelt es sich bei Jerusalem um das uralte spirituelle Zentrum des Judentums und gilt anderen Religionen als Heilige Stadt. Israel schützt die Heiligen Stätten aller Glaubensrichtungen.

@@ -205,7 +205,7 @@ Die Versuche, Israels ernstzunehmenden Sorgen damit zu beschwichtigen, indem Ent
 
 Das Abkommen bezweckt nicht, die fortgesetzte iranische Unterstützung des internationalen Terrorismus, seine Verwicklung darin und seine deklarierte Politik der Vernichtung Israels zu ändern. Vor allem sollte inzwischen allen klar sein, dass keine noch so wohlmeinende Stellungnahme der amerikanischen Regierung oder irgendeine militärische oder anderweitige Kompensation etwas dagegen ausrichten, dass einem Staat der Weg zur Bombe geebnet wird, der immer wieder seine Verpflichtung, Israel auszulöschen, betont.
 
-**\* \* \***
+---
 
 1\. http://eeas.europa.eu/statements-eeas/docs/iran\_agreement/iran\_joint-comprehensive-plan-of-action\_en.pdf;   
 http://eeas.europa.eu/statements-eeas/docs/iran\_agreement/annex\_1\_nuclear\_related\_commitments\_en.pdf http://eeas.europa.eu/statements-eeas/docs/iran\_agreement/annex\_2\_sanctions\_related\_commitments\_en.pdf http://eeas.europa.eu/statements-eeas/docs/iran\_agreement/annex\_1\_attachements\_en.pdf http://eeas.europa.eu/statements-eeas/docs/iran\_agreement/annex\_3\_civil\_nuclear\_cooperation\_en.pdf http://eeas.europa.eu/statements-eeas/docs/iran\_agreement/annex\_4\_joint\_commission\_en.pdf http://eeas.europa.eu/statements-eeas/docs/iran\_agreement/annex\_5\_implementation\_plan\_en.pdf  

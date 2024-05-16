@@ -96,7 +96,7 @@ Die Tötung Bin Ladens mag einen Schlussstrich unter die Terrorangriffe vom 11. 
 
  
 
-**\* \* \***
+---
 
  
 

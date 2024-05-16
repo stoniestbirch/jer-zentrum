@@ -109,7 +109,7 @@ Die Aussicht auf eine formale kurdisch-israelische oder kurdisch-amerikanische A
 
 Doch die Erwartung, dass Kurdistan ein Partner für Israel, die Vereinigten Staaten oder Europa werden könnte, ist in Gefahr, wenn der Westen weiterhin irakischen und türkischen Interessen den Vorzug gibt. Denn da die Kurden fortgesetzt von der militärischen und politischen Unterstützung des Westens enttäuscht werden, hat der Iran eine ganze Zahl von Möglichkeiten gefunden, seinen politischen, ökonomischen und militärischen Einfluss in Irakisch-Kurdistan auszubauen. Wenn der Iran weiterhin freie Hand in der Region behält, könnte es ihm gelingen, eine potentielle Allianz zwischen dem Westen und den Kurden an seiner Grenze zu verhindern.
 
-**\* \* \***
+---
 
   
 1 George Richards, “The Guardian Across the Zagros: Iranian influence in Iraqi Kurdistan, ”The Guardian, November 21 2013, http://www.theguardian.com/world/2013/nov/21/iran-influence-iraqi-kurdistan

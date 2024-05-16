@@ -29,7 +29,7 @@ Das Völkerrecht erkennt das israelische Selbstverteidigungsrecht an, sei es dur
 
 ---
 
-> > > ***Der gegen Israel erhobene Vorwurf, es greife zu unverhältnismäßiger Gewalt, beruht auf einer falschen Lesart der internationalen Bestimmungen zur Verhältnismäßigkeit in bewaffneten Konflikten.***
+> **Der gegen Israel erhobene Vorwurf, es greife zu unverhältnismäßiger Gewalt, beruht auf einer falschen Lesart der internationalen Bestimmungen zur Verhältnismäßigkeit in bewaffneten Konflikten.**
 
 ---
 
@@ -72,7 +72,10 @@ Zusätzlich zu den internationalen Vereinbarungen findet sich eine Reihe regiona
 **Internationale Verbrechen und die strafrechtliche Verantwortung der Hamas**
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/VTArVIHDelg"" width=""420""></iframe>> > > > > > > Beleg, dass die Hamas das Bemühen der IDF ausnutzt, zivile Schäden im Gazastreifen zu begrenzen. (IDF/YouTube)
+ https://www.https://youtu.be/VTArVIHDelg
+
+ 
+ > Beleg, dass die Hamas das Bemühen der IDF ausnutzt, zivile Schäden im Gazastreifen zu begrenzen. (IDF/YouTube)
 
 
  Der von der Hamas praktizierte Terrorismus – sowohl die unterschiedslosen Angriffe auf israelische Ortschaften und Zivilisten sowie der Missbrauch der eigenen Bevölkerung als menschliche Schutzschilde – sind Verletzungen des Völkerrechts und international akzeptierte humanitärer Normen, v.a. der Regel der Unterscheidung, die verlangt, dass Kriegsparteien ihre Angriffe auf legitime militärische Ziele limitieren.(12) 
@@ -85,7 +88,7 @@ Auch das Rom-Statut, das den Internationalen Strafgerichtshof begründete, erkl�
 
 ---
 
-> > > >  ***Nichtstaatliche Akteure gelten nach allen akzeptierten Kriterien im Rahmen des Humanitären Völkerrechts als haftbar, wenn sie Partei in einem bewaffneten Konflikt werden.***
+>  **Nichtstaatliche Akteure gelten nach allen akzeptierten Kriterien im Rahmen des Humanitären Völkerrechts als haftbar, wenn sie Partei in einem bewaffneten Konflikt werden.**
 
 ---
 
@@ -124,7 +127,9 @@ b. 1977 Erstes Zusatzprotokoll der Genfer Konventionen: (20)
 ** Missbrauch von Zivilisten als lebende Schutzschilde**
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/UXZEzbT0H1s"" width=""560""></iframe>> Die Hamas weiß, dass die IDF alles Mögliche unternehmen, um zivile Opfer zu vermeiden. (IDF/YouTube)
+ https://youtu.be/UXZEzbT0H1s
+
+> Die Hamas weiß, dass die IDF alles Mögliche unternehmen, um zivile Opfer zu vermeiden. (IDF/YouTube)
 
 
   
@@ -167,7 +172,7 @@ Es muss nicht darauf hingewiesen werden, dass keine der Resolutionen das Selbstv
 
 ** Gegen Israel erhobene Vorwürfe**
 
- ***Kollektive Bestrafung***
+ **Kollektive Bestrafung**
 
 Die Behauptung, Israel würde die Bevölkerung des Gazastreifens kollektiv bestrafen, wie sie z.B. vom britischen Vizepremier Nick Clegg erhoben wurde,(30) ist sowohl falsch wie auch auf juristischen Fehlannahmen gegründet. Wie oben dargelegt, dienten die israelischen Militäraktionen einem strategischen und taktischen Zweck – nicht der Bestrafung der Einwohner Gazas, sondern der Beendigung der unterschiedslosen Raketenangriffe und der Verwendung von Terrortunneln für Anschläge auf die israelische Zivilbevölkerung.
 
@@ -175,7 +180,7 @@ Während das Völkerrecht „kollektive Bestrafung“ untersagt,(31) kommt keine
 
 Dass die Hamas hingegen ihre Zivilbevölkerung vorsätzlich und systematisch in die Schusslinie israelischer Kampfhandlungen bringt, anstelle ihr Zuflucht in Bunkern und Schutztunneln zu gestatten, und dass sie israelische Städte systematisch durch unterschiedslose Raketenangriffe auf täglicher Basis bedroht und terrorisiert, stellt in der Tat eine kollektive Bestrafung von Millionen israelischer Bürger und palästinensischer Bewohner des Gazastreifens dar. Dies sind schamlose und willentliche Verletzungen des Humanitären Völkerrechts.
 
-*** Vorsätzliche Angriffe auf Wohngebiete***
+** Vorsätzliche Angriffe auf Wohngebiete**
 
 Die Vereinten Nationen und andere beschuldigen Israel desweiteren fälschlich, vorsätzlich und willentlich Wohngebiete anzugreifen.(33)
 
@@ -185,7 +190,7 @@ Die Verwendung von Wohnhäusern und anderen Wohnobjekten für militärische Zwec
 
 ---
 
-> > >  ***Die Verwendung von Wohnhäusern und anderen Wohnobjekten für militärische Zwecke gefährdet diese und macht sie laut Völkerrecht zu legitimen militärischen Zielen. Dennoch verwenden die IDF Methoden, die die zivilen Schäden möglichst gering halten.***
+>  **Die Verwendung von Wohnhäusern und anderen Wohnobjekten für militärische Zwecke gefährdet diese und macht sie laut Völkerrecht zu legitimen militärischen Zielen. Dennoch verwenden die IDF Methoden, die die zivilen Schäden möglichst gering halten.**
 
 
 
@@ -203,11 +208,14 @@ Israel verfügt also keineswegs über eine Politik vorsätzlicher Angriffe auf Z
 Doch trotz der vorsätzlichen Politik und Praxis der Hamas, Zivilisten einschließlich von Kindern mit Gewalt dazu zu zwingen, als Schutzschilde der Raketen- und Waffendepots zu fungieren, bemüht sich Israel nach allen Kräften, so auf die Raketenangriffe der Hamas zu reagieren, dass die Schädigung von Zivilisten so gering es geht gehalten wird. Dazu gehört auch, dass man allen Personen, die sich in Häusern aufhalten, die als militärische Ziele ausgewählt wurden, weil in ihnen Terroranschläge geplant werden oder Waffen und Raketen deponiert sind oder in der Nähe dieser Objekte befindlich sind, Vorwarnungen zukommen lässt und alle Nichtkämpfer öffentlich aufruft, sich von solchen Objekten zu entfernen.(36)
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/8O9AHzUKYk8"" width=""420""></iframe>> > > > > > Die Hamas missbraucht eine Krankenhaus in Gaza, um Israel zu beschießen. Die IDF versicherten sich wiederholt, dass sich keine Zivilisten mehr im Krankenhaus befanden, bevor sie es angriffen. (IDF/YouTube)
+ https://www.https://youtu.be/8O9AHzUKYk8
+
+ 
+ > Die Hamas missbraucht eine Krankenhaus in Gaza, um Israel zu beschießen. Die IDF versicherten sich wiederholt, dass sich keine Zivilisten mehr im Krankenhaus befanden, bevor sie es angriffen. (IDF/YouTube)
 
 
   
-*** Unverhältnismäßige Gewalt***
+** Unverhältnismäßige Gewalt**
 
 Die in den internationalen Medien und durch internationale Organisationen und einige Regierungsvertreter(37) lancierten Vorwürfe, Israels militärisches Vorgehen sei „unverhältnismäßig“ und daher eine Verletzung des Völkerrechts, ist sowohl faktisch wie juristisch falsch.
 
@@ -222,7 +230,7 @@ Dieses Prinzip wird als Teil des gewohnheitsmäßigen Völkerrechts betrachtet, 
    
 
 
-> > ***Der tragische Umstand, dass es im Gazastreifen zu mehr zivilen Opfern und Schäden an zivilen Eigentum kam als in Israel, ist nicht Resultat einer unverhältnismäßigen Anwendung von Gewalt durch Israel.*** 
+> > **Der tragische Umstand, dass es im Gazastreifen zu mehr zivilen Opfern und Schäden an zivilen Eigentum kam als in Israel, ist nicht Resultat einer unverhältnismäßigen Anwendung von Gewalt durch Israel.** 
 
   
 
@@ -259,7 +267,7 @@ Am 1. August 2014, nachdem ein Waffenstillstand vereinbart worden war, griff ein
 
 Genau dies war am 1. August in Rafah der Fall . Nach Berichten einer IDF-Untersuchung des Vorfalls kam „die ‚Hannibal-Direktive‘ in Rafah nicht zum Einsatz.“ Es gab „keinen massiven unterschiedslosen Beschuss von Wohnhäusern in Rafah“, um die Entführung zu verhindern.(42) Dem militärischen Protokoll für „Rettungsoperationen“ folgend, wurden Straßen und bekannte Tunnelöffnungen unter Beschuss genommen, um zu verhindern, dass Goldin von der Front verschleppt wird. Da zu Beginn des Tages ein Waffenstillstand ausgerufen worden war, befand sich zu diesem Zeitpunkt kein israelisches Kampfflugzeug in der Luft. Ein solches hätte sechs Minuten gebraucht, um zum Ort zu fliegen und die Fluchtrouten zu blockieren. Stattdessen kam für drei Minuten die IDF-Artillerie zum Einsatz, die die einprogrammierte Liste von Zielen und Tunneleingängen beschoss.
 
- ***Die rechtliche Basis der „Hannibal-Direktive“***
+ **Die rechtliche Basis der „Hannibal-Direktive“**
 
 Trotz der unglücklichen und unheilvollen Namenswahl durch einen Computer, handelt es sich bei der „Hannibal-Direktive“ um ein taktisch-verhältnismäßige Maßnahme, die nur sehr selten und sehr selektiv zum Einsatz kommt in einer ganz spezifischen Konfrontation asymmetrischen Kampfes zwischen Truppen einer regulären Armee und bewaffneten Terrorgruppen. Sie kann nur dann angewendet werden, wenn im Gefecht, Terroristen willentlich und vorsätzlich die akzeptierten Regeln des bewaffneten Konfliktes und des humanitären Völkerrechts brechen, einschließlich, wenn sie sich sich inmitten von Zivilisten verschanzen und sie missbrauchen, um ihre Ziele zu erreichen.
 
@@ -269,7 +277,7 @@ Ziel der Direktive ist es, eine Situation zu verhindern, die zwangsläufig zu ei
 
 Die Direktive sieht den Einsatz militärischer Gewalt vor, die nötig ist, um die mögliche Entführung zum Scheitern zu bringen, indem die Fluchtwege zerstört werden und die Geiselnahme-/Erpressung-/Foltersituation verhindert wird. Angesichts der strengen Vorgaben des Völkerrechts, die den Einsatz von Gewalt in Situationen beschränken, die das unbeabsichtigte Töten oder Verletzen von Zivilisten beinhalten und nur in solchen Momenten gestatten, in denen es einen konkreten und direkten militärischen Vorteil zu erwarten gibt, ist der Einsatz von Gewalt im Rahmen der Direktive streng verhältnismäßig mit dem intendierten militärischen Ziel.
 
-*** Die tatsächlichen Opferzahlen von Rafah***
+** Die tatsächlichen Opferzahlen von Rafah**
 
 Im Fall der Entführung in Rafah stellte sich später heraus, dass Lt. Goldin beim Angriff der Hamas bereits ums Leben kam und die Gruppe nur seine Leiche mitnahm, um sie in Verhandlungen einzusetzen. Die Hamas behauptete später 130 palästinensische Zivilisten seien bei der israelischen Reaktion gestorben. Eine IDF-Untersuchung kam zu dem Schluss, dass insgesamt 41 Menschen starben, von denen 12 Hamas-Kämpfer gewesen seien.
 
@@ -286,9 +294,9 @@ Zu hoffen ist, dass die Verbrechen gegen die Menschlichkeit und die Kriegsverbre
 
 ---
 
-****
+**
 
-****Texte:****
+**Texte:**
 
 *Hirsh Goodman und Dore Gold*   
 **[Der Gaza-Krieg von 2014: Einleitung]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=237")**

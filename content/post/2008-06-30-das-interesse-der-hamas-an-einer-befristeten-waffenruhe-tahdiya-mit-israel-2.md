@@ -17,7 +17,7 @@ url: /das-interesse-der-hamas-an-einer-befristeten-waffenruhe-tahdiya-mit-israel
 
 
 
-****
+**
 
 · Die Hamas betrachtet die befristete Waffenpause als *tahdiya*, nicht aber als *hudna*. Die Bezeichnung *tahdiya* – „Zeit der Ruhe“ – wird von der Hamas für eine schlichte Feuerpause verwendet. Eine *hudna* impliziert hingegen die Anerkennung der Existenz der Gegenpartei, ohne jedoch deren Legitimität zu bestätigen.
 
@@ -91,7 +91,7 @@ Hamas wird sehr wahrscheinlich fordern, dass, entsprechend palästinensischem Re
 
  
 
-**Wesentliche Schlussfolgerungen über die *tahdiya***
+**Wesentliche Schlussfolgerungen über die *tahdiya**
 
  
 

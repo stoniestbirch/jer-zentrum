@@ -53,9 +53,9 @@ url: /die-iranische-fuhrung-in-ihren-eigenen-worten-uber-die-vernichtung-israels
 
 **Joshua Teitelbaum**
 
-****
+**
 
-****
+**
 
  
 **Danksagung**
@@ -238,7 +238,7 @@ In derselben Rede vom 26. Oktober 2005[\[8\]]("#_edn8") kehrte Ahmadinejad zu de
 **Übersetzung**
  |
 |---|---|---|
-| ****به زودي اين لكه ننگ را از دامان  دنياي اسلام پاك خواهد كرد و  اين شدني است  **** | 
+| **به زودي اين لكه ننگ را از دامان  دنياي اسلام پاك خواهد كرد و  اين شدني است  ** | 
 *Be-zudi in lake-ye nang ra az*
 
 *damane donya-ye Islam pak*
@@ -270,7 +270,7 @@ Das Bild Israels als Keim oder Mikrobe findet sich häufig beim iranischen Präs
 **Übersetzung**
  |
 |---|---|---|
-| ****در منطقه خاورميانه نيز جرثومه  سياه و كثيفي به نام رژيم  صهيونيستي درست كرده اند تا  به جان مردم منطقه بيندازند و به  بهانه آن سياست هاي خود را در  خاورميانه پيش ببرند  **** | 
+| **در منطقه خاورميانه نيز جرثومه  سياه و كثيفي به نام رژيم  صهيونيستي درست كرده اند تا  به جان مردم منطقه بيندازند و به  بهانه آن سياست هاي خود را در  خاورميانه پيش ببرند  ** | 
 *Dar mantaqe-ye Khavar-e*
 
 *Miyane niz jarsum-e siyah*
@@ -318,7 +318,7 @@ Präsident Ahmadinejad zufolge ist die „Befreiung“ der Welt von dem „Krank
 **Übersetzung**
  |
 |---|---|---|
-| ****درخت خشكيده و پوسيد هاي است كه  با يك طوفان درهم خواهد شكست  **** | 
+| **درخت خشكيده و پوسيد هاي است كه  با يك طوفان درهم خواهد شكست  ** | 
 *Derakht-e khoshkide va*
 
 *puside’i ast ke ba yek tufan*
@@ -346,7 +346,7 @@ Auf einer Pressekonferenz am Rande des Treffens der Organisation der Islamischen
 **Übersetzung**
  |
 |---|---|---|
-| ****رژيم صهيونيستي از بين رفتني است  **** | 
+| **رژيم صهيونيستي از بين رفتني است  ** | 
 *rezhim-e sahyonisti az bayn*
 
 *raftani’st.*
@@ -369,7 +369,7 @@ Bezüglich der Vereinigten Staaten („Großer Satan“) und Israel („Kleiner 
  |
 |---|---|---|
 | 
-************منطقه و جهان آماده تحولات  بزرگ و پاك شدن از دشمنان  اهريمني است  ********
+****منطقه و جهان آماده تحولات  بزرگ و پاك شدن از دشمنان  اهريمني است  **
  | 
 *Mantaqe- va jehan amadeye*
 
@@ -413,7 +413,7 @@ In diesem Interview wird seine Überzeugung deutlich, dass die Israelis nicht be
 
 
 
-***Blogs und Internetforen***
+**Blogs und Internetforen**
 
 
 
@@ -423,7 +423,7 @@ Während diverse westliche Kommentatoren apologetisch versuchen, Ahmadinejads Ä
 
  
 
-***Mr. Ahmadinejad, reicht das nicht?***
+**Mr. Ahmadinejad, reicht das nicht?**
 
  
 
@@ -433,7 +433,7 @@ Während diverse westliche Kommentatoren apologetisch versuchen, Ahmadinejads Ä
 
  
 
-***Was haben wir bislang getan, um Israel auszulöschen?***
+**Was haben wir bislang getan, um Israel auszulöschen?**
 
 
 
@@ -443,7 +443,7 @@ Während diverse westliche Kommentatoren apologetisch versuchen, Ahmadinejads Ä
 
  
 
-***Ahmadinejads Äußerungen und der Koran***
+**Ahmadinejads Äußerungen und der Koran**
 
  
 
@@ -453,7 +453,7 @@ Ein anderer iranischer Blogger fragt sich, wieso Ahmadinejad über die Vernichtu
 
 
 
-***Schaff erst Ordnung in deinem eigenen Land, bevor du Israel zerstörst***
+**Schaff erst Ordnung in deinem eigenen Land, bevor du Israel zerstörst**
 
 
 
@@ -471,7 +471,7 @@ Im Ham-Mihan Forum wurde über den von Ahmadinejad verkündeten Beginn des Count
 
  
 
-***Erste Schritte zur Auslöschung Israels***
+**Erste Schritte zur Auslöschung Israels**
 
  
 
@@ -487,7 +487,7 @@ Die iranischen Blogs spiegeln eine ganze Bandbreite an Haltungen gegenüber den 
 
 
 
-***Die Tageszeitung *Resalat* über Ahmadinejad-Rede: „Ein großer Krieg liegt vor uns“***
+**Die Tageszeitung *Resalat* über Ahmadinejad-Rede: „Ein großer Krieg liegt vor uns“**
 
  
 
@@ -634,7 +634,7 @@ Bei einer Rede vom 4. Oktober 2007 äußerte Shariatmadari: „*,Tod Amerika‘ 
 
  
 
-******
+**
 
 
 
@@ -642,7 +642,7 @@ Bei einer Rede vom 4. Oktober 2007 äußerte Shariatmadari: „*,Tod Amerika‘ 
 
  
 
-***Ayatollah Janati: Das Volk wünscht den Tod Amerikas und Israels***
+**Ayatollah Janati: Das Volk wünscht den Tod Amerikas und Israels**
 
  
 
@@ -658,19 +658,19 @@ Der 82-jährige Ayatollah Ahmad Janati ist Mitglied des inneren Kreises um Präs
 
  
 
-***  
+**  
   
-***
+**
 
 
 
 
 
-***General Safavi: Todesurteil für das zionistische Regime***
+**General Safavi: Todesurteil für das zionistische Regime**
 
-****** 
+** 
 
-***![""]("http://jer-zentrum.org/UserFiles/008.jpg")***
+**![""]("http://jer-zentrum.org/UserFiles/008.jpg")**
 
  
 
@@ -694,7 +694,7 @@ sagte Safavi am 23. Februar 2007, „*der Tod dieses unreinen Regimes* (این �
 
 
 
-***Mohammad-Ali Ramin: Die Juden sind ein äußerst schmutziges Volk***
+**Mohammad-Ali Ramin: Die Juden sind ein äußerst schmutziges Volk**
 
  
 
@@ -714,7 +714,7 @@ Zeitlang hieß es auch, dass die Juden die Brunnen der Christen vergifteten, um 
 
 
 
-***Ayatollah Nuri Hamadani: Bekämpft die Juden und bezwingt sie***
+**Ayatollah Nuri Hamadani: Bekämpft die Juden und bezwingt sie**
 
 
 
@@ -734,11 +734,11 @@ Ayatollah Hussein Nuri Hamadani (geb. 1925) ist eine führende religiöse Autori
 
  
 
-***General Mohammad-Ali Jafari: „Krebs erzeugende Mikrobe Israel“***
+**General Mohammad-Ali Jafari: „Krebs erzeugende Mikrobe Israel“**
 
 
 
-****
+**
 
 ![""]("http://jer-zentrum.org/UserFiles/011.jpg")
 
@@ -754,15 +754,15 @@ In einer Botschaft an den Generalsekretär der Hisbollah Hassan Nasrallah schrie
 
 
 
-****
+**
 
  
 
-***Außenminister Mottaki: Israel hat keine Legitimität***
+**Außenminister Mottaki: Israel hat keine Legitimität**
 
-******
+**
 
-***![""]("http://jer-zentrum.org/UserFiles/012.jpg")***
+**![""]("http://jer-zentrum.org/UserFiles/012.jpg")**
 
  
 
@@ -770,11 +770,11 @@ Der Nachrichtenagentur iranischer Studenten zufolge äußerte der iranische Auß
 
 
 
-***(ehem.) Madschles-Sprecher Adel: Zerstörung des zionistischen Regimes***
+**(ehem.) Madschles-Sprecher Adel: Zerstörung des zionistischen Regimes**
 
-******
+**
 
-***![""]("http://jer-zentrum.org/UserFiles/013.jpg")***
+**![""]("http://jer-zentrum.org/UserFiles/013.jpg")**
 
 
 

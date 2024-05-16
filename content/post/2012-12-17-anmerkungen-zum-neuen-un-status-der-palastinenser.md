@@ -184,7 +184,7 @@ Ebenso gilt, dass die vergeblichen Versuche, Israel und seine Politiker durch An
 
  
 
-**\* \* \***
+---
 
  
 

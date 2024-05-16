@@ -138,7 +138,7 @@ In den vergangenen Jahren wurde Soleimani zu einem lebenden Mythos aufgebaut, de
 
 Die Führungsriege von Hamas und dem Palästinensischen Islamischen Dschihad waren auf Soleimanis Begräbnis anwesend. Ismail Haniyeh von der Hamas hielt eine Trauerrede, in der er den Quds-Kommandeur, “Märtyrer von al-Quds (Jerusalem)” nannte. Hamas und PIJ hatten sich mit Soleimani getroffen, verdanken ihm eine gute Zahl ihrer Waffen und priesen ihn auf Gedenkveranstaltungen in Gaza für die iranische Militär- und Finanzhilfe.
 
-**\* \* \***
+---
 
 1 https://www.reuters.com/article/us-iraq-security-soleimani-insight/inside-the-plot-by-irans-soleimani-to-attack-u-s-forces-in-iraq-idUSKBN1Z301Z
 

@@ -63,7 +63,7 @@ Angesichts der eskalierenden iranisch-amerikanischen Spannungen am Persischen Go
 Die Berichte über das Desertieren wichtiger IRGC-Kommandeure sowie die Anstrengungen der IRGC-Vertreter, diese zu dementieren, können wie die jüngsten Restrukturierungen als Zeichen interner Spannungen und Meinungsverschiedenheiten gelesen werden. Möglich ist, dass dies Hinweis auf innere Streitigkeiten über den Umgang mit dem wachsenden Druck durch die Vereinigten Staaten gibt sowie die anhaltende Unruhe der unter der Wirkung der Sanktionen leidenden iranischen Bevölkerung.
 
   
-**\* \* \***
+---
 
 
 

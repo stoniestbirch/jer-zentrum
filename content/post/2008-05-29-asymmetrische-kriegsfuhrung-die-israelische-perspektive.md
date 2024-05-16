@@ -713,7 +713,7 @@ Es gibt ausreichend empirische Beweise, dass staatliche Armeen recht erfolgreich
 
  
 
-***1. **Mission und Ziel***
+**1. **Mission und Ziel**
 
 Dieses Prinzip ist entscheidend für jeden militärischen Schritt. Es verlangt, dass sowohl Mission als auch Ziel klar definiert werden, und gewährleistet, dass eine Mission tatsächlich dem Ziel dient. Die Erfahrung zeigt, dass jedes Mal, wenn eine Mission nicht vollständig klar war, wie z.B. im Zweiten Libanonkrieg, Israel einen hohen Preis zu zahlen hatte. Das Prinzip verlangt von jedem Befehlshaber, die ihm unterstehenden Streitkräfte zu nutzen, um eine Mission durchzuführen, welche dem definierten Ziel entspricht. Das Ziel hat dabei oberste Priorität, und dient wie eine Art Leuchtfeuer der Erhellung einer Mission. Auf jeder Ebene einer militärischen Hierarchie ist das Ziel die Mission der nächsthöheren Ebene. In einigen Extremsituationen kann festgestellt werden, dass eine Mission nicht durchzuführen, einem Ziel besser dient. In solchen Situationen hat das Ziel immer die höhere Priorität. Auf der taktischen Ebene ist es z.B. ratsamer, Terroristen, die ein Haus bereits verlassen haben, anzugreifen anstelle des Hauses, welches als Mission vorgesehen war.
 
@@ -727,7 +727,7 @@ Im Gegensatz dazu war die Ausschaltung des Terrorismus im Westjordanland im Apri
 
  
 
-***2. **Optimale Verwendung der Kräfte***
+**2. **Optimale Verwendung der Kräfte**
 
 Dieses Prinzip erscheint auf dem ersten Blick als weniger notwendig für den Kampf gegen den Terrorismus, doch das ist nicht der Fall. Eine der größten Herausforderungen im Kampf gegen Terror- und Guerillagruppen ist, dass eine Kombination vieler Fähigkeiten für einen Erfolg notwendig ist. Wenn Geheimdienste, Spezialeinheiten, Luftwaffe, Bodentruppen sowie Polizei nicht effektiv jede in ihrem jeweiligen Gebiet eingesetzt werden, kann Terrorismus nicht überwunden werden. Einer der herausragendsten Erfolge des israelischen Verteidigungssystems ist seine Fähigkeit, dass Äußerste aus seinen verschiedenen Elementen herauszuholen. 2002 erbrachte die Kombination der erstklassigen Nachrichtendienste des Israelischen Sicherheitsdienstes und des Militärischen Geheimdienstes, die treffsichere Zielgenauigkeit der israelischen Luftwaffe sowie die Professionalismus der Streitkräfte eine vereinte, koordinierte Operation innerhalb des Palästinensergebiete. Sie war effizient, effektiv und vermied Kollateralschäden. Dies war das Geheimnis des Erfolges des Antiterrorkampfes im Westjordanland und im Gazastreifen. Es handelte sich um ein klassisches Beispiel einer „vollständigen Verwendung von Kräften“, in welcher jedes Element seine eigenen Fähigkeiten mit ins Feld bringt und, in der Kombination, zu einem synergetische Resultat führt, weit mehr als die Summe der einzelnen Teile.
 
@@ -737,13 +737,13 @@ Dieses Prinzip manifestiert sich noch auf eine andere Weise. Die IDF sieht sich 
 
  
 
-***3. **Initiative und Offensive***
+**3. **Initiative und Offensive**
 
 Nach dem Erfolg von „Initiative und Offensive“ in der „Operation Defensive Shield“ im April 2002 (nach Scheitern der Defensivstrategie in den vorrangegangenen anderthalb Jahren) und der Einsicht, dass die Abwesenheit von „Initiative und Offensive“ der Schwachpunkt im Kampf einiger Einheiten im Zweiten Libanonkrieg war, steht heute fest, dass es ohne beide unmöglich ist, Terror- und Guerillaorganisationen zu bekämpfen. Auf Grund der Tatsache, dass der Gegner ausweicht, ist dieses Prinzip wichtiger in der asymmetrischen als in der regulären Kriegsführung, bei der größere Einheiten operieren und es nicht immer Raum für unkoordinierte lokale Initiativen gibt. Jeder Unteroffizier muss verstehen, dass das Ergebnis eines solchen Krieges, in welchem kleinere Einheiten gegen Terror- und Guerillagruppen eingesetzt werden, von ihm und seiner Initiative im Aufspüren und Konfrontieren des Gegners wo und wann immer möglich abhängt. Dies ist der Schlüssel für den Kampf im kleinen und mitunter isolierten Rahmen eines asymmetrischen Krieges.
 
  
 
-***4. **Kriegslist (Strategem)***
+**4. **Kriegslist (Strategem)**
 
 Hier unterscheidet sich die israelische von der britischen und amerikanischen Terminologie, welche in beiden Fällen von „Überraschung“ spricht. In der israelischen Definition ist Überraschung ein wichtiger vielleicht sogar notwendiger Bestandteil eines Strategems, jedoch nicht seine Essenz. Entscheidender ist vielmehr, die Überraschung des Gegners auszunutzen, um ihn an seiner schwächsten Stelle zu treffen und ihm das Standbein zu rauben. Überraschung ist niemals der letzte, sondern der erste Schritt; das Ziel ein entscheidender Schlag. Kriegslist und Ausnutzung des Überraschungseffektes sind beide wichtig und bringen zusätzlichen Gewinn. Während des letzten Krieges hatte die Armee das Prinzip des Strategems nicht verinnerlicht. Sie begnügte sich damit, Nasrallah zwar zu überraschen, jedoch nicht, diese Überraschung für einen Sieg auszunutzen. Bei jedem Schritt eine Kriegslist in Anwendung bringen, sollte im Zentrum jeder militärischen Erwägung stehen. In einem regulären Krieg mag es keine Wahl geben und ein Strategem kann durch größere Streit- oder Feuerkraft ersetzt werden. Im asymmetrischen Krieg hingegen gibt es keinen Ersatz, denn in vielen Fällen ist ein Zuviel an Kraft eher schädlich als von Vorteil.
 
@@ -753,7 +753,7 @@ Verglichen mit dem Prinzip der „optimalen Verwendung der Kräfte“ erscheinen
 
  
 
-***5. **Kräftebündelung***
+**5. **Kräftebündelung**
 
 Genau dies unterblieb im Zweiten Libanonkrieg. Die IDF konzentrierte ihre Bodentruppen nicht an irgendeiner Stelle, noch hatte sie ein zentrales Ziel im Südlibanon, von wo aus sie ihre Truppen an der ganzen Front ins Gefecht schicken konnten. Für lange Zeit gab es auch keinen Stoßrichtung im Kampf gegen den Terrorismus im Westjordanland oder dem Gazastreifen. Dies änderte sich als die Mission als Verhaftung oder Ausschaltung all jener definiert wurde, welche Terroraktivisten in Gang setzten – von führenden Köpfen der Hamas hin zum Techniker, der die Sprengstoffgürtel am Körper der Terroristen anbrachte. Sie alle gaben die Stoßrichtung vor. Erst als es also klar wurde, dass die meisten vorhandenen Ressourcen der IDF sich darauf konzentrieren mussten, die einzelnen Glieder einer Terrorkette zu lokalisieren und zu verhaften bzw. auszuschalten, gelang es den IDF das Ausmaß des Terrors zu reduzieren.
 
@@ -765,7 +765,7 @@ Im Krieg gegen den Terrorismus wird das Ziel in vielen Fällen nicht ein physisc
 
  
 
-***6. **Stetigkeit des Handelns***
+**6. **Stetigkeit des Handelns**
 
 In jedem Stadium des israelischen Krieges gegen Terror- und Guerillagruppen, gelang es dem Gegner, Ruhepausen zu nutzen, sich neu zu strukturieren und später erneut Terrorangriffe durchzuführen, bis es uns gelang, das Prinzip der Stetigkeit des Handelns ins Spiel zu bringen. Erst als Israel dieses Konzept verstand und sich entschloss, hartnäckig die „Rasenmähertaktik“ anzuwenden – d.h. alle zu verhaften bzw. auszuschalten, die in der Terrorkette auftauchten – konnte Terror überwunden werden. In einem Versuch, anhaltende IDF-Aktionen zu stoppen, welche sie daran hinderten, ihre Stärke zurückzuerlangen, schlug die Hamas eine *tahdiya* – eine wechselseitige Ruhephase – vor. Da das Ziel der Hamas darin bestand, eine Atempause für Reorganisation und Regeneration der Kräfte zu erhalten, tat der israelische Staat gut daran, dies nicht zu gewähren.
 
@@ -775,7 +775,7 @@ Von strategischer Warte aus gesehen führt eine ausbleibende Stetigkeit des Hand
 
  
 
-***7. **Tiefe und Reserven***
+**7. **Tiefe und Reserven**
 
 Die folgenden drei Beispiele verdeutlichen die Wichtigkeit von strategischer Tiefe. Israel musste auf die harte Art und Weise lernen wie entscheidend Tiefe ist, wenn der Gegner über Raketen verfügt. Kassam-Raketen auf Ashkelon und Katjuschas in Haifa haben die Relevanz von zehn theoretisch unbedeutenden Kilometern unterstrichen. Hätte Israel z.B. einen Zehn-Kilometer-Streifen im Südlibanon kontrolliert, hätten die meisten der Raketen, die so in Haifa einschlugen, ihr Ziel nicht erreicht. Ebenso wären Ashkelon und Sderot außerhalb der Reichweite der Kassam-Raketen würde Israel nur fünf Kilometer von Nordgaza kontrollieren.
 
@@ -809,19 +809,19 @@ Wie sich zeigen ließ, stellen die Prinzipien „optimale Verwendung der Kräfte
 
  
 
-***8. **Sicherheit***
+**8. **Sicherheit**
 
 Sicherheit ist essentiell für den Kampf gegen den Terrorismus; sie ergänzt das Prinzip „Initiative und Offensive.“ Auf Grund seiner Bedeutung ist mangelnder Entschlossenheit der Entscheidungsträger im Antiterrorkampf über die der Sicherheit zuzuweisenden Ressourcen ein großes Problem. Ausgehend von der Annahme, dass Ressourcen begrenzt sind: wie viel kann davon vom Primärziel, Terror- und Guerillagruppen per Angriff zu konfrontieren, abgezogen werden, um die Streitkräfte in ihrer Basis sowie während des Kampfes zu schützen? Wie viele der gesamten Truppen sollten zum Schutz des Rückens und der Zivilbevölkerung eingesetzt werden? Ein weiterer Sicherheitsaspekt ist ein Plan, Truppenaktivitäten vor dem Gegner zu verbergen – ein weiterer Faktor, den wir im Libanon offensichtlich nicht begriffen. Hisbollah zeigte uns deutlich, dass sie unsere Schwäche auszunutzen verstanden.
 
  
 
-***9. **Aufrechterhaltung von Moral und Kampfgeist***
+**9. **Aufrechterhaltung von Moral und Kampfgeist**
 
 Dieses Prinzip gehört zum Kernanliegen eines jeden Befehlshabers, ganz besonders im Antiterrorkampf, in dem oft kleine Gruppen oder gar Individuen gegen Terroristen eingesetzt werden. In den meisten Fällen können solche Operationen nicht durch die Artillerie, Luftwaffe oder das Moment größerer Militäreinheiten im Umfeld unterstützt werden. Im Kampf gegen Terror- und Guerillakräfte ist der Kampfgeist des individuellen Soldaten oder einer kleinen Einheit von äußerster Bedeutung, ganz besonders bei hoher Entfernung von der nächsthöheren Befehlsebene, so dass sie selbst über ihr Vorgehen zu entscheiden haben. Moral und Kampfgeist werden ganz besonders in asymmetrischen Kriegen herausgefordert, welche eher Langzeitkonflikte ohne absehbares Ende darstellen als einmalige Anstrengungen, wie die Kriege, welche die IDF in der Vergangenheit zu kämpfen gewohnt war. Es liegt in der Natur asymmetrischer Konflikte, dass Soldaten nicht nur ein große Anzahl stumpfsinniger, ermüdender und frustrierende Missionen zu erfüllen haben – und jene müssen äußerst erfolgreich ausgeführt werden – sondern, dass reguläre Einheiten mitunter Missionen durchführen müssen, die eher Spezialeinheiten entsprechen würden. Diese Ansprüche testen sowohl Moral als auch Kampfgeist, Disziplin wie Professionalität von Soldaten und Befehlshabern. Die Notwendigkeit, z.B. Zivilisten bei der Sicherung von Straßensperren gegenüberzustehen, oder aggressive Operationen in dicht besiedelten Gebieten durchzuführen, verkomplizieren die Fragen von Moral und Disziplin zusätzlich. Folglich ist das Prinzip, Moral wie Kampfgeist aufrechtzuerhalten umso wichtiger in alle Formen des Kriegs gegen Terror- und Guerillagruppen.
 
  
 
-***10. **Einfachheit***
+**10. **Einfachheit**
 
 Obwohl diesem Prinzip grundsätzlich auf dem Schlachtfeld Bedeutung zukommt, ist es im Kampf gegen den Terrorismus zehn Mal wichtiger. Das liegt hauptsächlich daran, dass Antiterrorkampf auf Grund der Notwendigkeit, innerhalb der Zivilbevölkerung zu operieren, komplizierter Natur ist. Komplexe Aktionen erhöhen in der Regel die Gefahr für die Truppen durch die Interaktion mit der Umgebung. Aus diesem Grund ist Schlichtheit auf dem Feld wichtig, auf der operativen Ebene ebenso wie auf der taktischen: die Armee hat ein klares Interesse daran, dass jede Einheit in der Lage ist gegen den Terrorismus vorzugehen und möchte folglich die Abhängigkeit von intensiv operierenden Spezialeinheiten reduzieren. Über diesen Wunsch nach Vermeidung einer beschränkenden Abhängigkeit hinaus müssen viele Aktionen innerhalb kürzester Zeit durchgeführt werden (oft um das Prinzip des steten Handelns zu bewahren). Ohne Einfachheit würde es zu wenige Operationen geben und einige würden zu spät durchgeführt auf Grund zu langer Vorbereitungszeiten. Konfrontiert mit einem schwer zu fassende Feind ist Einfachheit beinahe eine Bedingung *sine qua non* um den Langzeitdruck aufrechtzuerhalten.
 

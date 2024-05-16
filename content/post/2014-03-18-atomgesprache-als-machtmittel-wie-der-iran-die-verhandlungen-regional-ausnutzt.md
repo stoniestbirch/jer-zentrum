@@ -94,7 +94,7 @@ Die Atomgespräche gestatten dem Iran, sich als auf einer Ebene mit den wesentli
 Zur gleichen Zeit gestattet der Mangel direkter Gegner auf der geostrategischen Ebene dem Iran, die Atomgespräche im entspannten Tempo zu führen. Dieser Ansatz wurde durch die offensichtliche und anhaltende Schwäche der Vereinigten Staaten und des Westens bei der Lösung der syrischen Krise weiter ermutigt, die zunehmend zu einem Kampfschauplatz zwischen Saudi Arabien und dem Iran geworden ist und die blutige Spaltung zwischen Sunniten und Schiiten manifestiert. Folglich sieht der Iran keine wesentliche Gefahr auf dem Weg zu seinem strategischen Ziel. Indem Präsident Obama und seine Regierung fortgesetzt die Politik der „aktiven Passivität“ betreiben, die sie entworfen haben, setzt sich der Niedergang der amerikanischen Rolle in der Region unvermindert fort.
 
 
-**\* \* \***
+---
 
 
 1. https://www.youtube.com/watch?v=UAoYlr5YH2g&amp;noredirect=1  

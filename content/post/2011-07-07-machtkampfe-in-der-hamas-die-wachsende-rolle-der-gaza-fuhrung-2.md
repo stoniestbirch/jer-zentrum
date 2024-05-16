@@ -223,7 +223,7 @@ Die Kontroverse innerhalb der Hamas dreht sich um Macht und nicht um politische 
 
  
 
-**\* \* \***
+---
 
 Oberstlt. a.D. Jonathan D. Halevi ist Senior Researcher für Nahost und radikalen Islam am Jerusalem Center for Public Affairs. Er ist Mitbegründer der Orient Research Group Ltd. und war Berater des politischen Planungsstabes des israelischen Außenministeriums.
 

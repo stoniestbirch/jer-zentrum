@@ -236,7 +236,7 @@ Ein binationaler Staat würde nicht nur Israels jüdische Bevölkerung gefährde
 
  
 
-**\* \* \***
+---
 
  
 

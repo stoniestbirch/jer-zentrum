@@ -238,7 +238,7 @@ Zusammengefasst ist der Zusammenbruch der alten arabischen Ordnung gemäßigter 
 
  
 
-**\* \* \***
+---
 
  
 

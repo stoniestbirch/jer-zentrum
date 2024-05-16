@@ -85,5 +85,5 @@ Der Westen erscheint in iranischen Augen daher als schwach. Es ist also zu erwar
 Sollte dies die vorherrschende Stimmung bei der aktuellen Verhandlungsrunde bleiben, dann besteht Anlass zur Sorge.
 
 
-**\* \* \***
+---
   

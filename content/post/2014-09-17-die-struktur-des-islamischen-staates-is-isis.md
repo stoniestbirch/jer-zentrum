@@ -66,7 +66,7 @@ Mit der Eroberung Mosuls und großer Gebiete in Syrien und im Irak hat der IS ei
 Beim Islamischen Staat scheint es sich nicht um ein vorübergehendes Phänomen zu handeln. Die gegenwärtig etablierten Strukturen deuten an, dass, selbst wenn die Führer des IS getötet werden sollten, sein System die Nachfolge gut geregelt hat – so hat auch al-Qaida die Tötung Osama Bin Ladens überlebt. Den Islamischen Staat zu beseitigen, dürfte sich als langes und schwieriges Unterfangen erweisen. Gelingt es nicht, eine Kluft zwischen IS und der lokalen Bevölkerung zu erzeugen, und scheitert man daran, eine dauerhafte politische Lösung für die sunnitisch-schiitischen Rivalitäten im Irak und den syrischen Konflikt zu finden, dann stehen die Erfolgsaussichten schlecht.
 
 
-**\* \* \***
+---
 
 
 1 http://www.telegraph.co.uk/news/worldnews/middleeast/iraq/10956280/Inside-the-leadership-of-Islamic-State-how-the-new-caliphate-is-run.html  

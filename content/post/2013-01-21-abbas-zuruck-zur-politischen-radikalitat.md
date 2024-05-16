@@ -105,7 +105,7 @@ Wer auch immer glaubte, dass Abbas nach der Resolution der UN-Vollversammlung vo
 
  
 
-**\* \* \***
+---
 
 
 

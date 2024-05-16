@@ -82,7 +82,9 @@ Die palästinensische Führung ist weit entfernt davon, moderat zu sein. Auch oh
 
 
 
-<iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/RIz0cyltKF8"" width=""560""></iframe>
+https://youtu.be/RIz0cyltKF8
+
+
 
 
 Die Palästinenserführung weigert sich die Verhandlungen wieder aufzunehmen oder in einen Dialog mit der israelischen Führung zu treten. Sie blockiert den Kontakt zwischen Palästinensern und Israelis auf diplomatischen, professionellen und zwischenmenschlichen Ebenen. Diese Politik widerspricht den palästinensischen Verpflichtungen des Osloer Abkommens, die Zusammenarbeit und den Dialog zwischen beiden Seiten auf allen Ebenen zu fördern.

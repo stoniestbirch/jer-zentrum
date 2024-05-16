@@ -49,8 +49,8 @@ Durch die punktgenauen Luftschläge mit ihren – angesichts der Wohnblöcke im 
    
 
 
-> > > > ***Während des Krieges lehnte die Hamas 11 Versuche, einen Waffenstillstand herbeizuführen, ab oder verletzte diesen. Währenddessen saßen ihre Führer sicher in Bunkeranlagen des Gazastreifens gleichgültig gegenüber dem Leiden ihres Volkes.***  
-> > > > 
+> **Während des Krieges lehnte die Hamas 11 Versuche, einen Waffenstillstand herbeizuführen, ab oder verletzte diesen. Währenddessen saßen ihre Führer sicher in Bunkeranlagen des Gazastreifens gleichgültig gegenüber dem Leiden ihres Volkes.**  
+> 
 
   
 
@@ -182,8 +182,8 @@ Der höchstrangige Offizier der Vereinigten Staaten, der Vorsitzende der Vereini
    
 
 
-> > ***Israel ist "außerordentlich weit gegangen, um Kollateralschäden und zivile Opfer in Gaza zu vermeiden.“  
-> > Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, ******6. November 2014***  
+> > **Israel ist "außerordentlich weit gegangen, um Kollateralschäden und zivile Opfer in Gaza zu vermeiden.“  
+> > Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, **6. November 2014**  
 > > 
 
   
@@ -197,7 +197,9 @@ Der höchstrangige Offizier der Vereinigten Staaten, der Vorsitzende der Vereini
 
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/QAsutHJGGo8"" width=""420""></iframe>Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, lobt die "umfangreichen Anstrengungen" Israels, zivile Opfer in Gaza zu vermeiden.
+ https://youtu.be/QAsutHJGGo8
+
+Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, lobt die "umfangreichen Anstrengungen" Israels, zivile Opfer in Gaza zu vermeiden.
 
 
    
@@ -214,7 +216,7 @@ Die IDF gehören zu den ersten, die eingestehen würden, dass – aller Vorsicht
    
 
 
-> > ***Dabei ist selektive Blindheit kein doppelter Standard – es ist die Abwesenheit eines Standards. ***  
+> > **Dabei ist selektive Blindheit kein doppelter Standard – es ist die Abwesenheit eines Standards. **  
 > > 
 
   
@@ -257,25 +259,25 @@ Am 8. Juli verurteilte der Sprecher des Weißen Hauses Josh Earnest entschieden 
 
  
 
-> ***  
-> Am 8. Juli verurteilte der Sprecher des Weißen Hauses Josh Earnest entschieden „den fortgesetzen Raketenbeschuss auf israelisches Gebiet und die vorsätzlichen Angriffe auf Zivilisten durch Terrororganisationen in Gaza“ und fügte hinzu, dass „kein Land \[…\] Raketenangriffe auf seine Zivilisten hinnehmen \[kann\]. Wir unterstützen Israels Selbstverteidigungsrecht gegen diese böswilligen Attacken.“***  
+> **  
+> Am 8. Juli verurteilte der Sprecher des Weißen Hauses Josh Earnest entschieden „den fortgesetzen Raketenbeschuss auf israelisches Gebiet und die vorsätzlichen Angriffe auf Zivilisten durch Terrororganisationen in Gaza“ und fügte hinzu, dass „kein Land \[…\] Raketenangriffe auf seine Zivilisten hinnehmen \[kann\]. Wir unterstützen Israels Selbstverteidigungsrecht gegen diese böswilligen Attacken.“**  
 > 
 
-***  
-***
+**  
+**
 
 ---
 
- ***  
-***Der kanadische Außenminister John Baird bekräftigte, dass „Israel \[…\] jedes Recht \[hat\], sich selbst gegen solche kriegerischen Akte des Terrorismus zu verteidigen,“(29) und UN-Generalsekretär Ban Ki-moon „verurteil\[te\] die jüngsten mehrfachen Raketenangriffe auf Israel von Gaza aus“ und forderte, dass „die unterschiedslosen Angriffe auf zivile Gebiete“ aufzuhören hätten.(30) 
+ **  
+**Der kanadische Außenminister John Baird bekräftigte, dass „Israel \[…\] jedes Recht \[hat\], sich selbst gegen solche kriegerischen Akte des Terrorismus zu verteidigen,“(29) und UN-Generalsekretär Ban Ki-moon „verurteil\[te\] die jüngsten mehrfachen Raketenangriffe auf Israel von Gaza aus“ und forderte, dass „die unterschiedslosen Angriffe auf zivile Gebiete“ aufzuhören hätten.(30) 
 
 Der Botschafter der EU in Israel, Lars Faaborg Andersen, drückte seine „eindeutige Solidarität“ mit den Israelis aus;(31) der britische Premier David Cameron „verurteilte die entsetzlichen Angriffe, die die Hamas verübt“(32) die deutsche Kanzlerin Angela Merkel rief am 9. Juli Premier Netanyahu an, um ihm ihre Unterstützung zuzusichern und hat, Berichten zufolge, „die Raketenangriffe der Hamas aufs Schärfste verurteilt.“(33) Der deutsche Außenminister Frank-Walter Steinmeier forderte in einer Stellungnahme, dass „ der mörderische Raketenbeschuss der Hamas auf israelische Städte sofort gestoppt werden \[müsse\]“.(34)
 
 
 ![""]("/UserFiles/615256458815_b984cbb907_h-1024x682.jpg")  
    
-> > > Am 23. Juli 2014 verabschiedete der UN-Menschenrechtsrat eine Resolution, in der Israel verurteilt wird. Die Resolution erwähnt die Hamas kein einziges Mal. (UN/Jean-Marc Ferré/Flickr)  
-> > > 
+> Am 23. Juli 2014 verabschiedete der UN-Menschenrechtsrat eine Resolution, in der Israel verurteilt wird. Die Resolution erwähnt die Hamas kein einziges Mal. (UN/Jean-Marc Ferré/Flickr)  
+> 
 
 
    
@@ -310,9 +312,9 @@ Wenn Israel es so gewollt hätte, wäre Gaza einfach durch Aushungern zur Aufgab
  
  
 
-> > > 
+> 
 Das medizinischen Corps kümmert sich um palästinensische Zivilisten in einem Feldlazarett der IDF auf der israelischen Seite des Grenzübergangs Erez. (IDF/Flickr)  
-> > >  
+>  
 
 
   
@@ -335,8 +337,8 @@ Es wäre ein Gewinn für die Welt, wenn der UN-Menschenrechtsrat dem nachkommen 
    
 
 
-> > > ***Es sollte die Hamas sein – und nicht Israel –, die von der Welt verurteilt wird. Die Hamas – und nicht Israel –, sollte Gegenstand der Empörung jener zahllosen Menschenrechtsgruppen werden.**Die Kriegsverbrechen und Verbrechen gegen die Menschlichkeit der Hamas hingegen zu ignorieren, kommt also der Ermutigung von Terrorismus gleich.***   
-> > > 
+> **Es sollte die Hamas sein – und nicht Israel –, die von der Welt verurteilt wird. Die Hamas – und nicht Israel –, sollte Gegenstand der Empörung jener zahllosen Menschenrechtsgruppen werden.**Die Kriegsverbrechen und Verbrechen gegen die Menschlichkeit der Hamas hingegen zu ignorieren, kommt also der Ermutigung von Terrorismus gleich.**   
+> 
 
   
 

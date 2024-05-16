@@ -39,7 +39,9 @@ Es sollte deutlich sein, dass „Breaking the Silence“ weniger Interesse daran
 
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/QAsutHJGGo8"" width=""420""></iframe>Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, lobt die "umfangreichen Anstrengungen" Israels, zivile Opfer in Gaza zu vermeiden.
+ https://youtu.be/QAsutHJGGo8
+
+Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, lobt die "umfangreichen Anstrengungen" Israels, zivile Opfer in Gaza zu vermeiden.
 
 
    

@@ -164,7 +164,7 @@ Eine sorgsame Überprüfung der entsprechenden Gesetze zeigt, dass israelische G
 
  
 
-**Die Legalität israelischer Militäraktionen gemäß dem *Ius ad Bellum***
+**Die Legalität israelischer Militäraktionen gemäß dem *Ius ad Bellum**
 
  
 

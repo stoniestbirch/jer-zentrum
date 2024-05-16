@@ -167,7 +167,7 @@ Was die iranischen Menschen wirklich glauben, behalten sie in der Regel für sic
 
  
 
-**5. Umgang mit *Ketman***
+**5. Umgang mit *Ketman**
 
 
 

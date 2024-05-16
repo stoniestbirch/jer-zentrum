@@ -206,7 +206,7 @@ Die Vereinigten Staaten nähern sich so der europäischen Position an, womit Isr
 
  
 
-**\* \* \***
+---
 
  
 

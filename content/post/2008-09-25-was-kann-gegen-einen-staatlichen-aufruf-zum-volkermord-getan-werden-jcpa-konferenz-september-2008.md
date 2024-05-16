@@ -137,7 +137,7 @@ Mitglied des kanadischen Parlaments, ehem. Kanadischer Justizminister und Genera
 
  
 
-****
+**
 
 · Die Äußerungen Ahmadinejads stehen im eklatanten Widerspruch zu dem Artikel der Konvention über die Verhütung und Bestrafung des Völkermordes von 1948, welcher den direkten und öffentlichen Aufruf zum Völkermord für strafbar erklärt. Dies ist die Ansicht einer Vereinigung von Rechtsexperten, Juristen und Forschern, geleitet von Irwin Cotler, Mitglied des kanadischen Parlaments und ehemaliger Justizminister und Generalstaatsanwalt Kanadas. Cotler hat bereits ruandische Staatsangehörige wegen der Anstiftung zum Völkermord vor kanadischen Gerichten strafrechtlich belangt.
 

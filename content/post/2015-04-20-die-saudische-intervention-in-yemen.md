@@ -59,7 +59,7 @@ Die islamistischen Gruppen, die verschiedene Regime als Terrorgruppen einstufen,
 
 
 
-**\* \* \***
+---
 
 
 

@@ -84,7 +84,7 @@ Angesichts dieser Dokumente, die die verlangten Normen und Prozeduren für Unter
 Angesichts dieser offenkundigen und wissentlichen Verletzung des Unparteilichkeitstandards der UN durch Prof. Schabas und die UN selbst, muss alle Arbeit dieser Kommission und unter seinem Vorsitz und seiner Leitung als mangelhaft und verdächtig gelten.
 
 
-**\* \* \***
+---
 
 
 1.http://www1.umn.edu/humanrts/monitoring/chapter18.html

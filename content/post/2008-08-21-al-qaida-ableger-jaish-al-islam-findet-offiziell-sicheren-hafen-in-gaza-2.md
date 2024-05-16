@@ -87,7 +87,7 @@ Sechzehn Terrororganisationen haben die Autorität der Hamas durch Akzeptanz der
 
  
 
-**Beziehungen zwischen Hamas und *Jaish al-Islam***
+**Beziehungen zwischen Hamas und *Jaish al-Islam**
 
  
 
@@ -107,7 +107,7 @@ Die allgemeine Beziehung der Hamas zu al-Qaida war schon immer Fluktuationen unt
 
  
 
-**Formale Übereinkunft zwischen Hamas und *Jaish al-Islam***
+**Formale Übereinkunft zwischen Hamas und *Jaish al-Islam**
 
  
 

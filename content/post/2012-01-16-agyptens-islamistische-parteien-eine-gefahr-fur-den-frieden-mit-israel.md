@@ -207,7 +207,7 @@ Diese Entwicklungen können jedoch von Seiten der Amerikaner und ihrer Alliierte
 
  
 
-**\* \* \***
+---
 
  
 

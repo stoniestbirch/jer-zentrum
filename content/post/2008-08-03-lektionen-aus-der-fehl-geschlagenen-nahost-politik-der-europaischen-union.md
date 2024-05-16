@@ -221,7 +221,8 @@ Die israelische Regierung hat ihrerseits ebenfalls die Bedeutung der Reduzierung
 
  
 
-**\* \* \* \* \* \* \* \* \* \*** 
+---
+
 
 Anmerkungen: 
 1. „[IraqS. Aluf Benn: EU Distances Itself from Poll about an ‚Anti-Peace’ Israel. Ha’aretz, 4. November 2003; http://europa.eu.int/comm/public\_opinion/flash/fl151\_iraq\_full\_report.pdf ]("http://www.jcpa.org/JCPA/Templates/ShowPage.asp?DBID=1&LNGID=1&TMID=112&FID=568&PID=0&IID=2108")and Peace in the World“; EOS Gallup Europa auf Wunsch der Europäischen Kommission, Director-General press and Communication, Meinungsumfragen, Presse-übersicht, Europa Direkt, November 2003. Über die Umfrage wurde ausführlich in den israelischen Medien berichtet. 

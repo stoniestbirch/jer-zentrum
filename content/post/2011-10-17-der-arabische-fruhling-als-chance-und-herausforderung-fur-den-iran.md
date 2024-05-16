@@ -268,7 +268,7 @@ Der Iran behauptet, dass diejenigen, die die israelischen Botschaft in Kairo ges
 
  
 
-**\* \* \***
+---
 
  
 

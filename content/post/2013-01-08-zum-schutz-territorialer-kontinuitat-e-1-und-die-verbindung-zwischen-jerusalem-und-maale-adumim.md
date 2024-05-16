@@ -283,7 +283,7 @@ Wenn der palästinensische Staat errichtet werden sollte, dann wird eine Verbind
 
  
 
-**\* \* \***
+---
 
  
 

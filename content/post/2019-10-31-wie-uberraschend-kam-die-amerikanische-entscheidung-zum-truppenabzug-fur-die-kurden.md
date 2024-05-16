@@ -60,7 +60,7 @@ Zu bemerken ist jedoch, dass ohne Trumps Entscheidung und die türkische Offensi
 
 
 
-**\* \* \***
+---
 
 
 

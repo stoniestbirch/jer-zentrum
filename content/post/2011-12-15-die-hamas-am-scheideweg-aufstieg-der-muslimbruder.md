@@ -102,7 +102,7 @@ Und so lautet das Fazit, dass zwar der Erfolg der Muslimbrüder im ganzen Nahen 
 
  
 
-**\* \* \***
+---
 
  
 

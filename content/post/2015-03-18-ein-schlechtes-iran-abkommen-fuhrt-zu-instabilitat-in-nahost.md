@@ -77,7 +77,7 @@ Das iranische Regime wird sich in seinem Wesen nicht ändern. Seine Subversionsp
 Zusammengefasst lässt sich sagen, dass ein Atomabkommen mit dem Iran genau zu einem Zeitpunkt unterzeichnet werden wird, an dem sich der Nahe Osten an einem kritischen Scheideweg befindet. Der Kampf um die Neuausrichtung der Region ist noch nicht entschieden. Er wird ausgefochten zwischen Kräften des radikalen Wandels wie dem IS, Al-Qaida, der Muslimbruderschaft und dem Iran einerseits und Vertretern der alten Ordnung – den "moderaten" arabischen Staaten wie Ägypten, Saudi Arabien, den Golfstaaten, Tunesien – zusammen mit Israel andererseits. Ein Atomabkommen dürfte in aller Wahrscheinlichkeit dem Iran Auftrieb geben und über kurz oder lang den Nahen Osten in ein atomares Wettrüsten stürzen, die iranische Subversionspolitik verschärfen sowie seinen Terrorismus unter einer atomaren "Eisernen Kuppel". Dadurch entstünde eine gefährliche Realität für alle moderaten Kräfte, die in der Vergangenheit zum Teil Alliierte der Vereinigten Staaten waren.
 
 
-**\* \* \***
+---
   
 (1) http://nssarchive.us/wp-content/uploads/2015/02/2015.pdf  
 (2) http://jcpa.org/article/iran-sanaa-yemen  

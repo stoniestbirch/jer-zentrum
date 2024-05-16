@@ -94,7 +94,7 @@ Während der Konflikt in Gaza und evtl. auch im Libanon eskaliert, ist es Aufgab
 Je mehr Zeit vergeht, umso näher rückt der Iran an die Atombombe und verstärkt dabei seinen Zugriff auf Schlüsselereignisse in der Region. Der Westen muss das iranische Verhalten thematisieren und während der Verhandlungen zur Sprache bringen.
 
 
-**\* \* \***
+---
 1 http://www.terrorism-info.org.il/en/article/20459.
 
 2 Mainly Explosively Formed Penetrator (EFP). Iran also transferred such devices to Shiites in Iraq against coalition forces causing massive fatalities

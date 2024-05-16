@@ -203,7 +203,7 @@ Anfang Dezember 2012 wurde zudem eine vereinte militärische Führung der Rebell
 
  
 
-**\* \* \***
+---
 
  
 

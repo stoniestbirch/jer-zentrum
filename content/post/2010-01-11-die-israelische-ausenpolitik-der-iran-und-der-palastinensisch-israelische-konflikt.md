@@ -134,7 +134,7 @@ Die gute Nachricht ist, dass das von Mahmoud Ahmadinejad geführte Regime immer 
 
  
 
-**\* \* \***
+---
 
 
 

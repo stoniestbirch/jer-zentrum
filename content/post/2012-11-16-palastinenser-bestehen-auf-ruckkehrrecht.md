@@ -175,7 +175,7 @@ Das Flüchtlingsproblem steht im Zentrum des Nahostkonfliktes. Damit stellt es f
 
  
 
-**\* \* \***
+---
 
  
 

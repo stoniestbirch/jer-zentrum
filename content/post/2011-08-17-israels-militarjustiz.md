@@ -133,7 +133,7 @@ Der ehemalige Präsident des Obersten Gerichtshofes Aharon Barak sagte: “Das i
 
  
 
-**\* \* \***
+---
 
  
 

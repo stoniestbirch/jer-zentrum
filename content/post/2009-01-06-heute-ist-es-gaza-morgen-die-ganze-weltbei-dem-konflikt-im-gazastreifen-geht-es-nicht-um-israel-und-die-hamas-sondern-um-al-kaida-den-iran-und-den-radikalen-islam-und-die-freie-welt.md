@@ -40,7 +40,7 @@ url: /heute-ist-es-gaza-morgen-die-ganze-weltbei-dem-konflikt-im-gazastreifen-ge
 
 Ben Dror Yemini
 
-****
+**
 
 
 

@@ -29,10 +29,12 @@ Am 6. November 2014 hielt der höchstrangige Offizier der amerikanischen Streitk
 
 
    
-  <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/QAsutHJGGo8"" width=""420""></iframe>  
+  https://youtu.be/QAsutHJGGo8
+
+  
    
-> > > > > > Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, lobt die „umfangreichen Anstrengungen“ Israels, zivile Opfer in Gaza zu vermeiden.  
-> > > > > > 
+> Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, lobt die „umfangreichen Anstrengungen“ Israels, zivile Opfer in Gaza zu vermeiden.  
+> 
 
 
    
@@ -45,10 +47,12 @@ Die IDF greifen nur sehr selektiv zur Anwendung militärischer Gewalt. Wie bei v
 Satellitenbilder, die das UN-Büro zur Koordination humanitärer Angelegenheiten (UN-OCHA) veröffentlicht hat, zeigen das Ausmaß der Schäden in Gaza und bestätigen, dass die IDF-Luftschläge nur ausgewählten Zielen galten.(2) In Folge durch die IDF-Sprecher veröffentlichte Bilder belegen, dass sich die IDF-Angriffe auf die Orte konzentrierten, wo sich militärische Ziele fanden.(3)
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/Lly2AfFW8kw"" width=""560""></iframe>  
+ https://youtu.be/Lly2AfFW8kw
+
+  
    
-> > > > > Am 15. August 2014 veröffentlichten die Vereinten Nationen Karten des Gazastreifens, in denen die zerstörten Gebiete eingetragen wurden. Wie dieses IDF-Video zeigt, versäumen die UN-Karten darauf hinzuweisen, dass die Hamas von genau jenen Gebieten – auf denen sich u.a. auch Schulen und Krankenhäuser befanden – ihre Raketen abfeuerte.  
-> > > > > 
+> Am 15. August 2014 veröffentlichten die Vereinten Nationen Karten des Gazastreifens, in denen die zerstörten Gebiete eingetragen wurden. Wie dieses IDF-Video zeigt, versäumen die UN-Karten darauf hinzuweisen, dass die Hamas von genau jenen Gebieten – auf denen sich u.a. auch Schulen und Krankenhäuser befanden – ihre Raketen abfeuerte.  
+> 
 
 
    
@@ -59,16 +63,16 @@ Man muss sich dabei nicht allein auf die Aussagen der IDF verlassen. Am 15. Augu
    
 
 
-> > ***Die Analyse des UN-„Atlas zur Gaza-Krise“ zeigt, dass die IDF-Luftschläge präzise und konzentriert waren. ******78 Prozent der zerstörten Strukturen befanden sich innerhalb einer drei-Kilometer-Zone von der israelischen Grenze entfernt. ***  
+> > **Die Analyse des UN-„Atlas zur Gaza-Krise“ zeigt, dass die IDF-Luftschläge präzise und konzentriert waren. **78 Prozent der zerstörten Strukturen befanden sich innerhalb einer drei-Kilometer-Zone von der israelischen Grenze entfernt. **  
 > > 
 
-***  
-***
+**  
+**
 
 ---
 
- ***  
-***   
+ **  
+**   
 Dan Smith, Analyst für geografische Daten, hat die 12,000 Orte zusammengetragen und seine Analyse auf vier verschiedenen Karten dargestellt, eine für jeden Schweregrad der Schäden.(5) Die Ergebnisse zeigen, dass die IDF-Luftschläge präzise und konzentriert waren. 72 Prozent der Schäden fanden sich innerhalb einer drei-Kilometer-Zone von der israelischen Grenze entfernt. Diese Entfernung entspricht zudem den Angaben der IDF darüber, wo sie operierten, um die Tunnel zu zerstören. 78 Prozent der zerstörten Strukturen fanden sich ebenfalls in dieser drei-Kilometer-Zone.
 
 
@@ -98,7 +102,7 @@ Im Rahmen der Gesetze des Staates Israel, wie sie vom Obersten Gerichtshof des L
    
 
 
-> > ***Im Rahmen der Gesetze des Staates Israel, wie sie vom Obersten Gerichtshof des Landes ausgelegt werden, sind die IDF bei der Durchführung ihrer Operationen an das Humanitäre Völkerrecht Der Umstand, dass im Konflikt mit der Hamas, dem Islamischen Dschihad und anderen Terrorgruppen die andere Seite die internationalen Normen schamlos verletzen, entbindet die IDF nicht davon, sich ihrerseits an jene zu halten.***  
+> > **Im Rahmen der Gesetze des Staates Israel, wie sie vom Obersten Gerichtshof des Landes ausgelegt werden, sind die IDF bei der Durchführung ihrer Operationen an das Humanitäre Völkerrecht Der Umstand, dass im Konflikt mit der Hamas, dem Islamischen Dschihad und anderen Terrorgruppen die andere Seite die internationalen Normen schamlos verletzen, entbindet die IDF nicht davon, sich ihrerseits an jene zu halten.**  
 > > 
 
   
@@ -168,8 +172,8 @@ Teil aller operationellen Planungen der IDF ist das Ziel, den Schaden von Zivili
    
 
 
-> > > ***Alle Einsatzbefehle, die der Generalstab erteilt, enthalten umfangreiche Anhänge, die sich mit humanitären und juristischen Fragestellungen befassen.***   
-> > > 
+> **Alle Einsatzbefehle, die der Generalstab erteilt, enthalten umfangreiche Anhänge, die sich mit humanitären und juristischen Fragestellungen befassen.**   
+> 
 
   
 
@@ -196,13 +200,17 @@ Dieses Vorgehen garantiert, dass die ausgewählten Ziele nur nach gründlicher �
 Das bedeutet nicht, dass dieser Prozess absolut vor Fehlern gefeit ist. Es besteht immer die Möglichkeit, dass scheinbar zuverlässige nachrichtendienstliche Informationen unvollständig sind. Es kann zu Fehleinschätzungen und Fehlern kommen. Eine beständige Möglichkeit ist, dass die Situation vor Ort sich in der letzten Minute ändert oder sogar erst, wenn der Angriff schon im Gang ist. So kann es z.B. passieren, dass eine Gruppe Zivilisten wider Erwarten einen angezielten Ort unmittelbar vor dem Angriff betritt. In solchen Fällen kann es dazu kommen, dass die IDF ihren Angriff abbricht.(16) Raketen wurden inmitten ihres Anfluges abgelenkt, da plötzlich Zivilisten das Zielgebiet betreten haben. Es gibt eine ganze Reihe von Videos, die ein solches Ablenken Sekunden vor dem Einschlag belegen.(17)
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/gxC11QMMf9c"" width=""420""></iframe>  
+ https://youtu.be/gxC11QMMf9c
+
+  
    
-> > > > Die IDF brechen einen Luftschlag gegen ein sich bewegendes Ziel ab, als Zivilisten in der Nähe auftauchen. (IDF/YouTube)  
-> > > > 
+> Die IDF brechen einen Luftschlag gegen ein sich bewegendes Ziel ab, als Zivilisten in der Nähe auftauchen. (IDF/YouTube)  
+> 
 
    
-  <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/TXrxLglOoRM"" width=""560""></iframe>  
+  https://youtu.be/TXrxLglOoRM
+
+  
    
  Als Terroristen sich einer Gruppe von Terroristen nähern, lenken die IDF ihren Luftschlag in letzter Sekunde ab.  
  (IDF/YouTube)  
@@ -214,62 +222,70 @@ Das bedeutet nicht, dass dieser Prozess absolut vor Fehlern gefeit ist. Es beste
 
  **Operationelle Maßnahmen zur Verhinderung ziviler Opfer**
 
-***Nachrichtendienste***
+**Nachrichtendienste**
 
 Die IDF verwenden ihre nachrichtendienstlichen Abteilungen nicht nur, um den Gegner zu lokalisieren, sondern auch um in Echtzeit Kommandeuren Informationen über die Anwesenheit von Zivilisten in der Nähe anvisierter Ziele zukommen zu lassen. So ist es normal für die IDF, ihre Überwachungstechnologie aus der Luft zu nutzen, um die Bewegungen von Zivilisten im Umfeld von Zielen zu beobachten.(18)
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/PuL-OA84p54"" width=""420""></iframe>  
-   
-> > > > > > Drei verschiedene Situationen, in denen Luftschläge während der Operation „Schutzfels“ abgebrochen wurden, weil sich Zivilisten in der Nähe des Ziels befanden. (IDF/YouTube)  
-> > > > > > 
+ https://youtu.be/PuL-OA84p54
 
   
-  <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/OtL5QitoSC0"" width=""420""></iframe>  
    
-
-
-> > > > > > > Die israelische Luftwaffe bricht am 10. Juli 2014 einen Luftangriff auf Gaza ab, nachdem Kinder in der Nähe des Ziels gesehen werden. (IDF/YouTube)  
-> > > > > > > 
+> Drei verschiedene Situationen, in denen Luftschläge während der Operation „Schutzfels“ abgebrochen wurden, weil sich Zivilisten in der Nähe des Ziels befanden. (IDF/YouTube)  
+> 
 
   
-  <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/yE7ykidY7FA"" width=""420""></iframe>  
+  https://youtu.be/OtL5QitoSC0
+
+  
    
 
 
-> > > > > > > Die israelische Luftwaffe verschiebt Luftangriffe auf Gaza, nachdem Zivilisten am Zielort identifiziert werden. (IDF/YouTube)   
-> > > > > > > 
+> Die israelische Luftwaffe bricht am 10. Juli 2014 einen Luftangriff auf Gaza ab, nachdem Kinder in der Nähe des Ziels gesehen werden. (IDF/YouTube)  
+> 
+
+  
+  https://youtu.be/yE7ykidY7FA
+
+  
+   
+
+
+> Die israelische Luftwaffe verschiebt Luftangriffe auf Gaza, nachdem Zivilisten am Zielort identifiziert werden. (IDF/YouTube)   
+> 
 
 
    
-*** Verwendung von Präzisionsmunition***
+** Verwendung von Präzisionsmunition**
 
 Es ist bekannt, dass die IDF bei ihren Luftangriffen auf den Gazastreifen vor allem, wenn nicht gar ausschließlich auf Präzisionsmunition zurückgreifen. Die Anwendung dieser Munition ermöglicht außerordentlich akkurate Treffer gegnerischer Ziele und veringert die Möglichkeit von Kollateralschäden drastisch.(19) So ist es den IDF gelungen, einzelne Zimmer und Stockwerke von Gebäuden unter Beschuss zu nehmen, während der Rest des Gebäudes mehr oder weniger unversehrt blieb. Man muss bedenken, dass diese Art von Munition erheblich teurer ist als ihre weniger präzisen Alternativen.(20) Viele Ziele hätten auch mit „weniger intelligenten“ Waffen ausgeschaltet werden können, die weit größere Zerstörungen und Kollateralschäden bedingt hätten. Die hohen finanziellen Aufwände, die Israel nicht scheut, um „intelligente“ Waffen zu erwerben und einzusetzen sind ein deutliches Zeichen, wie wichtig es dem Land ist, den Schaden der gegnerischen Zivilibevölkerung und ziviler Objekte zu minimieren.
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/mBkTmfr4oHw"" width=""420""></iframe>   
-> > > > > > > Flug eine IDF-Raketen bei einem Präzisionsangriff auf ein Hamas-Ziel in Gaza vom 12. Juli 2014. (IDF/YouTube)  
-> > > > > > > 
+ https://youtu.be/mBkTmfr4oHw
+
+   
+> Flug eine IDF-Raketen bei einem Präzisionsangriff auf ein Hamas-Ziel in Gaza vom 12. Juli 2014. (IDF/YouTube)  
+> 
 
    
 
 
 
-***Timing der Angriffe***  
+**Timing der Angriffe**  
  
 
     
 Die IDF haben gezeigt, wie wichtig es ist, die Angriffe zeitlich so durchzuführen, dass das Risiko der Schädigung von Zivilisten minimiert wird. So wurden Schulen und Bürogebäude, die militärischen Zwecken dienten, in der Regel nur nachts angegriffen, wenn sich niemand in dem Gebäude befand. Videoaufnahmen von sich bewegenden Fahrzeugen zeigen, dass sich bemüht wurde, mit dem Angriff solange zu warten, bis sich das Fahrzeug von Zivilisten entfernt hatte, und erst dann anzugreifen.(21) 
 
- ***Warnung im Voraus***
+ **Warnung im Voraus**
 
 Das Element der Überraschung wird in der Regel als wesentlich für einen militärischen Erfolg verstanden. Doch Israel verzichtet routinemäßig darauf und kündigt seine Absichten an. Indem die IDF den Bewohnern von Gebäuden oder Stadtteilen, die angegriffen werden sollen, im Voraus Warnungen schicken, gestatten sie es den Militanten zu entkommen und riskieren sogar die eigenen Truppen, indem sie dem Gegner die Chance zur Vorbereitung geben. Zudem wenden die IDF beträchtliche Ressourcen und Anstrengungen auf, um solche Warnungen zu gewährleisten.
 
 
 ![""]("/UserFiles/3DROPLETS2.jpg")  
    
-> > > Links: Original arabisches Flugblatt, das am 16. Juli 2014 mit spezifischen Evakuierungsaufforderungen für die Einwohner Shuja’iya und Zeitouns abgeworfen wurde. Die Pfeile geben die Fluchtrichtung nach Gaza-City an. Rechts: Englische Übersetzung zur Illustration. (IDF/Twitter)  
-> > > 
+> Links: Original arabisches Flugblatt, das am 16. Juli 2014 mit spezifischen Evakuierungsaufforderungen für die Einwohner Shuja’iya und Zeitouns abgeworfen wurde. Die Pfeile geben die Fluchtrichtung nach Gaza-City an. Rechts: Englische Übersetzung zur Illustration. (IDF/Twitter)  
+> 
 
 
     
@@ -286,7 +302,9 @@ Links: Original arabisches Flugblatt, das am 13. Juli 2014 mit spezifischen Evak
  
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/QU_DFZt5EZs"" width=""560""></iframe>  
+ https://youtu.be/QU_DFZt5EZs
+
+  
    
  Die IDF werfen Notfallevakuierungsbroschüren über Gaza ab, 29. Juli 2014.  
  (IDF/YouTube)  
@@ -296,28 +314,30 @@ Warnungen können in verschiedener Form geliefert werden. So gibt es zum einen a
 
 Ganz spezifische Warnungen werden auch in Form von Telefonanrufen oder SMS an Individuen verteilt. So werden z.B. die Einwohner eines Gebäudes, in dem sich Raketendepots befinden, mehrere Minuten vor dem Beschuss angerufen, um ihnen so Zeit zu geben, sich zu evakuieren.(23) Auch die Bewohner der umliegenden Gebäude werden telefonisch informiert, so dass sie nicht durch den Einschlag geschädigt werden oder durch sekundäre Explosionen, die bei der Zerstörung der Raketen auftreten können. Es werden sogar noch Folgeanrufe getätigt, um sicher zu gehen, dass die Leute das Gebiet verlassen haben. Die Evakuierung von Zivilisten werden durch Überwachungsgeräte aus der Luft verifiziert.
 
-*** „Aufs Dach klopfen“***
+** „Aufs Dach klopfen“**
 
 Im Gazastreifen ist es jedoch bisweilen üblich, dass die Warnungen der IDF ignoriert werden, oder sich Leute sogar absichtlich in die Nähe oder gar auf das Dach von anvisierten Gebäuden begeben, sobald Warnungen ausgegeben wurden. Dies ist Teil einer weit verbreiteten und von der Hamas und dem Islamischen Dschihad offen erklärten Strategie, die Zivilbevölkerung als menschliche Schutzschilde einzusetzen.(24)
 
 Für diese Fälle haben die IDF eine Lösung entwickelt, die als „aufs Dach klopfen“ bezeichnet wird. Dazu gehört, dass man die Bewohner eines Gebäudes zuvor auf mehrfache Weise warnt. Wenn die üblichen Warnungen ignoriert werden, wird ein nicht-explosives Geschoss auf eine Ecke des Daches abgefeuert. Der Knall ist laut genug, um die „menschlichen Schutzschilde“ davon zu überzeugen, dass es besser wäre, das Gebäude zu verlassen, und hält doch das Risiko ziviler Opfer äußerst niedrig. Wenn nötig, wird dies wiederholt. Sobald die IDF geklärt haben, dass das Ziel evakuiert wurde, kommt die echte Munition zu Einsatz und es wird zerstört.(25)
 
 
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/VTArVIHDelg"" width=""420""></iframe>  
-> > > > > Nachdem die IDF einen Warnschuss auf ein Haus in Gaza abgeben, evakuieren es die Bewohner, doch die Nachbarn strömen aufs Dach, um einen IDF-Luftangriff zu verhindern. 9. Juli 2014. (IDF/YouTube)  
-> > > > > 
+ https://youtu.be/VTArVIHDelg
+
+  
+> Nachdem die IDF einen Warnschuss auf ein Haus in Gaza abgeben, evakuieren es die Bewohner, doch die Nachbarn strömen aufs Dach, um einen IDF-Luftangriff zu verhindern. 9. Juli 2014. (IDF/YouTube)  
+> 
 
 
    
- ***Digitale Karten***
+ **Digitale Karten**
 
 Heikle Ziele wie zivile Schutzeinrichtungen, UN-Gebäude, Krankenhäuser, Moscheen, Schulen, Kindergärten etc. werden auf den digitalen Karten der IDF immer markiert. Die Karten werden in Echtzeit auf den neuesten Stand gebracht.(26)
 
-***Training und Simulationen***
+**Training und Simulationen**
 
 Die IDF verfügen über eine der größen und fortschrittlichsten Trainingseinrichtungen für die Simulation des städtischen Häuserkampfes. Hier können IDF-Soldaten lernen, wie man militärische Operationen in komplexen, mit Zivilisten bevölkerten Umgebungen durchführt. Soldaten aus der ganzen Welt trainieren in dieser berühmten Einrichtung.(27)
 
-***Offiziere für zivile Angelegenheiten***
+**Offiziere für zivile Angelegenheiten**
 
 Während der Operation „Schutzrand“ gab es in jeder IDF-Einheit, die im Gazastreifen zum Einsatz kam, von der Battalionsgröße aufwärts, einen gesondert ausgebildeten Offizier für zivile Angelegenheiten (Civilian Affairs Officer – CAO), dessen Aufgabe es war, den Kommandeur der Einheit über alles die Zivilbevölkerung am Einsatzort Betreffende zu unterrichten. Dazu gehörte, den Kommandeur über heikle Orte in der Nähe wie zivile Schutzeinrichtungen, UN-Gebäude, Krankenhäuser, Moscheen, Schulen zu informieren und über den Aufenthaltsort von Zivilisten und ihre Situation aufzuklären. CAOs sprechen Arabisch, sind in der Lage, mit der lokalen Bevölkerung zu kommunizieren, ihre Bedürfnisse herauszufinden, bei Evakuierungen zu helfen sowie die Notfalldienste und humanitäre Hiflslieferungen mit den IDF vor Ort zu koordinieren.(28) Man muss sich darüber im Klaren sein, dass die Koordination von Notfalleinsatzwagen in einem Kampfgebiet eine äußerst komplizierte Aufgabe ist. Dies wird umso schwieriger, da Militante bisweilen Ambulanzen nutzen, um Kämpfer und Waffen zu transportieren.(29)
 
@@ -326,8 +346,8 @@ Während der Operation „Schutzrand“ gab es in jeder IDF-Einheit, die im Gaza
    
 
 
-> > >  ***Jeder IDF-Einheit, die im Gazastreifen zum Einsatz kommt, von der Battalionsgröße aufwärts, verfügt über einen gesondert ausgebildeten Offizier für zivile Angelegenheiten (Civilian Affairs Officer – CAO). CAOs sprechen Arabisch, sind in der Lage, mit der lokalen Bevölkerung zu kommunizieren, ihre Bedürfnisse herauszufinden, bei Evakuierungen zu helfen sowie die Notfalldienste und humanitäre Hiflslieferungen zu koordinieren.***   
-> > > 
+>  **Jeder IDF-Einheit, die im Gazastreifen zum Einsatz kommt, von der Battalionsgröße aufwärts, verfügt über einen gesondert ausgebildeten Offizier für zivile Angelegenheiten (Civilian Affairs Officer – CAO). CAOs sprechen Arabisch, sind in der Lage, mit der lokalen Bevölkerung zu kommunizieren, ihre Bedürfnisse herauszufinden, bei Evakuierungen zu helfen sowie die Notfalldienste und humanitäre Hiflslieferungen zu koordinieren.**   
+> 
 
    
 
@@ -346,43 +366,43 @@ In Zeiten relativer Ruhe wie auch während Feindseligkeit überwacht die CLA die
 
 Während der gesamten Operation „Schutzrand“ gab es intensive und weitreichende humanitäre Anstrengungen von Seiten Israels, um das Leiden und die Entbehrungen der Zivilisten des Gazastreifens zu lindern.(31) Zu diesen Anstrengungen gehörten:
 
-*** Humanitäre Lieferungen ***
+** Humanitäre Lieferungen **
 
 Insgesamt überquerten 5,779 Lastkraftwagen mit humanitären Lieferungen den Grenzübergang Kerem Shalom von Israel nach Gaza. Geliefert wurden u.a. 997 Tonnen Medikamente und medizinisches Material. Der Grenzübergang wurde offen gehalten und von israelischer Seite operiert, auch wenn er oft von Gaza aus unter Beschuss genommen wurde und ein Terrortunnel in der Nähe explodierte.
 
 
 ![""]("/UserFiles/514510594347_7b42327f25_o.jpg")  
    
-> > > > > > Die IDF bereiten am Grenzübergang Kerem Shalom den Transport von medizinischen Gütern nach Gaza vor, 19. Juli 2014.(IDF/Flickr)  
-> > > > > > 
+> Die IDF bereiten am Grenzübergang Kerem Shalom den Transport von medizinischen Gütern nach Gaza vor, 19. Juli 2014.(IDF/Flickr)  
+> 
 
 
     
- ***Elektrizität- und Treibstofflieferung***
+ **Elektrizität- und Treibstofflieferung**
 
 Israel setzte während der ganzen Operation seine Lieferungen von Elektrizität und Treibstoff an den Gazastreifen fort. Normalerweise gilt es als absurd, dem Gegner während eines bewaffneten Konfliktes Strom und Treibstoff zukommen zu lassen, ganz besonders wenn diese Dinge wesentlich für die Kriegführung des Gegners sind.
 
-***Reparatur der Infrastruktur***
+**Reparatur der Infrastruktur**
 
 Insgesamt wurde 86 Repararturen der Infrastruktur während der Operation durchgeführt: 55 Reparaturen des Stromnetzes, 18 Reparaturen der Wasserversorgung, 6 Reparaturen der Kanalisation und 7 Reparaturen des Kommunikationsnetzes.
 
-***Medizinische Evakuierung***
+**Medizinische Evakuierung**
 
 2,630 medizinische Transporte fanden zwischen Gaza und Israel über den Übergang Erez statt. Erez wurde mehrfach beschossen, wobei es mehrere Opfer gab. U.a. kam ein israelischer Zivilist ums Leben.
 
 
 ![""]("/UserFiles/614709370432_2b14d0f3ec_o-1-1024x683.jpg")  
    
-> > > > > IDF-Offiziere eskortieren eine verletzte palästinensische Frau zur Versorgung im IDF-Feldkrankenhaus auf der israelischen Seite des Übergangs Erez, 21. Juli 2014.  
-> > > > > 
+> IDF-Offiziere eskortieren eine verletzte palästinensische Frau zur Versorgung im IDF-Feldkrankenhaus auf der israelischen Seite des Übergangs Erez, 21. Juli 2014.  
+> 
 
 
     
-*** Feldkrankenhaus***
+** Feldkrankenhaus**
 
 Ein Feldlazarett der IDF wurde am Erez-Übergang eingerichtet, um kranke und verwundete Zivilisten aus dem Gazastreifen zu behandeln.(32)
 
-***Humanitäre Feuerpausen***
+**Humanitäre Feuerpausen**
 
 Während der Operation „Schutzrand“ stimmte Israel verschiedenen humanitären Feuerpausen zu und setzte sie um, die aber allesamt von der Hamas gebrochen wurden. Die IDF unterbrachen die Operationen mehrere Male unilateral aus humanitären Gründen.(33)
 

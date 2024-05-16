@@ -70,7 +70,7 @@ Anthony Cordesman, Analyst für nationale Sicherheitsfragen des Center for Strat
 
 
 
-**\* \* \***
+---
 
 
 

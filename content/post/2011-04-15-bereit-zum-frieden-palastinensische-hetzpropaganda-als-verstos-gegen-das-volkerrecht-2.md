@@ -388,7 +388,7 @@ Doch irgendwann muss es anfangen. Nach dem Terrorangriff auf die Stadt Itamar un
 
  
 
-**\* \* \***
+---
 
 
 

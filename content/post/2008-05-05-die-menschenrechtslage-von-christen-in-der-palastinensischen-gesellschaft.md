@@ -133,9 +133,9 @@ Der politische Konflikt darf nicht von der internationalen Gemeinschaft benutzt 
 
  
 
-***Justus Reid Weiner***
+**Justus Reid Weiner**
 
-*******promovierte zum Doktor iuris an der University of California, Berkeley, und ist festangestellter Rechtswissenschaftler des Jerusalem Center for Public Affairs. Seine wissenschaftlichen Publikationen erschienen in führenden Rechtsjournalen und intellektuellen Magazinen. Der ehemalige Rechtspezialist für Menschenrechte des israelischen Justizministeriums unterrichtet internationales Recht und Geschäftsrecht an der Hebrew University in Jerusalem und hält international Vorträge.*
+**promovierte zum Doktor iuris an der University of California, Berkeley, und ist festangestellter Rechtswissenschaftler des Jerusalem Center for Public Affairs. Seine wissenschaftlichen Publikationen erschienen in führenden Rechtsjournalen und intellektuellen Magazinen. Der ehemalige Rechtspezialist für Menschenrechte des israelischen Justizministeriums unterrichtet internationales Recht und Geschäftsrecht an der Hebrew University in Jerusalem und hält international Vorträge.*
 
 
 

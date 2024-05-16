@@ -89,7 +89,7 @@ Hamas wird sehr wahrscheinlich fordern, dass, entsprechend palästinensischem Re
 
  
 
-**Wesentliche Schlussfolgerungen über die *tahdiya***
+**Wesentliche Schlussfolgerungen über die *tahdiya**
 
  
 

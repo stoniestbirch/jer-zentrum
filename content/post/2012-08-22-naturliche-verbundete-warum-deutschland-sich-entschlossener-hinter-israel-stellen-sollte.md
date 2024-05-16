@@ -44,7 +44,7 @@ url: /naturliche-verbundete-warum-deutschland-sich-entschlossener-hinter-israel-
 ---
 
 
-**Natürliche **Verbündete: Warum Deutschland sich entschlossener hinter Israel stellen sollte****
+**Natürliche **Verbündete: Warum Deutschland sich entschlossener hinter Israel stellen sollte**
 
 
 

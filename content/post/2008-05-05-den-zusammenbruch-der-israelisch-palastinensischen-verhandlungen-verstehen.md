@@ -105,17 +105,17 @@ Das Ziel dieser Aktivitäten ist, die gegenwärtige und die heranwachsende Gener
 
 Für die PA besteht das entscheidende historische Handeln hin zur Ausrottung des Zionismus aus den folgenden Teilbereichen: 
 
-***Schließe die nationalen und islamischen Kräfte zusammen*** 
+**Schließe die nationalen und islamischen Kräfte zusammen** 
 
 Festige die nationale Einheit im palästinensischen Lager, gegründet auf der Übereinstimmung mit wesentlichen palästinensischen Prinzipien. Eine der wichtigsten Errungenschaften im „Krieg um Unabhängigkeit und Rückkehr“ war (und ist es noch) der Aufbau einer Organisation für die Koordination der politischen Bewegungen innerhalb der palästinensischen politischen Bühne, die „die nationalen und islamischen Kräfte“ genannt werden. Dieses Gremium hat die Rolle übernommen (und wurde dazu von der PA ermächtigt), die Intifada zu führen. Es bestimmt die Politik bezüglich der Anwendung von Terror und besteht als ein Machtzentrum, das selbst die PLO in den Schatten stellt (die keine islamistischen Körperschaften repräsentiert) was die Festlegung der politischen Ziele der Intifada und der „Verhandlungs-Kampagne“ angeht<sup>27</sup> 
 
-***Die demographische Zeitbombe*** 
+**Die demographische Zeitbombe** 
 
 Kippe das demographische Gleichgewicht in Palästina durch die Rückkehr von Flüchtlingen, mit dem Ziel, Verhältnisse für den binationalen Staat zu schaffen. Die palästinensische Doktrin – die den Kampf bis zur Erreichung des Rechts auf Rückkehr und das Offenhalten der „Tore der Konfrontation“ bis zur Erreichung der „historischen Lösung“ legitimiert – lässt die Tür offen für fortgesetzte Versuche, die Fundamente Israels auch nach der Erreichung einer „politischen Lösung“ zu untergraben. 
 
 Einige Monate vor seinem Tod und im Namen Arafats sprechend, drückte Feisal Husseini,<sup>28</sup> ein ranghoher Fatah-Führer, die palästinensische Zuversicht für den schließlichen Triumph über den Zionismus aus, zumindest über den demographischen Faktor. Mit seinen Worten: „Ihre (d.h. der Israelis) Möglichkeiten sind stärker eingeschränkt als unsere. Wir haben jetzt etwas weniger als vier Millionen Palästinenser zwischen dem Fluss (Jordan) und dem Meer (Mittelmeer), im Vergleich zu ungefähr vier Million Nicht-Palästinensern.<sup>29</sup> Bis zum Jahr 2010 werden die Zahlen ausgeglichen sein. Bis zum Jahr 2045 werden die Palästinenser 75 Prozent aller Bewohner dieses Landes ausmachen. Wenn wir diesen Punkt erreichen, werden wir den Israelis und dem Staat Israel ein Angebot machen und wenn sie nicht zustimmen, verlieren sie.“<sup>30</sup> 
 
-***Bündnis mit israelischen Palästinensern*** 
+**Bündnis mit israelischen Palästinensern** 
 
 Ermutige das Bündnis (politisch, gesellschaftlich und wirtschaftlich) zwischen den beiden Bestandteilen des palästinensischen Volkes in Palästina und unterstütze die separatistischen Tendenzen unter den israelischen Palästinensern, um die Fundamente des Staates von innen heraus zu schwächen. Betrachte deshalb die PA-Initiativen der israelischen palästinensischen Führung mit Wohlwollen; sie bemüht sich, den jüdischen Charakter Israels auszulöschen und ihn zu „einem Staat für alle seine Bürger“ zu erklären. 
 

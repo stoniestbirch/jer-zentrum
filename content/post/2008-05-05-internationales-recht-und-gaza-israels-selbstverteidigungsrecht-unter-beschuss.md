@@ -128,7 +128,7 @@ Zuletzt muss im Vorfeld folgendes betont werden. Der legale Status des Gaza-Stre
 
  
 
-**1. Die Legalität israelischer Militäraktionen gemäß dem *Ius ad Bellum***
+**1. Die Legalität israelischer Militäraktionen gemäß dem *Ius ad Bellum**
 
  
 

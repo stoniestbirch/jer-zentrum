@@ -24,7 +24,7 @@ url: /der-mythos-illegaler-siedlungen/
 
 erschienen in 
 
-***Commentary***
+**Commentary**
 
 Dezember 2009
 

@@ -17,9 +17,9 @@ url: /die-wahrheit-uber-den-gaza-krieg-von-2014/
 ---
 
 
-**![""]("/UserFiles/BannerGazaOption1b.jpg")Die Wahrheit über den Gaza-Krieg von 2014
+![""]("/UserFiles/BannerGazaOption1b.jpg")Die Wahrheit über den Gaza-Krieg von 2014
 
-****Dore Gold**
+**Dore Gold**
 
 
 
@@ -28,7 +28,9 @@ Der Gaza-Krieg von 2014 begann mit den fortgesetzten Aggressionen der Hamas, die
 
 
    
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/EBOtBO2EFoM"" width=""420""></iframe> 
+ https://youtu.be/EBOtBO2EFoM
+
+ 
 
 Hamas-Chef Ismail Haniyeh verkündet am 29. August 2014, dass die Hamas-Version der Ereignisse sich durchgesetzt habe.  
 (Al Jazeera)
@@ -39,7 +41,7 @@ Das palästinensische Narrativ setzte sich nicht nur in den Massenmedien fest, s
 
 ---
 
-> > > ***Die wahren Hintergründe des Krieges wurden so von einer hochgradig im Sinne der Hamas verfassten Darstellung überlagert und geschickt an internationale Meinungsmacher lanciert.***
+> **Die wahren Hintergründe des Krieges wurden so von einer hochgradig im Sinne der Hamas verfassten Darstellung überlagert und geschickt an internationale Meinungsmacher lanciert.**
 
   
 
@@ -58,7 +60,9 @@ Gebetsmühlenartig wurde wiederholt, dass die Bedrohung Israels durch den Gazast
 als „nutzloses Feuerwerk“ abgetan.(2) Doch was wäre gewesen, hätte es nicht das Raketenabwehrsystem „Eiserne Kuppel“ gegeben oder wenn die Hamas ihr Tunnelnetzwerk in vollem Umfang ausgenutzt hätte? Diese Fragen wurden im internationalen Diskurs kaum gestellt.
 
 
-![""]("/UserFiles/1damaged-building.jpg")> > > > Dieses Wohnhaus in der zentralisraelischen Stadt Rishon LeZion wurde am 20. November 2014 von einer Rakete aus Gaza schwer beschädigt. Ohne „Eiserne Kuppel“ würden hunderte von israelischen Häusern ähnlich aussehen. (Miriam Alster/FLASH90)
+![""]("/UserFiles/1damaged-building.jpg")
+
+> Dieses Wohnhaus in der zentralisraelischen Stadt Rishon LeZion wurde am 20. November 2014 von einer Rakete aus Gaza schwer beschädigt. Ohne „Eiserne Kuppel“ würden hunderte von israelischen Häusern ähnlich aussehen. (Miriam Alster/FLASH90)
 
 
   
@@ -66,7 +70,9 @@ Das Tunnelsystem stellt eine völlig neue Dimension des Konfliktes dar, die in d
 
 
    
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/5T6C_iBAC8M"" width=""560""></iframe>CNNs Wolf Blitzer besichtigt einen Hamas-Tunnel, dessen Ausgang sich tief auf israelischem Gebiet befindet. (CNN/July 28, 2014)
+ https://youtu.be/5T6C_iBAC8M
+
+CNNs Wolf Blitzer besichtigt einen Hamas-Tunnel, dessen Ausgang sich tief auf israelischem Gebiet befindet. (CNN/July 28, 2014)
 
 ![""]("/UserFiles/2gaza-men.jpg")
 
@@ -79,7 +85,7 @@ Schließlich wird die Gefahr für Israel auch aufgrund eines historischen Wandel
 
 ---
 
-> > > > ***Die Hamas wird vom Iran unterstützt, der Türkei und dem globalen Netzwerk der Muslimbrüder, das durch das katarische Ölgeld ******finanziert wird.***
+> **Die Hamas wird vom Iran unterstützt, der Türkei und dem globalen Netzwerk der Muslimbrüder, das durch das katarische Ölgeld **finanziert wird.**
 
 
 
@@ -99,7 +105,7 @@ Diese Fragestellung erweist sich als entscheidend für die internationale Wahrne
   
 
 
-> > > ***Ist die Hamas nur eine kleine politische Bewegung, die allein gegen das mächtige Israel steht? Oder geht es nicht viel mehr – und richtiger – um die Hamas als Spitze eines islamistischen Eisbergs, der von regionalen Mächten unterstützt, Israel vernichten möchte und den Westen als Ganzes bedroht?***
+> **Ist die Hamas nur eine kleine politische Bewegung, die allein gegen das mächtige Israel steht? Oder geht es nicht viel mehr – und richtiger – um die Hamas als Spitze eines islamistischen Eisbergs, der von regionalen Mächten unterstützt, Israel vernichten möchte und den Westen als Ganzes bedroht?**
 
   
 
@@ -150,7 +156,7 @@ Und was wäre, wenn Israel umfangreich in Luftschutzeinrichtungen für Ziviliste
 
 ---
 
-> > > > > ***Ein ziviler Wohnsitz, in dem die Hamas vorsätzlich ihre lokal produzierten wie vom Iran gelieferten Raketen deponiert, wird zu einem legitimen militärischen Angriffsziel.***
+> **Ein ziviler Wohnsitz, in dem die Hamas vorsätzlich ihre lokal produzierten wie vom Iran gelieferten Raketen deponiert, wird zu einem legitimen militärischen Angriffsziel.**
 
   
 
@@ -173,7 +179,7 @@ Während Israel also das Recht hat, zivile Objekt solcher Art anzugreifen, war d
   
 
 
-> > > **Die IDF versuchten alles, auch über das völkerrechtlich Geforderte hinaus und etablierten ein ganzes Frühwarnsystem, um die Zivilbevölkerung des Gazastreifens zu kontaktieren.**
+> **Die IDF versuchten alles, auch über das völkerrechtlich Geforderte hinaus und etablierten ein ganzes Frühwarnsystem, um die Zivilbevölkerung des Gazastreifens zu kontaktieren.**
 
   
 
@@ -217,7 +223,7 @@ Die israelische Seeblockade Gazas ist notwendig, denn ohne sie hätten iranische
 
 ---
 
-> > >  ***Seeblockaden sind ein legitimes Mittel der Selbstverteidigung. Im israelischen Fall ließen die IDF jedoch sogar während des Krieges noch 6,000 LKWs mit humanitärer Hilfe in den Gazastreifen.***
+>  **Seeblockaden sind ein legitimes Mittel der Selbstverteidigung. Im israelischen Fall ließen die IDF jedoch sogar während des Krieges noch 6,000 LKWs mit humanitärer Hilfe in den Gazastreifen.**
 
   
 
@@ -230,8 +236,10 @@ Die israelische Seeblockade Gazas ist notwendig, denn ohne sie hätten iranische
 
     
    
- <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/KhsjpTWsMh4"" width=""560""></iframe>
-> > > > > Trotz des unablässigen Raketenhagels der Hamas auf Israel während der Operation „Schutzrand“, sorgten die IDF dafür, dass lebenswichtige humanitäre Hilfe die Palästinenser des Gazastreifens erreichte. In diesem Video vom 3. August 2014 erklärt ein IDF-Offizier, wie die Güter über den Grenzübergang Kerem Shalom nach Gaza gelangen. (IDF/YouTube) 
+ https://youtu.be/KhsjpTWsMh4
+
+
+> Trotz des unablässigen Raketenhagels der Hamas auf Israel während der Operation „Schutzrand“, sorgten die IDF dafür, dass lebenswichtige humanitäre Hilfe die Palästinenser des Gazastreifens erreichte. In diesem Video vom 3. August 2014 erklärt ein IDF-Offizier, wie die Güter über den Grenzübergang Kerem Shalom nach Gaza gelangen. (IDF/YouTube) 
 
 
 

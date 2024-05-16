@@ -65,7 +65,7 @@ Tatsächlich wurde aber dieses Thema bereits in der offiziellen Stellungnahme Is
 Es war der aktuellen israelischen Friedensunterhändlerin Justizministerin Tzipi Livni – der Partnerin vom Kerry und Abbas in den Verhandlungen – zu verdanken, die diese Stellungnahme verfasste. US-Außenminister Kerry wäre also beraten, zunächst Frau Ministerinn Livni zu konsultieren, bevor er sich zu weiteren Behauptungen in dieser Frage hinreißen lässt.
 
 
-**\* \* \***
+---
   
 1\. http://www.mfa.gov.il/MFA/ForeignPolicy/Peace/Guide/Pages/UN%20General%20Assembly%20Resolution% 20181.aspx  
 2\. http://www.israelhayom.com/site/newsletter\_opinion.php?id=7715  

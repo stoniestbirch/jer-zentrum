@@ -25,7 +25,9 @@ Hamas, Gaza und vorschnelle Urteile
 
 Botschafter Dore Gold
 
-<iframe allow=""autoplay;" allowfullscreen="""" encrypted-media="" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/eLCNOq5KD0c"" width=""560""></iframe>
+https://youtu.be/eLCNOq5KD0c
+
+
 
 
 

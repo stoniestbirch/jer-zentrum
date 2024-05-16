@@ -41,7 +41,7 @@ url: /die-verantwortlichkeit-der-hamas-nach-dem-humanitaren-volkerrecht/
 ---
 
 
-**Die Verantwortlichkeit der Hamas **nach dem humanitären Völkerrecht****
+**Die Verantwortlichkeit der Hamas **nach dem humanitären Völkerrecht**
 
 Hintergrundpapier für die JCPA-Konferenz im Juni 2009
 

@@ -32,7 +32,7 @@ url: /zehn-jahre-seit-oslo-die-volkskrieg-strategie-der-plo-und-israels-unangeme
 
 
 
-****
+**
  
 
 

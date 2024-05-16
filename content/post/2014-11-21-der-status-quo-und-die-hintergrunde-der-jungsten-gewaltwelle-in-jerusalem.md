@@ -217,7 +217,7 @@ Der alte Status Quo auf dem Tempelberg existiert nicht mehr. Die Situation hat s
 Gleichzeitig wurde aber eines der Hauptelemente des alten Status Quo – das Verbot jüdischen Gebets auf dem Tempelberg – mit aller Kraft aufrechterhalten.
 
 
-**\* \* \***
+---
 
 
 1 Für eine Zusammenfassung der Ereignisse der "Jerusalem Intifada" siehe z.B.: Freitagsausgaben der Yediot Yerushalayim vom Juli bis November 2014, die Berichterstattung in Ha’aretz sowie eine Reihe von Überblicksartikeln zur Systematik der Gewalt in Jerusalem, verfasst vom Auto in der Israel Ha’Shavua Beilage der Zeitung Israel HaYom vom 18. Juli, 12. September, 19. September, 24. Oktober und 7. November 2014.

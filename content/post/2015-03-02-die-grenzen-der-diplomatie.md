@@ -31,7 +31,9 @@ Auch der diplomatische Hintergrund des Krieges erwies sich als neuartig, verglei
 Im Gegensatz dazu putschte die Hamas 2007 im Gazastreifen militärisch gegen die Autonomiebehörde. Bei dem entstandenen Hamas-Territorium handelt es sich nicht um ein anerkanntes staatliches Gebilde; es operiert außerhalb des Rahmens der internationalen Gemeinschaft. Der Westen pflegt keinerlei offene Beziehungen zu der Hamas. Ganz im Gegenteil: die Hamas steht in den Vereinigten Staaten, Kanada, der Europäischen Union und anderen Nationen auf der Terrorliste.
 
 
-![""]("/UserFiles/1AP539110562708_web-1024x656.jpg")> > > > US-Außenminister John Kerry telefoniert in Kairo mit dem israelische Premier Benjamin Netanyahu am 25. Juli 2014 über die Bedingungen einer Feuerpause zwischen Israel und der Hamas in Gaza. (AP/Charles Dharapak) 
+![""]("/UserFiles/1AP539110562708_web-1024x656.jpg")
+
+> US-Außenminister John Kerry telefoniert in Kairo mit dem israelische Premier Benjamin Netanyahu am 25. Juli 2014 über die Bedingungen einer Feuerpause zwischen Israel und der Hamas in Gaza. (AP/Charles Dharapak) 
 
 
 
@@ -42,7 +44,7 @@ Während Völkerrechtler beobachten, wie nichtstaatliche Akteure zunehmend vom H
 
 ---
 
-> >  ***Diplomatie konnte so nur eine eingeschränkte Rolle beim Ausbruch des jüngsten Gaza-Kriegs spielen. Die Hamas sieht sich nicht an die Verträge gebunden, die die PLO unterzeichnet hat. Stattdessen lehnt sie internationalen Forderungen vehement ab, die Organisation solle diese Vereinbarungen anerkennen.***
+> >  **Diplomatie konnte so nur eine eingeschränkte Rolle beim Ausbruch des jüngsten Gaza-Kriegs spielen. Die Hamas sieht sich nicht an die Verträge gebunden, die die PLO unterzeichnet hat. Stattdessen lehnt sie internationalen Forderungen vehement ab, die Organisation solle diese Vereinbarungen anerkennen.**
 
 ---
 
@@ -78,7 +80,7 @@ Gerade die UNRWA wahrt inzwischen auch gar nicht mehr den Anschein von Neutralit
 
 ---
 
-> > ***Während die Operation „Schutzrand“ lief, spielte UNRWA eine Rolle, die zumindest anscheinend die einer direkten Unterstützerin der Hamas war. In drei verschiedenen Fällen wurden palästinensische Raketen in UNRWA-Schulen entdeckt. ******Die Hamas feuerte zudem ihre Raketen und Mörsergranaten in unmittelbarer Nähe von UN-Gebäuden ab.***
+> > **Während die Operation „Schutzrand“ lief, spielte UNRWA eine Rolle, die zumindest anscheinend die einer direkten Unterstützerin der Hamas war. In drei verschiedenen Fällen wurden palästinensische Raketen in UNRWA-Schulen entdeckt. **Die Hamas feuerte zudem ihre Raketen und Mörsergranaten in unmittelbarer Nähe von UN-Gebäuden ab.**
 
 
 
@@ -92,7 +94,9 @@ Ein weiterer Vorfall ereignete sich in der UNRWA-Schule bei Beit Hanoun im nörd
 **Die UN-Tatsachenfeststellungskommissionen**
 
 
-**![""]("/UserFiles/3AP090707010493-2-web-1024x717.jpg")**> > > > Richter Richard Goldstone führte den Vorsitz der in Misskredit geratenen UN-Tatsachenfeststellungsmission in Folge der Operation „Gegossenes Blei“ vom Januar 2009. Er zog später selber die zentrale Aussage seines Berichts zurück, in der Israel vorgeworfen wurde, vorsätzlich Zivilisten anzugreifen.(AP Photo/Keystone/Martial Trezzini) 
+**![""]("/UserFiles/3AP090707010493-2-web-1024x717.jpg")**
+
+> Richter Richard Goldstone führte den Vorsitz der in Misskredit geratenen UN-Tatsachenfeststellungsmission in Folge der Operation „Gegossenes Blei“ vom Januar 2009. Er zog später selber die zentrale Aussage seines Berichts zurück, in der Israel vorgeworfen wurde, vorsätzlich Zivilisten anzugreifen.(AP Photo/Keystone/Martial Trezzini) 
 
 
   
@@ -109,7 +113,9 @@ Eine weitere offensichtliche Schwäche der UN-Untersuchungskommissionen des Mens
 **Katar, Türkei und Iran: Dritte Parteien und der problematische Weg zum Waffenstillstand**
 
 
-![""]("/UserFiles/4Dore2_TurkeyHamas-1024x673.jpg")> > > > Der türkische Premier Recep Tayyip Erdogan (links) begrüßt den Hamas-Führer Khaled Mashal (rechts) bei einem Treffen in Ankara vom 16. März 2012. (AFP Photo/Yasin Bülbül) 
+![""]("/UserFiles/4Dore2_TurkeyHamas-1024x673.jpg")
+
+> Der türkische Premier Recep Tayyip Erdogan (links) begrüßt den Hamas-Führer Khaled Mashal (rechts) bei einem Treffen in Ankara vom 16. März 2012. (AFP Photo/Yasin Bülbül) 
 
 
   
@@ -119,7 +125,7 @@ Während der Operation „Schutzrand“ spielte Ägypten auch immer noch eine ko
 
 ---
 
-> > ***Ägyptens schlug einen bedingungslosen Waffenstillstand für den 15. Juli 2014 vor. Während Israel den Vorschlag akzeptierte, lehnte die Hamas ihn ab und ist damit verantwortlich für ******90 Prozent der palästinensischen Opfer des Krieges.***
+> > **Ägyptens schlug einen bedingungslosen Waffenstillstand für den 15. Juli 2014 vor. Während Israel den Vorschlag akzeptierte, lehnte die Hamas ihn ab und ist damit verantwortlich für **90 Prozent der palästinensischen Opfer des Krieges.**
 
   
 
@@ -167,7 +173,7 @@ Auch die Türkei spielte keinerlei konstruktive Rolle in dem Konflikt, trotz ihr
 
 
 
-**\* \* \***
+---
 1 Adnan Abu Amer, “Hamas Seeks to Retain Saudi Ties Despite Brotherhood Ban,” Al Monitor, 18. Märch 2014, http://www.al-monitor.com/pulse/originals/2014/03/hamas-saudi-muslim-brotherhood-qatar-terror.html  
 2 Ido Rosenzweig and Yuval Shany, “Hamas Response to the Goldstone Report,” Israel Democracy Institute, 4. 4. Februar 2010, http://en.idi.org.il/analysis/terrorism-and-democracy/issue-no-16/hamas-response-to-the-goldstone-report/  
 3 In 1994, it had initially been reported that the Saudi grand mufti, Sheikh Abdul Aziz bin Baz, would provide a limited justification for the Israeli peace process, but he had subsequently clarified that any hudna (cessation of hostilities) was only temporary: “The peace between the leader of the Muslims in Palestine and the Jews does not mean that the Jews will permanently own the lands which they now possess. Rather it only means that they would be in possession of it for a period of time until either the truce comes to an end, or until the Muslims become strong enough to force them out of Muslim lands – in the case of an unrestricted peace.”Dore Gold, Hatred’s Kingdom: How Saudi Arabia Supports the New Global Terrorism (Washington, DC: Regnery Publishing, Inc., 2003) pp 195-196.   

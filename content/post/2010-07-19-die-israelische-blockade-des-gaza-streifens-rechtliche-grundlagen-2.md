@@ -172,7 +172,7 @@ Meiner Meinung zufolge kann Israel nicht als Besatzer betrachtet werden, da Isra
 
  
 
-**\* \* \***
+---
 
  
 

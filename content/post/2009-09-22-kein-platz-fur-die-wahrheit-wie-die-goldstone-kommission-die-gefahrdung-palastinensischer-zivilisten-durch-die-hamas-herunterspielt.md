@@ -329,7 +329,7 @@ Wie gezeigt wurde, erwachsen aus den auf Arabisch frei zugänglichen palästinen
 
 
 
-**\* \* \***
+---
 
  
 

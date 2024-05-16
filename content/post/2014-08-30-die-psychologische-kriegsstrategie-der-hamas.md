@@ -51,7 +51,7 @@ Die „letzten“ Raketen vor einem Waffenstillstandsabkommen (18) verraten das 
 Doch auch jener Teil der internationalen Gemeinschaft trägt Verantwortung, der durch seine „Helferrolle“ dazu beiträgt, dass die Hamas auf diese gefährliche Strategie setzt und nun mehr unter humanitären Vorwänden wieder aufrüstet. Denn auch in Zukunft wird sie so Israels Bevölkerung unter Beschuss nehmen und die nächste Runde an Kämpfen mit den unvermeidlichen zivilen Opfern und all der Zerstörung in Kauf nehmen.
 
 
-**\* \* \***
+---
   
 1 http://www.sciencedirect.com/science/article/pii/S1077722908000837
 

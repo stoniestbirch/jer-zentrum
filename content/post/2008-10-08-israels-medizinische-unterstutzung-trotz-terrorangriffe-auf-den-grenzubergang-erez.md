@@ -69,7 +69,7 @@ Zahl der Genehmigungen
 Verhältnis in Prozent
  |
 | 
-***2006*** 
+**2006** 
  | 
  
  | 
@@ -195,7 +195,7 @@ Dezember
 **90.2%** 
  |
 | 
-***2007*** 
+**2007** 
  | 
  
  | 

@@ -409,7 +409,7 @@ Denn Jordanien verfolgt die palästinensischen Entwicklungen sehr genau. Fatah u
 
  
 
-**\* \* \***
+---
 
  
 

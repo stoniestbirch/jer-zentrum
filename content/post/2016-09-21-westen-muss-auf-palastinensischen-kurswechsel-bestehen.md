@@ -57,7 +57,9 @@ Diese Ideen werden täglich von der Palästinenserführung – der Fatah, der PL
 
 
 
-<iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/RIz0cyltKF8"" width=""560""></iframe>
+https://youtu.be/RIz0cyltKF8
+
+
 Handelt es sich bei der aktuellen Terrorwelle gegen Juden in Israel tatsächlich um zusammenhangslose Einzeltäter? 
 
 

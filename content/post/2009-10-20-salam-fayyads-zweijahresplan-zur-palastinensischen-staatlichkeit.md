@@ -219,7 +219,7 @@ Fayyads Strategie, amerikanische und internationale Unterstützung für seine ei
 
  
 
-**\* \* \***
+---
 
 
 

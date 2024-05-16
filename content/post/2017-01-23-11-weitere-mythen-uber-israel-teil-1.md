@@ -179,7 +179,7 @@ Bedauerlicherweise hat die Palästinenserführung Vorbedingungen formuliert, die
 
 Damit steht die Glaubwürdigkeit der Palästinenserführung als ernsthaft an Verhandlungen interessierter Partner jedoch zur Debatte.
 
-**\* \* \***
+---
 
   
 
