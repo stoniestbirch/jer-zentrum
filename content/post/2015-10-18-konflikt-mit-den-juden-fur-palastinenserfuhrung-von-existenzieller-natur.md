@@ -1,0 +1,44 @@
+---
+author: Yossi Kuperwasser
+categories:
+- Sicherheit
+date: "2015-10-18T14:11:00Z"
+excerpt: |-
+  Wieso kommt es ausgerechnet jetzt zu der neuen Serie von Terror? Einer der Gründe ist, dass die Palästinenser besorgt sind, man könne sie bei all den Entwicklungen im Nahen Osten übersehen. Ein weiterer ist sicher das Erstarken des radikalen Islam in der Region, auch unter den Palästinensern in den Gebieten und in Israel. Abbas und die arabischen Knesset-Mitglieder scheinen es im Unterschied zu vielen arabischen Israelis für nötig zu halten, aller Welt zu zeigen, dass sie den Konflikt mit Israel nicht weniger ernst nehmen als ihre Rivalen von der Hamas.
+
+  Obwohl es also scheint, als würden die meisten Terroristen sich spontan zu Angriffen entscheiden, haben die palästinensischen Führer – allen voran Abbas und die Hamas –beträchtlichen Einfluss auf das Geschehen. Doch ebenso klar ist, dass die Hetze von Extremisten in Israel eine Rolle spielt.
+
+  Ein entschlossenes und hellsichtiges Reagieren im Kampf gegen die aktuelle Terrorwelle könnte recht schnell zur Beruhigung beitragen. Dazu gehören eine massive Aufstockung von Sicherheitskräften, eine gesteigerte Alarmbereitschaft und Aufmerksamkeit der Bevölkerung, eine Mobilisierung der Reserven sowie erhöhte Abschreckung. So kann man die Hetzer und Terroristen treffen, um sie im Vorfeld auszuschalten, und im Rahmen des Gesetzes auch die Familien mit zur Verantwortung ziehen.
+
+  Eine beschleunigte Fortsetzung der Siedlungsbaus und Terrorangriffe durch Juden als Vergeltung dürften dagegen die Wahrscheinlichkeit einer baldigen Beruhigung ebenso reduzieren und die Unterstützung, die Israel in Amerika erfährt, verringern. Je mehr der Palästinenserführung klar gemacht wird, dass Israel entschlossen ist, ihre aktuellen Pläne zu verhindern, umso wahrscheinlicher ist es, dass sie aus Angst vor Kontrollverlust bereit ist, die Situation selbst zu beruhigen. Langfristig ist es wahrscheinlich, dass die palästinensische Seite begreift, dass Terrorismus und unilaterale politische Manöver keinen Erfolg haben, worauf sie ihr fundamentalen Positionen zu revidieren bereit sein werden. Dann wird ein Abkommen vielleicht möglich sein. Bis dahin gilt es für Israel, im Konflikt einen kühlen Kopf zu bewahren.
+guid: http://jer-zentrum.org/?p=65
+id: 65
+title: Konflikt mit den Juden für Palästinenserführung von existenzieller Natur
+url: /konflikt-mit-den-juden-fur-palastinenserfuhrung-von-existenzieller-natur/
+---
+
+**Konflikt mit den Juden für Palästinenserführung von existenzieller Natur**
+
+Yossi Kuperwasser
+
+Die aktuelle Terrorwelle macht erneut deutlich, dass die palästinensische Seite den Konflikt mit den Juden als einen seinem Wesen nach religiösen, nationalistischen und existenziellen versteht. Der Terror brach aus, nachdem die Palästinenser gefordert hatten, dass Juden der Zugang zum Tempelberg untersagt, Moslems aber unbeschränkt gewährt werde.
+
+Dafür wurde eine Reihe von Gründen aufgeführt. Zunächst wurde behauptet, die Palästinenser seien die tatsächlichen Herren über den von Moslems Haram al-Sharif genannten Tempelberg, den sie als besetztes Gebiet bezeichnen. Desweiteren würde die Anwesenheit von Juden ihn verunreinigen und schließlich müsse man die Juden an ihrem teuflischen Vorhaben hindern, die Moscheen auf dem Berg zu zerstören und durch Orte jüdischen Gottesdienstes zu ersetzen.
+
+Die überwiegende Mehrzahl aller Palästinenser rechtfertigt entsprechend auch alle Mittel im Kampf um den Schutz des heiligen Berges. Angesichts einer Kosten-Nutzen-Rechnung bevorzugen dabei die meisten den sogenannten "Volkswiderstand", was zum Code-Wort geworden ist für alle Sorten Gewalt unterhalb des Gebrauchs von Schusswaffen – Messerangriffe, Steinwürfe, Brandsätze und Autoattacken.
+
+Die Hamas unterstützt dagegen sogar den Schusswaffengebrauch vom Gebiet der Palästinensischen Autonomiebehörde aus, da dies ihre eigene Herrschaft in Gaza nicht gefährdet. Die Führung der Autonomiebehörde wiederum glaubt, dass der Nutzen der Terrorangriffe vom möglichen politischen Flurschaden überwogen wird, sieht aber davon ab, sie zu verurteilen, da sie ihrer Meinung nach legitimer Widerstand seien. In diesem Kontext sind auch die widersprüchlichen Bemerkungen von Palästinenserpräsident Mahmoud Abbas im Hinblick auf die jüngste Terrorwelle zu verstehen. Einerseits ermutigt er zum "Widerstand des Volkes", wozu die Messerangriffe gehören, andererseits möchte er "heiße Anschläge" – d.h. den Gebrauch von Schusswaffen verhindern, da er davon ausgeht, dass sie seine Regierung und die palästinensischen Interessen gefährden würden.
+
+Die hohe Zahl an Messerangriffen ist das Ergebnis einer langjährigen Erziehung zum Krieg, die die Palästinenserführer – sowohl Abbas als auch Hamas – gefördert haben mit dem Ziel, einer jungen Generation die grundlegenden Prinzipien eines kollektiven palästinensischen Bewusstseins einzuimpfen, was so viel heißt wie: Es gibt keine jüdische Nation, da das Judentum allein ein Religion sei und Juden hätten auch keinen historischen Anspruch, Israel zu regieren, dass eigentlich Palästina sei. Daher gäbe es keine Rechtfertigung eines jüdischen Nationalstaates und schon gar nicht hier. Die Mission der Palästinenser als Opfer der Ungerechtigkeit, die aus der fortgesetzten Existenz des "Besatzungsstaates" erwachse, sei es, das unvermeidliche Verschwinden des jüdischen Staates durch Kampf und Opferbereitschaft zu beschleunigen, die im Herzen des palästinensischen Selbstverständnisses liegen.
+
+Den israelischen Palästinensern kommt dabei Abbas zufolge die Rolle zu, diese Ziele durch ihren Einfluss auf das politische System Israels voranzubringen, beständig am Land festzuhalten und ihrer Forderung, dass Israel ein Staat für alle Bürger werden müsse. Die Palästinenser in Israel sollten daher auf Terroranschläge verzichten, da es von diesen Zielen ablenke. Die Aufgabe der Autonomiebehörde in den Gebieten ist dagegen, diese Ziele dadurch zu erreichen, indem die Bedingungen für das Funktionieren der verschiedenen Behörden geschaffen werden.
+
+Der Begriff der "israelischen Nation" wurde von palästinensischer Seite geschaffen, um vor den Augen der Weltöffentlichkeit und der israelischen Linken als gemäßigt zu erscheinen. Damit meinen sie das Israel, mit dem sie in Frieden leben könnten, und kaschieren den Umstand, dass sie Israel als jüdischen Nationalstaat ablehnen. In seinem Meinungsbeitrag "Between two national movements" in Ha’aretz vom 1. Oktober hat Prof. Shlomo Avineri dies bereits anerkannt, schlägt aber vor auf eine kreative Weise einen Kompromiss mit den Palästinensern zu finden.
+
+Wieso kommt es ausgerechnet jetzt zu der neuen Serie von Terror? Einer der Gründe ist, dass die Palästinenser besorgt sind, man könne sie bei all den Entwicklungen im Nahen Osten übersehen. Ein weiterer ist sicher das Erstarken des radikalen Islam in der Region, auch unter den Palästinensern in den Gebieten und in Israel. Abbas und die arabischen Knesset-Mitglieder scheinen es im Unterschied zu vielen arabischen Israelis für nötig zu halten, aller Welt zu zeigen, dass sie den Konflikt mit Israel nicht weniger ernst nehmen als ihre Rivalen von der Hamas.
+
+Obwohl es also scheint, als würden die meisten Terroristen sich spontan zu Angriffen entscheiden, haben die palästinensischen Führer – allen voran Abbas und die Hamas –beträchtlichen Einfluss auf das Geschehen. Doch ebenso klar ist, dass die Hetze von Extremisten in Israel eine Rolle spielt.
+
+Ein entschlossenes und hellsichtiges Reagieren im Kampf gegen die aktuelle Terrorwelle könnte recht schnell zur Beruhigung beitragen. Dazu gehören eine massive Aufstockung von Sicherheitskräften, eine gesteigerte Alarmbereitschaft und Aufmerksamkeit der Bevölkerung, eine Mobilisierung der Reserven sowie erhöhte Abschreckung. So kann man die Hetzer und Terroristen treffen, um sie im Vorfeld auszuschalten, und im Rahmen des Gesetzes auch die Familien mit zur Verantwortung ziehen.
+
+Eine beschleunigte Fortsetzung der Siedlungsbaus und Terrorangriffe durch Juden als Vergeltung dürften dagegen die Wahrscheinlichkeit einer baldigen Beruhigung ebenso reduzieren und die Unterstützung, die Israel in Amerika erfährt, verringern. Je mehr der Palästinenserführung klar gemacht wird, dass Israel entschlossen ist, ihre aktuellen Pläne zu verhindern, umso wahrscheinlicher ist es, dass sie aus Angst vor Kontrollverlust bereit ist, die Situation selbst zu beruhigen. Langfristig ist es wahrscheinlich, dass die palästinensische Seite begreift, dass Terrorismus und unilaterale politische Manöver keinen Erfolg haben, worauf sie ihr fundamentalen Positionen zu revidieren bereit sein werden. Dann wird ein Abkommen vielleicht möglich sein. Bis dahin gilt es für Israel, im Konflikt einen kühlen Kopf zu bewahren.

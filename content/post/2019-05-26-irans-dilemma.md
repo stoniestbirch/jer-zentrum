@@ -1,0 +1,35 @@
+---
+author: Yossi Kuperwasser
+categories:
+- Iran
+date: "2019-05-26T14:34:00Z"
+excerpt: |-
+  Der Kampf um die Zukunft des Iran hat sich in den vergangenen Tagen zugespitzt. Die Vereinigten Staaten haben ihre Sanktionen gegen das Islamische Regime verschärft, in dem sie die verbliebenen Ausnahmeregelungen für diverse Länder, die iranisches Öl kaufen, aufhoben. Sie haben die Iranischen Revolutionsgarden zur Terrororganisation erklärt, die Einfuhr von im Iran geförderten Schwermetallen verboten und dem Iran untersagt, überschüssiges schwach angereichertes Uran und Schweres Wasser zu exportieren, was ihm im Rahmen des Atomabkommens gestattet worden war. Ursprünglich war dem Iran diese Lizenz ausgestellt worden, um sicher zu stellen, dass der Iran diese Materialien produzieren kann, ohne sie in größeren Vorräten zu horten. Die USA haben zudem begonnen, Kräfte in Richtung Persischen Golf und Iran zu verlegen.
+
+  Teheran hat unterdessen verkündet, dass sich der Iran bei einem Scheitern der europäischen Bemühungen, die Konsequenzen der amerikanischen Sanktionen abzumildern, schrittweise aus dem Atomabkommen zurückziehen werde. Außerdem droht seine Führung mit Angriffen auf die Amerikaner und ihre Alliierten. Als Antwort darauf haben die Europäer betont, dass sie trotz ihrer Verpflichtung zur Einhaltung des Abkommens bei einem iranischen Ausstieg zu den Sanktionen zurückkehren werden. Russland und China beziehen, wie zu erwarten war, Stellung für den Iran.
+guid: http://jer-zentrum.org/?p=106
+id: 106
+title: Irans Dilemma
+url: /irans-dilemma/
+---
+
+<span medium="" style=""font-size:">**<span large="" style=""font-size:">Irans Dilemma  
+</span>**  
+Yossi Kuperwasser</span>
+
+<span medium="" style=""font-size:">  
+Der Kampf um die Zukunft des Iran hat sich in den vergangenen Tagen zugespitzt. Die Vereinigten Staaten haben ihre Sanktionen gegen das Islamische Regime verschärft, in dem sie die verbliebenen Ausnahmeregelungen für diverse Länder, die iranisches Öl kaufen, aufhoben. Sie haben die Iranischen Revolutionsgarden zur Terrororganisation erklärt, die Einfuhr von im Iran geförderten Schwermetallen verboten und dem Iran untersagt, überschüssiges schwach angereichertes Uran und Schweres Wasser zu exportieren, was ihm im Rahmen des Atomabkommens gestattet worden war. Ursprünglich war dem Iran diese Lizenz ausgestellt worden, um sicher zu stellen, dass der Iran diese Materialien produzieren kann, ohne sie in größeren Vorräten zu horten. Die USA haben zudem begonnen, Kräfte in Richtung Persischen Golf und Iran zu verlegen.</span>
+
+Teheran hat unterdessen verkündet, dass sich der Iran bei einem Scheitern der europäischen Bemühungen, die Konsequenzen der amerikanischen Sanktionen abzumildern, schrittweise aus dem Atomabkommen zurückziehen werde. Außerdem droht seine Führung mit Angriffen auf die Amerikaner und ihre Alliierten. Als Antwort darauf haben die Europäer betont, dass sie trotz ihrer Verpflichtung zur Einhaltung des Abkommens bei einem iranischen Ausstieg zu den Sanktionen zurückkehren werden. Russland und China beziehen, wie zu erwarten war, Stellung für den Iran.
+
+Im Land selbst nehmen die Spannungen aufgrund der wirtschaftlichen Zwangslage jedoch zu. Westliche Nuklearexperten sind immer noch dabei, die Ergebnisse des iranischen Atomarchivs auszuwerten. Aus jenen Berichten ergibt sich, welche Fortschritte der Iran bis 2003 in seinem Atombombenprogramm gemacht hatte und wie unverantwortlich sich die Internationale Atomenergie-Organisation beim Zustandekommen des Atomabkommens verhielt, worüber sie sich bis heute ausschweigt.
+
+Das iranische Regime strebt ultimativ danach, sein Überleben zu sichern. Die Rettung des Atomdeals gestattet ihm, innerhalb von 11 Jahren ungehindert ein nukleares Arsenal aufzubauen. Iranische Politiker sorgen sich, dass der von den Vereinigten Staaten ausgeübte Druck einen Regimewechsel beschleunigen und nicht nur ihre nuklearen und hegemonialen Bestrebungen in der Region im Zaum halten soll.
+
+Innerhalb der iranischen Führung gibt es derweil Meinungsverschiedenheiten darüber, wie am besten mit dem amerikanischen Druck umzugehen sei. Möglich wäre Sparpakete einzuführen und einen, wie die Iraner meinen, "ökonomischen Dschihad" zu führen, indem man die Europäer durch Drohungen erpresst, Entschädigungen für die durch die Sanktionen verursachten Verluste zu leisten. Ebenso setzt der Iran auf Abschreckung gegenüber den Vereinigten Staaten und ihren Alliierten durch Androhung militärischer Gewalt in der Annahme, Präsident Trump und Teile seiner Regierung scheuten eine Eskalation. Gegenwärtig ist unklar, inwieweit die jüngsten Verlautbarungen des Regimes in dieser Hinsicht bereits eine konkrete politische Entscheidung bedeuten. Möglich wäre, dass es sich bei den Drohungen gegen den Westen lediglich um eine Art Testballon handelt, von dem die Iraner hoffen, ihn nicht umsetzen zu müssen. Damit begibt sich das Regime jedoch auf einen Kurs, der seine Zwangslage nur verschärfen dürfte: die Europäer werden sich gezwungen sehen, das Atomabkommen ebenfalls aufzukündigen, was eine Eskalation eher wahrscheinlicher macht.
+
+Ginge es nach den Iranern, dann würden sie vermutlich am liebsten die nächsten amerikanischen Präsidentschaftswahlen abwarten in der Hoffnung, dass ein demokratischer Kandidat Trump ablöst und das Atomabkommen wieder in Kraft setzt. Ayatollah Ali Khamenei scheint dennoch zu glauben, dass eine unmittelbare Reaktion auf die Sanktionen nötig ist, um den allmächtigen Ruf des Regimes gegenüber der iranischen Bevölkerung zu bekräftigen, da die ökonomische Misere die Stabilität der Islamischen Republik gefährdet. Es ist plausibler anzunehmen, dass das Regime zum gegenwärtigen Zeitpunkt einen direkten militärischen Schlagabtausch mit den Vereinigten Staaten vermeiden möchte, in Einsicht um die Grenzen seiner eigenen Macht und seine Verwundbarkeit durch die militärische Schlagkraft der Amerikaner.
+
+Allem Anschein nach, liegen diese Einsichten auch der gegenwärtigen amerikanischen Herangehensweise zugrunde. Die Amerikaner wollen die Iraner aus der Balance bringen und noch vor den nächsten US-Präsidentschaftswahlen zu einer Handlung zwingen. Damit steht das iranische Regime vor folgendem Dilemma: Festhalten an dem Atomabkommen oder es unmittelbar verlassen und das eigene Überleben riskieren oder sich dem Druck beugen und einer Neuverhandlung zustimmen. Zu diesem Zeitpunkt lehnt Teheran die Möglichkeit einer Kapitulation ab, auch wenn ein Versagen bei der Ankurbelung der Wirtschaft sowie der wachsende Unmut der Bevölkerung es schließlich dazu nötigen könnte, den Kurs zu ändern.
+
+Israel sieht sich genötigt, die amerikanischen Bemühungen zu unterstützen, um zu verhindern, dass das Regime je Atomwaffen in die Hände bekommt. Israel muss also mit der Möglichkeit rechnen, dass eine Eskalation am Persischen Golf zu einem Krieg mit den regionalen Vasallen des Iran führt – v.a. der Hisbollah, dem Palästinensischen Islamischen Dschihad und der Hamas – und sich entsprechend wappnen.

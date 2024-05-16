@@ -1,0 +1,65 @@
+---
+author: Dr. Jacques Neriah
+categories:
+- Nahost
+date: "2016-07-13T18:08:00Z"
+excerpt: |-
+  Vor zwei Jahren gelang es dem Islamischen Staat mittels eines Blitzkrieges ein umfangreiches Territorium von der Größe Großbritanniens zu erobern und sein selbst ernanntes Kalifat zu errichten, das Teile Syrien und des Irak in Stücke riss. Die jüngsten Verluste der radikalen Islamisten haben jedoch zu einer beträchtlichen Verringerung des IS-Gebiets in beiden Ländern geführt.
+
+  Tatsächlich hat der IS einerseits von Seiten der Koalition aus Syrien, Iran, Russland und der Hisbollah wie andererseits der gemäßigt amerikanisch-westlich-irakisch-arabischen Koalition enorme Verluste an Kämpfern und noch mehr an Territorium (ca. 40%)verzeichnen müssen (dem französischen Verteidigungsminister zufolge verlor der IS 2015 20,000 Kämpfer). Der symbolreichste Verlust war die Aufgabe Palmyras, das von Bashar Assad treuen Truppen mit massiver russischer Luftunterstützung und Infanterie der Iranischen Revolutionsgarden und afghanischer Milizen zurückerobert wurde.
+
+  Ebenso gelang es dem irakischen Regime Schlüsselstädte vom IS zurückzugewinnen wie Ramadi und Beiji. Gegenwärtig kämpft die irakische Regierung um die Rückeroberung Falludschas, nördlich vom Bagdad und bereitet den Sturm Mossuls vor, der zweitgrößten Stadt des Landes. Eine kurdische Koalition rückt derweil unterstützt von amerikanischen Spezialkräften auf Raqqa in Syrien vor, der inoffiziellen Hauptstadt des IS-Kalifats.
+
+  Angesichts dieser jüngsten Fortschritte der Anti-IS-Kräfte stehen die Fragen in Raum: Was ist heute anders als vor zwei Jahren? Welche Faktoren haben das Blatt gewendet und wie sieht es für die Zukunft des Islamischen Staates aus? Erleben wir das &quot;Anfang vom Ende&quot; oder ist dies nur das Vorspiel des Entstehens eines neuen geografischen Territoriums ähnlich dem &quot;Failed State&quot; in Libyen oder dem kriegszerrissenen Afghanistan?
+guid: http://jer-zentrum.org/?p=70
+id: 70
+title: Der Islamische Staat auf dem Rückzug
+url: /der-islamische-staat-auf-dem-ruckzug/
+---
+
+**<span small="" style=""font-size:">Der Islamische Staat auf dem Rückzug</span>**<span small="" style=""font-size:">  
+Dr. Jacques Neriah  
+</span>
+
+<span small="" style=""font-size:">  
+Vor zwei Jahren gelang es dem Islamischen Staat mittels eines Blitzkrieges ein umfangreiches Territorium von der Größe Großbritanniens zu erobern und sein selbst ernanntes Kalifat zu errichten, das Teile Syrien und des Irak in Stücke riss. Die jüngsten Verluste der radikalen Islamisten haben jedoch zu einer beträchtlichen Verringerung des IS-Gebiets in beiden Ländern geführt.</span>
+
+Tatsächlich hat der IS einerseits von Seiten der Koalition aus Syrien, Iran, Russland und der Hisbollah wie andererseits der gemäßigt amerikanisch-westlich-irakisch-arabischen Koalition enorme Verluste an Kämpfern und noch mehr an Territorium (ca. 40%)verzeichnen müssen (dem französischen Verteidigungsminister zufolge verlor der IS 2015 20,000 Kämpfer). Der symbolreichste Verlust war die Aufgabe Palmyras, das von Bashar Assad treuen Truppen mit massiver russischer Luftunterstützung und Infanterie der Iranischen Revolutionsgarden und afghanischer Milizen zurückerobert wurde.
+
+Ebenso gelang es dem irakischen Regime Schlüsselstädte vom IS zurückzugewinnen wie Ramadi und Beiji. Gegenwärtig kämpft die irakische Regierung um die Rückeroberung Falludschas, nördlich vom Bagdad und bereitet den Sturm Mossuls vor, der zweitgrößten Stadt des Landes. Eine kurdische Koalition rückt derweil unterstützt von amerikanischen Spezialkräften auf Raqqa in Syrien vor, der inoffiziellen Hauptstadt des IS-Kalifats.
+
+Angesichts dieser jüngsten Fortschritte der Anti-IS-Kräfte stehen die Fragen in Raum: Was ist heute anders als vor zwei Jahren? Welche Faktoren haben das Blatt gewendet und wie sieht es für die Zukunft des Islamischen Staates aus? Erleben wir das "Anfang vom Ende" oder ist dies nur das Vorspiel des Entstehens eines neuen geografischen Territoriums ähnlich dem "Failed State" in Libyen oder dem kriegszerrissenen Afghanistan?
+
+Obwohl die Obama-Administration offen deklarierte, kein Bodentruppen zu entsenden ("No boots on the ground"), verzeichneten beide Anti-IS-Koalitionen in Syrien und im Irak ihre Erfolge aufgrund folgender Faktoren:
+
+1\. Zermürbung:  
+Seit die US-geführte Koalition im August 2014 ihre Luftschläge gegen den IS begann, ist es ihr gelungen, Tausende IS-Kämpfer auszuschalten. Viel wichtiger dabei ist, dass sie dabei auch die Kommando-und Kontrollstruktur des IS angegriffen hat. Notorische Protagonisten wie "Jihadi John" (der Schlächter westlicher Geiseln) und Führungspersonal des IS wie Izzat Ibrahim sind dabei ums Leben gekommen. Auch der "Kalif" Abu Bakr el-Baghdadi könnte im Zuge eines Drohnenangriffs schwer verletzt worden sein.
+
+Der zusätzliche Einsatz russischer Truppen hat die dazu beigetragen, die Verteidigungsfähigkeiten des IS massiv zu schwächen. Aufgrund der immensen technischen Überlegenheit amerikanischer und russischer Nachrichtendienste, befinden sich der selbsternannte Kalif und andere führende Offiziere permanent auf der Flucht und wissen, dass sie das Ziel von Luftschlägen werden, sobald sie sich in der Öffentlichkeit zeigen. Nicht vergessen werden darf dabai, dass ein Teil (einigen Schätzungen zufolge bis zu 25 Prozent) der Kommandostruktur sich aus ehemaligen Offizieren der Armee Saddam Husseins rekrutiert. Deren Verschwinden hat den IS entscheidend geschwächt, denn ihren Stellvertreter mangeln Felderfahrung und militärische Ausbildung. Sollten zudem in den letzten zwei Jahren tatsächlich 20,000 IS-Kämpfer getötet worden sein, dann wäre dies ein schwere Bürde für den IS.
+
+2\. Dezimierung:  
+Die Ideologie des IS, seine territorialen Erfolge sowie die Gegnerschaft des Westens waren Teile der Melange, die Tausende von Freiwilligen aus der ganzen Welt zum IS zog. Zwei Jahre nach Gründung des Kalifats haben einige der Länder, aus denen IS-Rekruten stammen, neue Gesetze verabschiedet und den Zustrom von Freiwilligen eingedämmt. Im Wissen darum, dass ein Großteil der Kämpfer wieder in ihre Heimat zurückkehren und sich IS-Schläferzellen anschließen würde, haben westliche Länder sowie Marokko, Algerien, Tunesien, Saudi Arabien und Libanon begonnen, ihre salafistischen Organisationen scharf zu überwachen, um illegale Aktivitäten und die Entsendung von Freiwilligen zum IS zu unterbinden. Selbst die Türkei hat ihre nachlässige Haltung seit jüngstem aufgegeben, die in der Vergangenheit Freiwilligen den Grenzübertritt nach Syrien möglich machte.
+
+Die barbarischen Videos des IS, die über soziale Netzwerke verteilt wurden haben ebenfalls zu einer Veränderung der Wahrnehmung geführt. Während einige Rekruten sich von der Grausamkeit des IS angezogen fühlen, entschloss sich ein Großteil des Zielpublikums, sich nicht vom IS und seinen professionellen Netzwerken vereinnahmen zu lassen. In Folge dessen hat der IS begonnen, immer mehr Kinder und Jugendliche zu rekrutieren, um die gewaltigen Verluste auszugleichen, die nicht mehr mit "neuen Truppen" aus dem Ausland zu füllen sind.
+
+3\. Unterlegene Feuerkraft  
+Als der IS Mossul eroberte, fielen ihm hunderte irakische Fahrzeuge, Militärgerät, Panzer, Boden-Boden-Raketen und Munition in die Hände. Ähnliches galt in den vom IS in Syiren eroberten Gebieten, wo er aller Wahrscheinlichkeit sogar chemische Waffen erlangte, die nicht rechtzeitig aus dem Gebiet entfernt wurden. Die erbeuteten Flugzeuge erwiesen sich dagegen als veraltet und fluguntüchtig.
+
+Solange die Koalitionen nicht mit ihren jeweiligen Luftwaffen eingriffen, erwies sich die Situation vor Ort als Vorteil für den IS. In ihrem Unwillen, Bodentruppen einzusetzen, entschieden sich Russen wie Amerikaner für Luftangriffe auf den IS, auf Rebellen, Ausrüstung, Infrastruktur, Führungskräfte und militärische Verbände. Die Wahl fiel dabei auf Präzisionsschläge oft mit Hilfe von Lasersuchsystemen (?) anstatt auf Bombenteppiche, was den Zermürbungsprozess z.T. verlangsamte bzw. im Wirkungsgrad einschränkte. Langfristig hat dieser amerikanische und russische Ansatz jedoch Früchte gezeigt. Ohne Gegner am Himmel oder die Gefahr von Luftabwehrsystemen ist es den Koalitionen binnen zwei Jahren gelungen, die militärische Stärke des IS einzudämmen und zum Rückzug zu zwingen.
+
+Dem IS gelang es nicht, diesem etwas entgegenzusetzen, da die Lufteinsätze in einer Höhe geflogen wurden, die für die vom IS genutzten Boden-Luft-Raketen unerreichbar war. Auf dem Boden verfügt der IS jedoch über beeindruckende Anti-Personen- und Anti-Fahrzeug-Minentaktik und beherrscht den Häuserkampf so gut, dass es einer kleinen Truppe von Kämpfern gelingen könnte, größeren Verbänden regulärer Armeen zu widerstehen. Mangels Luftwaffe greift der IS auf menschliche Bomben zurück, um die feindlichen Verteidigungslinien zu durchbrechen – eine Taktik, die in Kobane, Tikrit, Palmyra und vielen anderen Orten zum Einsatz kam. Diese Taktik hat das Kräfteverhältnis jedoch nicht verändert, so dass der IS fortgesetzt aus einer Position der Schwäche zu kämpfen hatte, was den Gebietsverlust der letzten Monate erklärt.
+
+4 (?). Schwindende finanzeielle Unterstützung:  
+Bei der Eroberung Mosuls plünderte der IS die Zentralbank der Stadt und erbeutete so Berichten zufloge eine halbe Milliarde Dollar. Zudem gibt es Berichte darüber, dass der IS Öl über die Türkei verkauft oder gar direkt an das Assad-Regime. Luftschläge gegen seine Öl-Transporte haben die Gewinne des IS arg beschnitten. Sein Handel mit gestohlenen Antiquitäten wird zunehmend erschwert. Zuletzt hatte es den Anschein, als ob seine einzigen Einkünfte nur noch aus private Kreisen innerhalb der Golfstaaten stammen und nicht mehr genügen, um eine "staatliche" Struktur aufrecht zu erhalten. Auch die vom IS erhobenen Steuern und die Sonderabgaben für Nichtmuslime stellen ein Einkommen dar, sind aber ebenfalls unzureichend, wenngleich damit zumindest die grundlegendste Infrastruktur des IS finanzierbar wird.
+
+Seit letztem Jahr hat die amerikanische Luftwaffe begonnen, zu einer neuen und wirksamen "finanziellen Sanktion" zu greifen: durch Angriff auf Geldspeicher des IS. So gab die amerikanische Koalition im Januar 2016 bekannt, neun Depots mit "Zigmillionen US-Dollar" zerstört zu haben.
+
+Die Eindämmung der Finanzströme durch die Vereinigten Staaten zwingen den IS, Alternativen zu suchen, denn ohne Geld vermag er weder neue Kämpfer zu rekrutieren, noch die monatlichen Gehälter zu zahlen. Die Frage stellt sich also: wie lange vermag der IS seine wesentliche Struktur ökonomisch noch aufrechterhalten, ohne Bürger und Kämpfer in die Verzweiflung und die Wüste zu schicken.
+
+Der IS auf dem Rückzug
+
+Zwei Jahre nach der Ausrufung des Kalifats und seinen verblüffenden Siegen im Irak und in Syrien befindet sich der IS auf dem Rückzug. Zwar hat er immer noch einige territoriale Gewinne im Nordwesten Syriens (Aleppo, Homs) zu verzeichnen, sowie im äußersten Osten des Landen (Hasakeh), doch diese wichtigen Städte selbst sind nicht in seine Hände gefallen, während seine anderen Schlüsselstädte Mosul und Rakka nunmehr Ziele der Koalitionstruppen sind. Solange weder Russen noch Amerikaner bereit sind, Bodentruppen zu schicken, dürften diese beiden Hochburgen in den Händen des IS verbleiben, bis regionale Verbände der syrischen und irakischen Armee den IS vertreiben. Dies dürfte nicht in den kommenden Wochen oder Monaten geschehen. Dies ist ein Prozess, der sich langsam und schmerzhaft vollziehen dürfte.
+
+Entsprechen sieht sich der IS nach Alternativen um. Das zerfallende Libyen ist dabei die offensichtlichste Wahl, dürfte ber wegen seiner Nähe zu Europa ein Etablierung des IS unwahrscheinlich machen, ohne nicht eine sofortige militärische Reaktion nach sich zu ziehen. Europa und die Vereinigten Staaten diskutieren dies bereits. Afghanistan und der Jemen kämen ebenfalls als mögliche Rückzugsgebiete in Betracht. In Afghanistan ist es jüngst zu Kämpfen zwischen dem IS und den Taliban bekommen, die sich aus ideologischen Gründen gegenüberstehen. Im äußersten Osten hat der IS bereits Gebiete erobert. Im Jemen wiederum scheint der IS im Gouvernment Hadramaut Fuß zu fassen.
+
+Es wäre dennoch falsch, den IS bereits für erledigt zu betrachten: Die Popularität des IS in Saudi Arabien, Ägypten, Marokko und Tunesien darf nicht unterschätzt werden. Zwischen lokalen Islamistengruppen und dem IS hat sich eine Symbiose entwickelt, die darauf hin arbeitet, die existierenden Regime ins Chaos zu stürzen und durch das Kalifat zu ersetzen. In der Zwischenzeit müssen die arabischen Staaten einen hohen Preis dafür bezahlen, wollen sie die Oberhand behalten. Sie müssen mit Wachsamkeit und Aggressivität jene Kräfte der Destabilisierung bekämpfen. Eine endgültige Niederlage des IS wird sich daher nicht unmittelbar zu einer Überwindung radikalislamistischer Bewegungen führen. Dies kann nur geschehen, wenn die arabischen Nationalstaaten eine lebensfähige ideologische Alternative bieten und die soziookönomische Wohlfahrt ihrer Bürger anstreben.

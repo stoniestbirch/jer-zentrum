@@ -1,0 +1,32 @@
+baseURL = 'https://jer-zentrum.org'
+languageCode = 'de'
+title = 'Jerusalem Zentrum'
+theme = 'mainroad'
+
+[Params]
+  description = "Strategische Informationen zur Außen – und Sicherheitspolitik Israels" # Site description. Used in meta description
+  copyright = "Jerusalem Center for Public Affairs" # Footer copyright holder, otherwise will use site title
+  pager = true # Show pager navigation (prev/next links) at the bottom of pages if true
+  post_meta = ["author", "date", "categories"] # Order of post meta information
+  mainSections = ["post"] # Specify section pages to show on home page and the "Recent articles" widget
+  dateformat = "2006-01-02" # Change the format of dates
+  readmore = true
+
+[Params.style.vars]
+  highlightColor = "#5e707a" # Override highlight color
+
+[Params.logo]
+  image = "wp-content/uploads/2020/02/jcpa_logo_white_on_blue-150x150.png" # Logo image. Path relative to "static"
+  title = "Jerusalem Zentrum" # Logo title, otherwise will use site title
+  subtitle = "Strategische Informationen zur Außen – und Sicherheitspolitik Israels" # Logo subtitle
+
+[Params.sidebar]
+  home = "right" # Configure layout for home page
+  list = "right"  # Configure layout for list pages
+  single = false # Configure layout for single pages
+  # Enable widgets in given order
+  widgets = ["categories", "search"]
+
+[Params.widgets]
+  recent_num = 5 # Set the number of articles in the "Recent articles" widget
+  categories_counter = true # Enable counter for each category in "Categories" widget
