@@ -14,8 +14,8 @@ title: Neue Herzlichkeit zwischen Iran und Hamas
 url: /neue-herzlichkeit-zwischen-iran-und-hamas/
 ---
 
-**Neue Herzlichkeit zwischen Iran und Hamas  
-**  
+**Neue Herzlichkeit zwischen Iran und Hamas**
+  
 Michael Segall
 
 Am 15. Juni 2007 ergriff die Hamas Macht und Kontrolle im Gazastreifen und vertrieb in Folge Fatah und Palästinensische Autonomiebehörde. Heute, inmitten von Dauerkrise, Führungswechsel in und außerhalb Gazas und schwindenden finanziellen und politischen Rückhalt, auch in der Bevölkerung, ist die Gruppe bestrebt, die Beziehung zum Iran wieder aufzuwärmen.

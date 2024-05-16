@@ -16,8 +16,8 @@ title: Die amerikanische Anerkennung israelischer Souveränität auf dem Golan a
 url: /die-amerikanische-anerkennung-israelischer-souveranitat-auf-dem-golan-aus-rechtlicher-perspektive/
 ---
 
-**Die amerikanische Anerkennung israelischer Souveränität auf dem Golan aus rechtlicher Perspektive  
-**  
+**Die amerikanische Anerkennung israelischer Souveränität auf dem Golan aus rechtlicher Perspektive**
+  
 Alan Baker
 
  
