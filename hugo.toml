@@ -1,5 +1,5 @@
 baseURL = 'https://jer-zentrum.org'
-languageCode = 'de'
+languageCode = 'de-de'
 title = 'Jerusalem Zentrum'
 theme = 'mainroad'
 
@@ -9,7 +9,7 @@ theme = 'mainroad'
   pager = true # Show pager navigation (prev/next links) at the bottom of pages if true
   post_meta = ["author", "date", "categories"] # Order of post meta information
   mainSections = ["post"] # Specify section pages to show on home page and the "Recent articles" widget
-  dateformat = "2006-01-02" # Change the format of dates
+  dateformat = "January 02, 2006" # Change the format of dates
   readmore = true
 
 [Params.style.vars]
