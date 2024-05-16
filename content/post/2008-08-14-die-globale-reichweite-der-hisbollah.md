@@ -12,4 +12,73 @@ title: Die globale Reichweite der Hisbollah
 url: /die-globale-reichweite-der-hisbollah/
 ---
 
-<div align=""center""><font size=""3"">**Die globale Reichweite der Hisbollah** </font></div><div align=""center""><font size=""3""></font></div><div align=""center""><font size=""3"">Jonathan D. Halevi und Ashley Perry</font></div><div><font size=""3""> </font></div><div><font size=""3"">Bei dem Versuch, vor einem Angriff auf seine Nuklearanlagen abzuschrecken, ist das Säbelrasseln des Iran jüngst eskaliert. Der iranische Präsident Mahmoud Ahmadinejad hat im vergangenen Monat damit gedroht, dass die iranische Armee ihren Feinden „die Hände abhacken“ würde, bevor deren Finger den Abzug berühren könnten. Während viele dies als einen Präventiv-Raketenschlag aus dem Iran interpretieren, gibt es eine sogar noch teuflischere Möglichkeit.</font></div><div><font size=""3""></font></div><div><font size=""3"">Im Laufe der vergangenen Jahre hat Irans Stellvertreterin Hisbollah ihren Einfluss weit ausgedehnt. Bei seiner gewagten Politik gegenüber dem Westen hat der Iran viel von den beiden Golfkriegen nebenan gelernt. Anders als Saddam Hussein, dessen Drohung einer umfassenden Attacke gegen den Westen weitgehend rhetorisch war, folgt der Iran einer globalen Perspektive und betreibt eifrig den Aufbau terroristischer Netzwerke auf der ganzen Welt, die dann auf Befehl zur Tat schreiten können.</font></div><div><font size=""3"">Die Hisbollah ist integraler Bestandteil des islamischen Revolutionsregimes in Teheran. Die führende religiöse Autorität des Iran hat Hassan Nasrallah den Titel des libanesischen „Repräsentanten“ verliehen und ihn dadurch zu einem essentiellen Teil der iranischen Revolution gemacht.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Hisbollah erhält jährlich Millionen von Dollars aus dem Iran. Nach dem zweiten Libanonkrieg erhielt sie noch mehr Gelder zur Kompensation ihrer militärischen und zivilen Verluste und für den Wiederaufbau der Schiitendörfer, die sie unterstützt hatten. Das iranische Kapital wird der Hisbollah von der al-Quds-Truppe der Revolutionswächter, dem iranischen Außenministerium und staatlichen Einrichtungen mit Niederlassungen im Libanon überwiesen.</font></div><div><font size=""3"">Die relative Ruhe, die derzeit an der libanesisch-israelischen Grenze herrscht, darf nicht als Abkühlen des Enthusiasmus der Hisbollah missverstanden werden. Vielmehr dient sie dazu, den Fokus der Hisbollah auf ihre beiden Hauptziele zu tarnen: die libanesische Verfassung zu ändern und eine größere schiitische Präsenz im libanesischen Parlament sicherzustellen, mit dem Blick auf eine eventuelle Machtübernahme im Libanon durch Ausnutzung des demokratischen Prozesses, um ihn dann in ein radikal-schiitisches islamisches Land wie den Iran zu verwandeln.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Dabei greift die Mission der Hisbollah jedoch weit über den Libanon hinaus. Innerhalb der arabischen Welt, selbst bei Sunniten, ist die Hisbollah sehr populär und ein wichtiger Faktor bei der Rekrutierung der Massen für den Heiligen Krieg (Jihad). Die Organisation ist denen behilflich, die ihre jeweilige Regierung ins Visier nehmen, durch die Schwächung der sunnitischen Opposition und die Schaffung einer strategischen Allianz mit allen Zweigen der Muslimbrüderschaft auf der Welt, auch in den palästinensischen Gebieten.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Diese Aktivitäten stehen mit dem 50-Jahresplan der iranischen Führung im Einklang, der Ende der 90er Jahre bekannt gegeben wurde. Laut eines iranischen Dokuments besteht der Plan darin, die Islamische Revolution durch Predigten, die Ermunterung schiitischer Emigration, den Immobilienerwerb, den Aufbau politischer Organisationen, die Infiltrierung der lokalen politischen Apparate und die Übernahme verschiedener Parlamente und Schaltzentralen politischer Macht in die Nachbarstaaten und darüber hinaus zu exportieren.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Fußspuren von Iran und Hisbollah findet man in verschiedenen afrikanischen und südamerikanischen Ländern. In Nigeria operiert die Hisbollah bspw. unter schiitischen Exillibanesen und der lokalen Bevölkerung. Der Führer der schiitischen Eingeborenen in Nigeria, Sheikh Zakzaky, hat einen Götzendienst für Hassan Nasrallah und die Führer des Iran ins Leben gerufen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">In Venezuela und anderen südamerikanischen Ländern betreibt die Hisbollah eine langjährige Kampagne zur schiitisch-islamischen Missionierung der eingeborenen Indianer. Teodoro Rafael Darnott, auch bekannt als „Kommandant Teodor“, hat kürzlich verkündet: „Wenn die Vereinigten Staaten den Iran, das einzige von Gott regierte Land, angreifen, werden wir in Lateinamerika zurückschlagen und selbst innerhalb der Vereinigten Staaten selbst. Wir haben die Mittel dazu, und wir wissen, was wir zu tun haben. Wir werden die Lieferung von Öl aus Lateinamerika in die USA sabotieren. Ihr seid gewarnt worden.“</font></div><div><font size=""3"">Am 29. Juni hat die kuwaitische Tageszeitung al-Siasa berichtet, dass die Hisbollah junge Männer aus Venezuela in ihren Militärlagern im Südlibanon ausbildet, um sie für Attacken auf amerikanische Einrichtungen vorzubereiten. Außerdem haben Hisbollah und Iran geheime Zellen im Ausland für die Durchführung von Terroranschlägen aufgebaut. Solche Zellen waren für die Anschläge auf die israelische Botschaft und das jüdische Zentrum AMIA in Buenos Aires in den frühen 90er Jahren verantwortlich und ebenso für die Anschläge in Kuwait und Saudi-Arabien sowie die Anschlagsversuche in London und Thailand.</font></div><div><font size=""3""> </font></div><div><font size=""3"">In der Zwischenzeit hat ABC berichtet, dass amerikanischen und kanadischen Nachrichtendiensten Informationen über Schläferzellen der Hisbollah in Kanada vorliegen, die Geheimdienstinformationen über israelische und jüdische Ziele in Ottawa und Toronto für mögliche Anschläge sammeln sollten.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Verästelungen des Einflussbereichs der Hisbollah sind es, die eine reale Bedrohung in vielen Ecken der Welt darstellen. Der Iran hat verstanden, dass er, um den Westen wirklich bedrohen und als Geisel halten zu können, eine vielschichtige Gefahr für die Bürger der westlichen Staaten und ihre Interessen schaffen muss. Das Netzwerk von Terrorzellen der Hisbollah dient genau diesem Zweck.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Regierung Großbritanniens ist weltweit eine der wenigen, die diese Bedrohung voll erkennt; vor kurzem hat sie den militärischen Flügel der Hisbollah für illegal erklärt. Es ist Zeit, dass mehr westliche Staaten es ihr gleichtun, wenn sie Irans Stellvertreter und Joker im Falle eines Angriffs auf das iranische Atomprogramm neutralisieren wollen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Übersetzung: [Newsletter der Israelischen Botschaft in Deutschland]("http://newsletter.cti-newmedia.de/index.php?site=artikeldrucken&nid=280&sid=NA==&id=2203")</font></div><div><font size=""3""></font></div><div><font size=""3"">Die englische Version [hier]("http://mesi.org.uk/ViewBlog.aspx?ArticleId=27").</font></div><div><font size=""3""></font></div><div><font size=""3"">Oberstleutnant d. Res. Jonathan D. Halevi ist Senior Researcher am Jerusalem Center for Public Affairs und früherer Berater des Planungsstabs des israelischen Außenministeriums. </font></div><div><font size=""3""> </font></div><div><font size=""3"">Ashley Perry ist Redakteur von [MESI]("http://mesi.org.uk/Default.aspx").</font></div><div><font size=""3""> </font></div>
+
+**Die globale Reichweite der Hisbollah** 
+
+
+
+Jonathan D. Halevi und Ashley Perry
+
+ 
+
+Bei dem Versuch, vor einem Angriff auf seine Nuklearanlagen abzuschrecken, ist das Säbelrasseln des Iran jüngst eskaliert. Der iranische Präsident Mahmoud Ahmadinejad hat im vergangenen Monat damit gedroht, dass die iranische Armee ihren Feinden „die Hände abhacken“ würde, bevor deren Finger den Abzug berühren könnten. Während viele dies als einen Präventiv-Raketenschlag aus dem Iran interpretieren, gibt es eine sogar noch teuflischere Möglichkeit.
+
+
+
+Im Laufe der vergangenen Jahre hat Irans Stellvertreterin Hisbollah ihren Einfluss weit ausgedehnt. Bei seiner gewagten Politik gegenüber dem Westen hat der Iran viel von den beiden Golfkriegen nebenan gelernt. Anders als Saddam Hussein, dessen Drohung einer umfassenden Attacke gegen den Westen weitgehend rhetorisch war, folgt der Iran einer globalen Perspektive und betreibt eifrig den Aufbau terroristischer Netzwerke auf der ganzen Welt, die dann auf Befehl zur Tat schreiten können.
+
+Die Hisbollah ist integraler Bestandteil des islamischen Revolutionsregimes in Teheran. Die führende religiöse Autorität des Iran hat Hassan Nasrallah den Titel des libanesischen „Repräsentanten“ verliehen und ihn dadurch zu einem essentiellen Teil der iranischen Revolution gemacht.
+
+ 
+
+Die Hisbollah erhält jährlich Millionen von Dollars aus dem Iran. Nach dem zweiten Libanonkrieg erhielt sie noch mehr Gelder zur Kompensation ihrer militärischen und zivilen Verluste und für den Wiederaufbau der Schiitendörfer, die sie unterstützt hatten. Das iranische Kapital wird der Hisbollah von der al-Quds-Truppe der Revolutionswächter, dem iranischen Außenministerium und staatlichen Einrichtungen mit Niederlassungen im Libanon überwiesen.
+
+Die relative Ruhe, die derzeit an der libanesisch-israelischen Grenze herrscht, darf nicht als Abkühlen des Enthusiasmus der Hisbollah missverstanden werden. Vielmehr dient sie dazu, den Fokus der Hisbollah auf ihre beiden Hauptziele zu tarnen: die libanesische Verfassung zu ändern und eine größere schiitische Präsenz im libanesischen Parlament sicherzustellen, mit dem Blick auf eine eventuelle Machtübernahme im Libanon durch Ausnutzung des demokratischen Prozesses, um ihn dann in ein radikal-schiitisches islamisches Land wie den Iran zu verwandeln.
+
+ 
+
+Dabei greift die Mission der Hisbollah jedoch weit über den Libanon hinaus. Innerhalb der arabischen Welt, selbst bei Sunniten, ist die Hisbollah sehr populär und ein wichtiger Faktor bei der Rekrutierung der Massen für den Heiligen Krieg (Jihad). Die Organisation ist denen behilflich, die ihre jeweilige Regierung ins Visier nehmen, durch die Schwächung der sunnitischen Opposition und die Schaffung einer strategischen Allianz mit allen Zweigen der Muslimbrüderschaft auf der Welt, auch in den palästinensischen Gebieten.
+
+ 
+
+Diese Aktivitäten stehen mit dem 50-Jahresplan der iranischen Führung im Einklang, der Ende der 90er Jahre bekannt gegeben wurde. Laut eines iranischen Dokuments besteht der Plan darin, die Islamische Revolution durch Predigten, die Ermunterung schiitischer Emigration, den Immobilienerwerb, den Aufbau politischer Organisationen, die Infiltrierung der lokalen politischen Apparate und die Übernahme verschiedener Parlamente und Schaltzentralen politischer Macht in die Nachbarstaaten und darüber hinaus zu exportieren.
+
+ 
+
+Fußspuren von Iran und Hisbollah findet man in verschiedenen afrikanischen und südamerikanischen Ländern. In Nigeria operiert die Hisbollah bspw. unter schiitischen Exillibanesen und der lokalen Bevölkerung. Der Führer der schiitischen Eingeborenen in Nigeria, Sheikh Zakzaky, hat einen Götzendienst für Hassan Nasrallah und die Führer des Iran ins Leben gerufen.
+
+ 
+
+In Venezuela und anderen südamerikanischen Ländern betreibt die Hisbollah eine langjährige Kampagne zur schiitisch-islamischen Missionierung der eingeborenen Indianer. Teodoro Rafael Darnott, auch bekannt als „Kommandant Teodor“, hat kürzlich verkündet: „Wenn die Vereinigten Staaten den Iran, das einzige von Gott regierte Land, angreifen, werden wir in Lateinamerika zurückschlagen und selbst innerhalb der Vereinigten Staaten selbst. Wir haben die Mittel dazu, und wir wissen, was wir zu tun haben. Wir werden die Lieferung von Öl aus Lateinamerika in die USA sabotieren. Ihr seid gewarnt worden.“
+
+Am 29. Juni hat die kuwaitische Tageszeitung al-Siasa berichtet, dass die Hisbollah junge Männer aus Venezuela in ihren Militärlagern im Südlibanon ausbildet, um sie für Attacken auf amerikanische Einrichtungen vorzubereiten. Außerdem haben Hisbollah und Iran geheime Zellen im Ausland für die Durchführung von Terroranschlägen aufgebaut. Solche Zellen waren für die Anschläge auf die israelische Botschaft und das jüdische Zentrum AMIA in Buenos Aires in den frühen 90er Jahren verantwortlich und ebenso für die Anschläge in Kuwait und Saudi-Arabien sowie die Anschlagsversuche in London und Thailand.
+
+ 
+
+In der Zwischenzeit hat ABC berichtet, dass amerikanischen und kanadischen Nachrichtendiensten Informationen über Schläferzellen der Hisbollah in Kanada vorliegen, die Geheimdienstinformationen über israelische und jüdische Ziele in Ottawa und Toronto für mögliche Anschläge sammeln sollten.
+
+ 
+
+Die Verästelungen des Einflussbereichs der Hisbollah sind es, die eine reale Bedrohung in vielen Ecken der Welt darstellen. Der Iran hat verstanden, dass er, um den Westen wirklich bedrohen und als Geisel halten zu können, eine vielschichtige Gefahr für die Bürger der westlichen Staaten und ihre Interessen schaffen muss. Das Netzwerk von Terrorzellen der Hisbollah dient genau diesem Zweck.
+
+ 
+
+Die Regierung Großbritanniens ist weltweit eine der wenigen, die diese Bedrohung voll erkennt; vor kurzem hat sie den militärischen Flügel der Hisbollah für illegal erklärt. Es ist Zeit, dass mehr westliche Staaten es ihr gleichtun, wenn sie Irans Stellvertreter und Joker im Falle eines Angriffs auf das iranische Atomprogramm neutralisieren wollen.
+
+ 
+
+Übersetzung: [Newsletter der Israelischen Botschaft in Deutschland]("http://newsletter.cti-newmedia.de/index.php?site=artikeldrucken&nid=280&sid=NA==&id=2203")
+
+
+
+Die englische Version [hier]("http://mesi.org.uk/ViewBlog.aspx?ArticleId=27").
+
+
+
+Oberstleutnant d. Res. Jonathan D. Halevi ist Senior Researcher am Jerusalem Center for Public Affairs und früherer Berater des Planungsstabs des israelischen Außenministeriums. 
+
+ 
+
+Ashley Perry ist Redakteur von [MESI]("http://mesi.org.uk/Default.aspx").
+
+ 

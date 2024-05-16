@@ -12,13 +12,13 @@ title: Rouhani folgt den Roten Linien Khameneis
 url: /rouhani-folgt-den-roten-linien-khameneis/
 ---
 
-<span small="" style=""font-size:">  
-**Rouhani folgt den Roten Linien Khameneis**</span>
+  
+**Rouhani folgt den Roten Linien Khameneis**
 
 Michael Segall
 
-<span small="" style=""font-size:">  
-Zu einem Zeitpunkt, an dem Vorwürfe laut wurden, Israel habe die Atomverhandlungen in Europa abgehört und kurz vor dem Abschluss des Abkommens wandte sich der iranische Präsident Rouhani am zweiten Jahrestages seines Wahlsiegs mit einer Rede an iranische und ausländische Journalisten, die in den iranischen Medien ausgestrahlt wurde. (1)</span>
+  
+Zu einem Zeitpunkt, an dem Vorwürfe laut wurden, Israel habe die Atomverhandlungen in Europa abgehört und kurz vor dem Abschluss des Abkommens wandte sich der iranische Präsident Rouhani am zweiten Jahrestages seines Wahlsiegs mit einer Rede an iranische und ausländische Journalisten, die in den iranischen Medien ausgestrahlt wurde. (1)
 
 Rouhani konzentrierte sich dabei auf das vom Iran in der Atomfrage Erreichte und den erfolgreichen Kampf gegen das Sanktionsregime. Immer wieder hielt er sich dabei an die vom Obersten Führer des Iran Khamenei geforderten roten Linien für die Atomverhandlungen (2) und bekräftigte, dass es den Inspektoren nicht gestattet werden würde, Militäranlagen zu betreten. Rouhani dankte Khamenei dafür, "den Weg festgelegt zu haben, hinter dem Verhandlungsteam zu stehen und die nationale Einheit des Iran aufrecht zu erhalten." Geheimdienstminister Mahmud Alavi bestätigte, dass das Verhandlungsteam die roten Linien nie überschritten hätte. (3)
 
@@ -68,11 +68,11 @@ Anthony Cordesman, Analyst für nationale Sicherheitsfragen des Center for Strat
 
 „Jedes bedeutsame Rüstungskontrollabkommen muss auf dem Prinzip ‘Vertrauen ist gut, Kontrolle ist besser’ basieren. Aus all den genannten Gründen \[…\] gibt es keine Grundlage für irgendein Vertrauen in die iranischen Rüstungsaktivitäten. Dies bleibt der Fall, ganz gleich, ob ein Abkommen erreicht wird, die Verhandlungen verlängert werden oder in sich zusammenfallen." (8)
 
-<span small="" style=""font-size:"></span>
+
 
 **\* \* \***
 
-<span small="" style=""font-size:"></span>
+
 
 1 http://www.president.ir/fa/87559
 

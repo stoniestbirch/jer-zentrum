@@ -12,10 +12,14 @@ title: Ein schlechtes Iran-Abkommen führt zu Instabilität in Nahost
 url: /ein-schlechtes-iran-abkommen-fuhrt-zu-instabilitat-in-nahost/
 ---
 
-<div align=""center"">**<font size=""3"">Ein schlechtes Iran-Abkommen führt zu Instabilität in Nahost</font>**<font size=""3"">Michael Segall</font>
 
-</div><font size=""3"">  
-Die wesentlichen Akteure im Nahen Osten beobachten genau den Fortschritt der Atomverhanldungen zwischen dem Iran und den Weltmächten, allen voran den USA. Das Ergebnis der Gespräche, v.a. aber ein schlechtes Abkommen zwischen den Vereinigten Staaten und dem Iran, das Letzteren zum Staat an der Schwelle zur Atommacht macht, dürfte einen entscheidenden Einfluss auf die dramatischen und richtungsentscheidenden Prozesse haben, die gegenwärtig den Nahen Osten durchziehen und schließlich sowohl die amerikanische wie auch die europäische Sicherheit gefährden.</font>
+**Ein schlechtes Iran-Abkommen führt zu Instabilität in Nahost**
+
+Michael Segall
+
+
+  
+Die wesentlichen Akteure im Nahen Osten beobachten genau den Fortschritt der Atomverhanldungen zwischen dem Iran und den Weltmächten, allen voran den USA. Das Ergebnis der Gespräche, v.a. aber ein schlechtes Abkommen zwischen den Vereinigten Staaten und dem Iran, das Letzteren zum Staat an der Schwelle zur Atommacht macht, dürfte einen entscheidenden Einfluss auf die dramatischen und richtungsentscheidenden Prozesse haben, die gegenwärtig den Nahen Osten durchziehen und schließlich sowohl die amerikanische wie auch die europäische Sicherheit gefährden.
 
 Das im Februar vom Weißen Haus veröffentlichte Strategiepapier zur Nationalen Sicherheit hält unter anderem fest: "Wir loten zur Zeit die Möglichkeit aus, eine umfassende Resolution zu erwirken, die die internationale Gemeinschaft darin versichert, dass das iranische Atomprogramm friedlicher Natur ist, während gleichzeitig ein gemeinsamer Aktionsplan den Fortschritt des iranischen Programms unterbunden hat." Das Dokument beschreibt dabei das Sanktionsregime und seine Erfolge im Verhindern des Atomprogramms.
 
@@ -23,18 +27,22 @@ Der Text bekräftigt weiter: "Stabilität und Frieden im Nahen Osten und Nordafr
 
 Tatsächlich würde jedoch die Unterzeichnung eines Abkommens, dass dem Iran gestattet, an die Schwelle zum Durchbruch beim Bau von Atomwaffen zu gelangen, bedeuten, dass der Besorgnis erregende Trend sich fortsetzt, bei dem Teheran strategischen Gewinne im arabischen Raum – vom persischen Golf bis nach Nordafrika – verbucht und die Stabilität der Region untergräbt. Währenddessen wird der Iran die außenpolitische Schwäche der USA und die Spaltungen innerhalb der arabischen Welt seit Ausbruch des "Arabischen Frühlings" strategisch ausnutzen.
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/3(1).jpg")</font>  
-<font size=""3""> <font size=""2"">Eine iranische Karikatur bringt die iranische Wahrnehmung US-Präsident Obamas auf den Punkt</font></font>  
-<font size=""3""><font size=""2""> (Tasnim News Agency).</font></font></div><font size=""3""><font size=""2""> </font>  
-Angesichts der bereits seit mehr als einem Jahrzehnt andauernden vergeblichen Atomgespräche mit dem Land, gelingt es dem Iran – als mutmaßliche Insel der Stabilität in einem ins Chaos gestürzten Nahen Osten – die internationale Gemeinschaft immer wieder zu täuschen. Neben seinen Erfolgen im Rahmen der Gespräche, zu denen wesentliche atomare Fähigkeiten (tausende Zentrifugen und forgesetzte Atomforschung und -entwicklung) und eine regionale Stellung gehören, ist es ihm gelungen, die Atomfrage, auf die sich alle Aufmerksamkeit richtet, von seiner fortgesetzten Aufrüstung mit Langstreckenraketen, die Atomsprengköpfe tragen können, ebenso zu trennen, wie von seiner Unterstützung des Terrorismus (Ausstattung von Hamas und Hisbollah mit Raketen und technischem Know-How zu ihrer Entwicklung), seiner Unterwanderung gemäßigter arabischer Regime durch die Unterstützung von islamistischen Oppositionsgruppen, seinen subversiven Aktivitäten in Südamerika und seinen fortgesetzten Menschenrechtsverletzungen (wie die Verhaftung von Journalisten und Bloggern, Einschränkung politischer Rechte, Unterdrückung von Frauen etc.).</font>
+
+![""]("/UserFiles/3(1).jpg")  
+ Eine iranische Karikatur bringt die iranische Wahrnehmung US-Präsident Obamas auf den Punkt  
+ (Tasnim News Agency).
+   
+Angesichts der bereits seit mehr als einem Jahrzehnt andauernden vergeblichen Atomgespräche mit dem Land, gelingt es dem Iran – als mutmaßliche Insel der Stabilität in einem ins Chaos gestürzten Nahen Osten – die internationale Gemeinschaft immer wieder zu täuschen. Neben seinen Erfolgen im Rahmen der Gespräche, zu denen wesentliche atomare Fähigkeiten (tausende Zentrifugen und forgesetzte Atomforschung und -entwicklung) und eine regionale Stellung gehören, ist es ihm gelungen, die Atomfrage, auf die sich alle Aufmerksamkeit richtet, von seiner fortgesetzten Aufrüstung mit Langstreckenraketen, die Atomsprengköpfe tragen können, ebenso zu trennen, wie von seiner Unterstützung des Terrorismus (Ausstattung von Hamas und Hisbollah mit Raketen und technischem Know-How zu ihrer Entwicklung), seiner Unterwanderung gemäßigter arabischer Regime durch die Unterstützung von islamistischen Oppositionsgruppen, seinen subversiven Aktivitäten in Südamerika und seinen fortgesetzten Menschenrechtsverletzungen (wie die Verhaftung von Journalisten und Bloggern, Einschränkung politischer Rechte, Unterdrückung von Frauen etc.).
 
 In der Region beherrscht der Iran bereits die Politik von vier arabischen Staaten. Dazu gehören der Jemen, wo die Houthis gerade ihre Machtübernahme vollendet haben, was dem Iran Zugang und Kontrolle über die Bab el-Mandeb-Meerestraße gestattet(2), der Irak, Syrien und der Libanon. Die letzten drei bilden mit dem Iran zusammen den "Schiitischen Bogen", der vom Iran bis zum Mittelmeer reicht. Aus historischer Perspektive, die den konfessionellen Konflikt zwischen dem schiitischen Iran und den sunnitischen Araberstaaten stärker unterstreicht, kann gesagt werden, dass der Iran nunmehr sowohl Bagdad (762 vom Mansur, dem zweiten Abbasiden-Kalifen, auf den Ruinen der Hauptstadt der persischen Sassaniden, Ktesiphon, gegründet) als auch Damaskus (Hauptstadt des Islamischen Reiches während der Umayyaden-Dynastie) kontrolliert.
 
 Der Iran betrachtet sich selbst als Sühner jener historischen Ungerechtigkeiten, die dem Schia-Islam in der Geschichte der arabischen und islamischen Welt eine unterlegene Rolle zuwiesen. Das Streben, Israel einzukreisen, deckt sich mit dem Versuch auch die arabische und sunnitische Welt einzukreisen und sie an ihrer empfindlichen Unterseite zu treffen – den schiitischen Bevölkerungsgruppen, die sich in wichtigen strategischen Konzentrationen im ölreichen Osten Saudi Arabiens und im Bahrain befinden, wo eine schiitische Mehrheit von Sunniten beherrscht wird. Der Bahrain beherbergt die Fünfte Flotte der Vereinigten Staaten, die im Persischen Golf im Einsatz ist. Das Land sieht sich konstanten iranischen Unterwanderungsbemühungen ausgesetzt. Teheran stärkt die dortige Opposition.
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/Yemen-map(1).png")</font>  
-<font size=""3""><font size=""2"">Karte Jemens</font></font></div><font size=""3"">   
-Die mit Hilfe der Houthi-Rebellen faktisch vollzogene iranische Machtübernahmen im Jemen gestattet dem Land, die gemeinsame Grenze zwischen Jemen und Saudi Arabien zu unterwandern. Gleichzeitig wird damit dem amerikanischen Antiterrorkrieg ein schwerer Schlag versetzt, galt doch der Jemen als wichtiger Partner im Kampf gegen al-Qaida. In Folge wurden die amerikanische Botschaft und die Antiterror-Trainingscenter von Houthi-Rebellen besetzt und die europäischen Botschaften evakuiert. Gleichzeitig operiert der Iran an der irakischen Grenze zu Saudi Arabien. Auf diese Weise gelingt es dem Iran, seinen primären Gegner im arabischen Raum – Saudi Arabien – einzukreisen. Beide Staaten liefern sich zudem einen beständigen Schlagabtausch auf dem irakischen, syrischen und libanesischen Feld. Auf diese Weise hat der Iran Saudi Arabien bereits von Osten und im Süden in der Zange. Die Kontrolle der jemenitischen Häfen gewährleistet nun die Transfer von Waffen an die Schiiten Saudi Arabiens und an den Sudan, von wo aus sie nach Ägypten und den Gazastreifen gelangen. Deswegen brüstet sich der Iran auch mit seiner Fähigkeit, auf der See Macht zu projizieren und versenkte jüngst in einem Seemanöver der Revolutionsgarden an der strategisch wichtigen Straße von Hormuz eine Atrappe des amerikanischen Flugzeugträgers Nimitz – während gleichzeitig die Atomverhandlungen laufen.</font>
+
+![""]("/UserFiles/Yemen-map(1).png")  
+Karte Jemens
+   
+Die mit Hilfe der Houthi-Rebellen faktisch vollzogene iranische Machtübernahmen im Jemen gestattet dem Land, die gemeinsame Grenze zwischen Jemen und Saudi Arabien zu unterwandern. Gleichzeitig wird damit dem amerikanischen Antiterrorkrieg ein schwerer Schlag versetzt, galt doch der Jemen als wichtiger Partner im Kampf gegen al-Qaida. In Folge wurden die amerikanische Botschaft und die Antiterror-Trainingscenter von Houthi-Rebellen besetzt und die europäischen Botschaften evakuiert. Gleichzeitig operiert der Iran an der irakischen Grenze zu Saudi Arabien. Auf diese Weise gelingt es dem Iran, seinen primären Gegner im arabischen Raum – Saudi Arabien – einzukreisen. Beide Staaten liefern sich zudem einen beständigen Schlagabtausch auf dem irakischen, syrischen und libanesischen Feld. Auf diese Weise hat der Iran Saudi Arabien bereits von Osten und im Süden in der Zange. Die Kontrolle der jemenitischen Häfen gewährleistet nun die Transfer von Waffen an die Schiiten Saudi Arabiens und an den Sudan, von wo aus sie nach Ägypten und den Gazastreifen gelangen. Deswegen brüstet sich der Iran auch mit seiner Fähigkeit, auf der See Macht zu projizieren und versenkte jüngst in einem Seemanöver der Revolutionsgarden an der strategisch wichtigen Straße von Hormuz eine Atrappe des amerikanischen Flugzeugträgers Nimitz – während gleichzeitig die Atomverhandlungen laufen.
 
  **Wachsende Sorge unter den arabischen Regierungen**
 
@@ -68,9 +76,10 @@ Das iranische Regime wird sich in seinem Wesen nicht ändern. Seine Subversionsp
 
 Zusammengefasst lässt sich sagen, dass ein Atomabkommen mit dem Iran genau zu einem Zeitpunkt unterzeichnet werden wird, an dem sich der Nahe Osten an einem kritischen Scheideweg befindet. Der Kampf um die Neuausrichtung der Region ist noch nicht entschieden. Er wird ausgefochten zwischen Kräften des radikalen Wandels wie dem IS, Al-Qaida, der Muslimbruderschaft und dem Iran einerseits und Vertretern der alten Ordnung – den "moderaten" arabischen Staaten wie Ägypten, Saudi Arabien, den Golfstaaten, Tunesien – zusammen mit Israel andererseits. Ein Atomabkommen dürfte in aller Wahrscheinlichkeit dem Iran Auftrieb geben und über kurz oder lang den Nahen Osten in ein atomares Wettrüsten stürzen, die iranische Subversionspolitik verschärfen sowie seinen Terrorismus unter einer atomaren "Eisernen Kuppel". Dadurch entstünde eine gefährliche Realität für alle moderaten Kräfte, die in der Vergangenheit zum Teil Alliierte der Vereinigten Staaten waren.
 
-<div align=""center""><font size=""3"">**\* \* \***</font></div><font size=""3"">  
-<font size=""2"">(1) http://nssarchive.us/wp-content/uploads/2015/02/2015.pdf  
+
+**\* \* \***
+  
+(1) http://nssarchive.us/wp-content/uploads/2015/02/2015.pdf  
 (2) http://jcpa.org/article/iran-sanaa-yemen  
 (3) http://isis-online.org/uploads/isis-reports/documents/ISIS\_Analysis\_IAEA\_Report\_19February2015\_Final\_1.pdf  
 (4) http://www.wsj.com/articles/obama-parries-questions-on-iran-deal-from-arabs-as-well-as-israelis-1424475437  
-</font></font>

@@ -46,14 +46,14 @@ title: Europäisch-israelische Beziehungen nach dem Brexit
 url: /europaisch-israelische-beziehungen-nach-dem-brexit/
 ---
 
-<span small="" style=""font-size:">**Europäisch-israelische Beziehungen nach dem Brexit**  
-</span>
+**Europäisch-israelische Beziehungen nach dem Brexit**  
 
-<span small="" style=""font-size:">Freddy Eytan   
-</span>
 
-<span small="" style=""font-size:">  
-Der Brexit – d.h. die Entscheidung Großbritanniens, die EU zu verlassen – stellt in erster Linie für die Briten ein ernstzunehmendes Problem dar, das von der britischen Führung mit Umsicht und so schnell es geht gelöst werden muss.</span>
+Freddy Eytan   
+
+
+  
+Der Brexit – d.h. die Entscheidung Großbritanniens, die EU zu verlassen – stellt in erster Linie für die Briten ein ernstzunehmendes Problem dar, das von der britischen Führung mit Umsicht und so schnell es geht gelöst werden muss.
 
 Europäische Staatsoberhäupter zeigten sich von der britischen Entscheidung schockiert. Umfrageergebnissen vertrauend waren sie zuversichtlich, dass die Mehrheit der Briten Verantwortung und Solidarität unter Beweis stellen und in der EU verbleiben würden, wie es ihr Premier Cameron sich gewünscht hatte.
 

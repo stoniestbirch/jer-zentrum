@@ -18,15 +18,15 @@ excerpt: "Nachdem an dieser Stelle bereits die zehn bekanntesten Mythen über Is
   dem palästinensischen Volk&quot; zu unterhalten."
 guid: http://jer-zentrum.org/?p=77
 id: 77
-title: 11 weitere Mythen über Israel &#8211; Teil 1
+title: 11 weitere Mythen über Israel – Teil 1
 url: /11-weitere-mythen-uber-israel-teil-1/
 ---
 
-<span small="" style=""font-size:">**11 weitere Mythen über Israel – Teil 1** Alan Baker  
-</span>
+**11 weitere Mythen über Israel – Teil 1** Alan Baker  
 
-<span small="" style=""font-size:">  
-Nachdem an dieser Stelle bereits die zehn bekanntesten Mythen über Israel ihrer Unwahrheit überführt wurden, sollen nun – in zwei Teilen – weitere Anschuldigungen besprochen werden. </span>
+
+  
+Nachdem an dieser Stelle bereits die zehn bekanntesten Mythen über Israel ihrer Unwahrheit überführt wurden, sollen nun – in zwei Teilen – weitere Anschuldigungen besprochen werden. 
 
  **1. "Israel betreibt Genozid, Massenmord und ethnische Säuberung an den Palästinensern"**
 
@@ -179,21 +179,21 @@ Bedauerlicherweise hat die Palästinenserführung Vorbedingungen formuliert, die
 
 Damit steht die Glaubwürdigkeit der Palästinenserführung als ernsthaft an Verhandlungen interessierter Partner jedoch zur Debatte.
 
-**<span small="" style=""font-size:">\* \* \*</span>**
+**\* \* \***
 
-<span small="" style=""font-size:">  
-</span>
+  
 
-<span small="" style=""font-size:">   
-</span><span small="" style=""font-size:">1 Center of Constitutional Rights, The Genocide of the Palestinian People: An International Law and Human Rights Perspective; Martin Shaw, Palestine In An International Historical Perspective On Genocide, 9 Holy Land Studies 1, 13 (2010)</span>
+
+   
+1 Center of Constitutional Rights, The Genocide of the Palestinian People: An International Law and Human Rights Perspective; Martin Shaw, Palestine In An International Historical Perspective On Genocide, 9 Holy Land Studies 1, 13 (2010)
 
 2 Raphael Lemkin, Genocide- A Modern Crime, 4 Free World 39 (1945), http://www.preventgenocide.org/Lemkin/freeworld1945.htm
 
 3 http://www.mfa.gov.il/MFA/Peace+Process/Guide+to+the+Peace+Process/Declaration+of+Establishment+of+State+of+Israel.htm,   
-<span small="" style=""font-size:"><span small="" style=""font-size:">http://www.hagalil.com/israel/independence/azmauth.htm</span></span>
+http://www.hagalil.com/israel/independence/azmauth.htm
 
-<span small="" style=""font-size:">  
-4 http://www.palestine-studies.org/jps/fulltext/42605</span>
+  
+4 http://www.palestine-studies.org/jps/fulltext/42605
 
 5 http://palestinemonitor.org/details.php?id=g1zeffa8678ytm24mikjk
 

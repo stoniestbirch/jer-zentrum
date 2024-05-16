@@ -17,10 +17,14 @@ title: 'Konflikt der Erwartungen: Die iranische und die P5+1-Lesart des Genfer A
 url: /konflikt-der-erwartungen-die-iranische-und-die-p51-lesart-des-genfer-abkommens/
 ---
 
-<div align=""center"">**<font size=""3"">Konflikt der Erwartungen: Die iranische und die P5+1-Lesart des Genfer Abkommens</font>**<font size=""3"">Dore Gold</font>
 
-</div><font size=""3"">  
-**Das Genfer Abkommen**</font>
+**Konflikt der Erwartungen: Die iranische und die P5+1-Lesart des Genfer Abkommens**
+
+Dore Gold
+
+
+  
+**Das Genfer Abkommen**
 
 Das am 24. November 2013 in Genf zwischen dem Iran und den P5+1-Staaten (USA, Russland, China, Großbritannien, Frankreich und Deutschland) unterzeichnete Abkommen hat viele Fragen darüber aufgeworfen, ob es von allen beteiligten Seiten gleichermaßen interpretiert wird. Tatsächlich hat es den Anschein, als würden sich die verschiedenen Parteien nicht auf dasselbe Schriftstück beziehen. Diese Art Verwirrung ist genuiner Teil des iranischen Modus Operandi in seinen Verhandlungen mit dem Westen.
 
@@ -40,7 +44,7 @@ Zarif:
 
 Der gemeinsame Aktionsplan hat seinen Namen seinem Wesen nach, da wir für die nächsten sechs Monate eine Reihe von Maßnahmen aller Seiten erwarten…
 
-Liest man den Text, dann sieht man das von uns erwähnte Gleichgewicht. **Dazu gehören die freiwilligen Maßnahmen des Iran in der erste Phase sowie die freiwilligen Maßnahme der anderen Seite. Dass heißt, es gibt <font color=""#FF0000"">keinerlei rechtlich bindende Verpflichtung</font>, weder für uns, noch für die anderen Parteien. Was das bedeutet ist, dass alle Maßnahmen umkehrbar sind.**
+Liest man den Text, dann sieht man das von uns erwähnte Gleichgewicht. **Dazu gehören die freiwilligen Maßnahmen des Iran in der erste Phase sowie die freiwilligen Maßnahme der anderen Seite. Dass heißt, es gibt keinerlei rechtlich bindende Verpflichtung, weder für uns, noch für die anderen Parteien. Was das bedeutet ist, dass alle Maßnahmen umkehrbar sind.**
 
 **Verzögerungen im iranischen Atomprogramm**
 
@@ -50,7 +54,7 @@ Aus westlicher Perspektive war einer der klaren Zwecke der Genfer Verhandlungen 
 
 **Äußerungen des amerikanischen Außenministers John Kerry in Genf, 24. November 2013**
 
-Die Maßnahmen, auf die wir uns geeinigt haben, gelten für die nächsten 6 Monate und beziehen sich auf die dringlichsten Fragen zum iranischen Atomprogramm. Da es eine ganze Reihe vorzeitiger und oftmals irreführender Berichte dazu gegeben hat, möchte ich deutlich machen, was dieser erste Schritt bedeutet. <font color=""#FF0000"">**Zunächst werden die wichtigsten Aspekte des Atomprogramms eingefroren und damit der Fortschritt auf diesen kritischen Ebenen auf solche Art verhindert, dass der Vorrat an angereichertem Uran faktisch reduziert wird, weshalb sich die für einen „break-out“ nötige Zeit verlängert.**</font> Auf diese Weise wird die Welt sicherer. Mit täglichen Kontrollen – wir werden täglichen Zugang zu den Anlagen erhalten. Auf diese Weise wird es uns möglich sein, weit schneller und mit größerer Gewissheit denn je zuvor festzustellen, ob der Iran sich an die Abmachungen hält. Dies geschieht so: Der Iran hat eingewilligt, alle Anreicherung oberhalb 5 Prozent zu stoppen. Und der Iran hat auch eingewilligt, seinen ganzen Vorrat von 20-prozentigem Uran zu verdünnen.
+Die Maßnahmen, auf die wir uns geeinigt haben, gelten für die nächsten 6 Monate und beziehen sich auf die dringlichsten Fragen zum iranischen Atomprogramm. Da es eine ganze Reihe vorzeitiger und oftmals irreführender Berichte dazu gegeben hat, möchte ich deutlich machen, was dieser erste Schritt bedeutet. **Zunächst werden die wichtigsten Aspekte des Atomprogramms eingefroren und damit der Fortschritt auf diesen kritischen Ebenen auf solche Art verhindert, dass der Vorrat an angereichertem Uran faktisch reduziert wird, weshalb sich die für einen „break-out“ nötige Zeit verlängert.** Auf diese Weise wird die Welt sicherer. Mit täglichen Kontrollen – wir werden täglichen Zugang zu den Anlagen erhalten. Auf diese Weise wird es uns möglich sein, weit schneller und mit größerer Gewissheit denn je zuvor festzustellen, ob der Iran sich an die Abmachungen hält. Dies geschieht so: Der Iran hat eingewilligt, alle Anreicherung oberhalb 5 Prozent zu stoppen. Und der Iran hat auch eingewilligt, seinen ganzen Vorrat von 20-prozentigem Uran zu verdünnen.
 
 Lasst uns klar stellen, was das bedeutet. Während der Iran gegenwärtig über 200 Kilogramm auf 20 Prozent angereicherten Urans verfügt, die schnell zu einer Atomwaffe weiter angereichert werden könnten, wird der Iran in sechs Monaten nur noch null Kilo haben – Null.
 
@@ -66,7 +70,7 @@ Vor einer Gruppe Studenten sagte Zarif an der Universität Teheran am 3. Dezembe
 
 Und er fügte hinzu:
 
-„<font color=""#FF0000"">**Bei den Vorschlägen von Almaty** </font>\[die früheren Atomverhandlungen\] haben sie uns gesagt, dass wir die Leitungen von \[der Atomanlage in\] Fordo so umstellen müssten, so dass <font color=""#FF0000"">**eine Rückkehr zum vorherigen Zustand 9 Monate dauern** </font>würde. Heute müssen wir nur zwei Ventile zwischen einer Kaskade abschrauben.<font color=""#FF0000""> **Wenn wir uns entscheiden, Uran wieder auf 20 Prozent anzureichern, dann können wir das innerhalb von 24 Stunden wieder tun.**</font>“
+„**Bei den Vorschlägen von Almaty** \[die früheren Atomverhandlungen\] haben sie uns gesagt, dass wir die Leitungen von \[der Atomanlage in\] Fordo so umstellen müssten, so dass **eine Rückkehr zum vorherigen Zustand 9 Monate dauern** würde. Heute müssen wir nur zwei Ventile zwischen einer Kaskade abschrauben. **Wenn wir uns entscheiden, Uran wieder auf 20 Prozent anzureichern, dann können wir das innerhalb von 24 Stunden wieder tun.**“
 
 **Die Zukunft der Sanktionen**
 
@@ -82,7 +86,7 @@ Ich möchte unterstreichen, dass der architektonische Kern der Sanktionen, die v
 
 **Reaktion Präsident Hassan Rouhanis auf das Genfer Dokument (in Farsi)**
 
-**<font color=""#FF0000"">Die Kernarchitektur der Sanktionen wird aufgeweicht</font>, sobald dieses Abkommen umgesetzt wird, ob die andere Seite dies begrüßt oder nicht. Die Risse in der Struktur der Sanktion zeigten sich letzte Nacht und sie werden mit der Zeit immer größer.** Im ersten Schritt werden einige der Sanktionen allmählich aufgehoben … Es wird keine weiteren Sanktionen von heute an, dem ersten Tag dieses Abkommens geben. Einige der Sanktionen gegen die Banken werden gelockert. Diese sechsmonatige Periode markiert den Beginn einer neuen Ära für die iranische Nation … Resultat dieses Abkommens ist der Beginn von endgültigen, umfassenden Verhandlungen. Diese Verhandlungen waren nur der Anfang und konzentrierten sich auf das Atomprogramm und wir sind glücklich, dass nach 10 Jahren auf dieser Ebene ein Abkommen – und sei es nur ein vorläufig auf sechs Monate begrenztes – zwischen dem Iran und den Supermächten beschlossen wurde.
+**Die Kernarchitektur der Sanktionen wird aufgeweicht, sobald dieses Abkommen umgesetzt wird, ob die andere Seite dies begrüßt oder nicht. Die Risse in der Struktur der Sanktion zeigten sich letzte Nacht und sie werden mit der Zeit immer größer.** Im ersten Schritt werden einige der Sanktionen allmählich aufgehoben … Es wird keine weiteren Sanktionen von heute an, dem ersten Tag dieses Abkommens geben. Einige der Sanktionen gegen die Banken werden gelockert. Diese sechsmonatige Periode markiert den Beginn einer neuen Ära für die iranische Nation … Resultat dieses Abkommens ist der Beginn von endgültigen, umfassenden Verhandlungen. Diese Verhandlungen waren nur der Anfang und konzentrierten sich auf das Atomprogramm und wir sind glücklich, dass nach 10 Jahren auf dieser Ebene ein Abkommen – und sei es nur ein vorläufig auf sechs Monate begrenztes – zwischen dem Iran und den Supermächten beschlossen wurde.
 
 **Das Recht auf Anreicherung**
 

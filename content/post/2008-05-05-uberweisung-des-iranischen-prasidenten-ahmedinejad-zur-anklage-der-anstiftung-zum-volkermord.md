@@ -21,19 +21,23 @@ title: Überweisung des iranischen Präsidenten Ahmedinejad zur Anklage der “A
 url: /uberweisung-des-iranischen-prasidenten-ahmedinejad-zur-anklage-der-anstiftung-zum-volkermord/
 ---
 
-<div align=""center""><div align=""left""></div><font size=""3""><font face=""Arial""><font size=""4"">Überweisung des iranischen Präsidenten Ahmedinejad zur Anklage der “Anstiftung zum Völkermord”</font></font></font>
 
-<font face=""Arial"" size=""3"">Botschafter Meir Rosenne</font>  
-<font face=""Arial"" size=""3"">Prof. Elie Wiesel</font>  
-<font face=""Arial"" size=""3"">Botschafter Dore Gold</font>  
-<font face=""Arial"" size=""3"">Irit Kohn</font>  
-<font face=""Arial"" size=""3"">Botschafter Eytan Bentsur</font>  
-<font face=""Arial"" size=""3"">M.K. Dan Naveh</font>
 
-<font face=""Arial"" size=""3"">Hauptautor: Justus Reid Weiner, Esq.</font>
 
-</div><font face=""Arial"" size=""3"">  
-Der Präsident der Islamischen Republik Iran Mahmoud Ahmadinejad hat die Zerstörung Israels zu seiner erklärten Politik gemacht. Ahmadinejads Ankündigung, Israel müsse “von der Landkarte verschwinden”, verursachte 2005 weit verbreitete internationale Proteste. Allerdings war diese Erklärung kein isoliertes Ereignis, sondern die erste von vielen dieser Art in dem vergangenen Jahr. Tatsächlich scheint es gerechtfertigt, die Vernichtung Israels als Irans erstes außenpolitisches Ziel zu betrachten, durchgesetzt durch die Aufrüstung von Hisbollah und Hamas, das Vorantreiben von Irans aggressivem Nuklearwaffenprogramm und dem Ausbau seines Langstreckenraketenprogramms, dessen nuklear bestückbaren Raketen jeden Ort in Israel oder Europa erreichen können.</font>
+Überweisung des iranischen Präsidenten Ahmedinejad zur Anklage der “Anstiftung zum Völkermord”
+
+Botschafter Meir Rosenne  
+Prof. Elie Wiesel  
+Botschafter Dore Gold  
+Irit Kohn  
+Botschafter Eytan Bentsur  
+M.K. Dan Naveh
+
+Hauptautor: Justus Reid Weiner, Esq.
+
+
+  
+Der Präsident der Islamischen Republik Iran Mahmoud Ahmadinejad hat die Zerstörung Israels zu seiner erklärten Politik gemacht. Ahmadinejads Ankündigung, Israel müsse “von der Landkarte verschwinden”, verursachte 2005 weit verbreitete internationale Proteste. Allerdings war diese Erklärung kein isoliertes Ereignis, sondern die erste von vielen dieser Art in dem vergangenen Jahr. Tatsächlich scheint es gerechtfertigt, die Vernichtung Israels als Irans erstes außenpolitisches Ziel zu betrachten, durchgesetzt durch die Aufrüstung von Hisbollah und Hamas, das Vorantreiben von Irans aggressivem Nuklearwaffenprogramm und dem Ausbau seines Langstreckenraketenprogramms, dessen nuklear bestückbaren Raketen jeden Ort in Israel oder Europa erreichen können.
 
 Die Erklärungen des iranischen Präsidenten sind nicht nur alarmierend und beunruhigend. Sie bedeuten auch eine unmittelbare und öffentliche Anreizung zum Begehen eines Völkermords – ein schwerer Bruch internationalen Rechts. Solch eine Anstiftung erinnert an historische Beispiele von Genozid, wie er zum Beispiel in Ruanda stattfand. Der wesentliche Unterschied besteht darin, dass, während in Ruanda die Hutus mit schlichtesten Waffen wie Macheten bewaffnet waren, Iran, sollte die internationale Gemeinschaft es nicht verhindern, bald Nuklearwaffen erwerben wird. Damit erhöht sich das Risiko eines sofortigen Genozids, welcher weder Zeit noch Möglichkeit für Verteidigungsmaßnahmen lässt.
 

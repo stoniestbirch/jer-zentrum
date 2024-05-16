@@ -21,8 +21,8 @@ excerpt: 'Befasst man sich mit den Details des Plans so wird deutlich, dass JCPA
   für mein Land und mein Volk nachkäme."'
 guid: http://jer-zentrum.org/?p=4763
 id: 4763
-title: 'Dore Gold: &#8220;Wir gaben den Amerikanern etwas, woran die meisten Israelis
-  glauben&#8221;'
+title: 'Dore Gold: “Wir gaben den Amerikanern etwas, woran die meisten Israelis
+  glauben”'
 url: /dore-gold-wir-gaben-den-amerikanern-etwas-woran-die-meisten-israelis-glauben/
 ---
 

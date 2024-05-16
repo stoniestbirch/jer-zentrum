@@ -15,12 +15,12 @@ title: 'Türkei und Israel: Chance auf Versöhnung?'
 url: /turkei-und-israel-chance-auf-versohnung/
 ---
 
-<span small="" style=""font-size:"><span medium="" style=""font-size:">**Türkei und Israel: Chance auf Versöhnung?**</span></span>
+**Türkei und Israel: Chance auf Versöhnung?**
 
-<span small="" style=""font-size:"><span medium="" style=""font-size:">  
-</span>Pinhas Inbari</span>
+  
+Pinhas Inbari
 
-<span small="" style=""font-size:">Im Juni 2016 unterzeichneten die Türkei und Israel ein Versöhnungsabkommen, das von israelischer Seite betrachtet nicht unumstritten ist. (1) Teil der Übereinkunft sind Entschädigungszahlungen für die Familien der beim Sturm der Mavi Marmara-Flotille Getöteten, die Einstellung türkischer Ermittlungen gegen IDF-Soldaten und einen türkischen Zugang nach Gaza. Noch bevor die Unterschriften des Abkommens getrocknet waren, wurde die Türkei von einem Staatsstreich erschüttert, der scheiterte. Im Anschluss war das Land mit der Krise im Irak beschäftigt, wo die Anti-IS-Koalition und die Schiitenregierung in Bagdad den Angriff auf Mossul begannen und dabei die Türkei außen vor ließen.</span>
+Im Juni 2016 unterzeichneten die Türkei und Israel ein Versöhnungsabkommen, das von israelischer Seite betrachtet nicht unumstritten ist. (1) Teil der Übereinkunft sind Entschädigungszahlungen für die Familien der beim Sturm der Mavi Marmara-Flotille Getöteten, die Einstellung türkischer Ermittlungen gegen IDF-Soldaten und einen türkischen Zugang nach Gaza. Noch bevor die Unterschriften des Abkommens getrocknet waren, wurde die Türkei von einem Staatsstreich erschüttert, der scheiterte. Im Anschluss war das Land mit der Krise im Irak beschäftigt, wo die Anti-IS-Koalition und die Schiitenregierung in Bagdad den Angriff auf Mossul begannen und dabei die Türkei außen vor ließen.
 
 Was ergibt sich aus diesen Ereignissen für die israelisch-türkischen Beziehungen? Um das zu beantworten, muss zunächst der Frage nachgegangen werden, in welche Richtung die Türkei sich bewegt?
 
@@ -98,10 +98,9 @@ Die größte Schwierigkeit für das Verhältnis Türkei-Israel dürfte sich jedo
 
 Entsprechend hängt die Zukunft der israelisch-türkischen Beziehung von dieser Frage ab: Bringen die Versöhnung mit Israel sowie die Folgen des gescheiterten Putschversuchs Erdogan dazu, wieder weniger "islamisch" und mehr "türkisch" zu agieren? Mit anderen Worten, geben die nationalen türkischen Interessen wieder den Ton an oder doch die Agenda der Muslimbrüder?
 
-**<span small="" style=""font-size:">\* \* \*  
-</span>**
+---
 
-<span small="" style=""font-size:">1 http://www.mako.co.il/news-military/israel-q2\_2016/Article-300ec673df59551004.htm</span>
+1 http://www.mako.co.il/news-military/israel-q2\_2016/Article-300ec673df59551004.htm
 
 2 http://www.calcalist.co.il/local/articles/0,7340,L-3691596,00.html
 

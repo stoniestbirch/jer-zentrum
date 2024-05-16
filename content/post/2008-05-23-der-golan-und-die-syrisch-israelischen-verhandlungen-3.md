@@ -13,4 +13,33 @@ title: Der Golan und die syrisch-israelischen Verhandlungen
 url: /der-golan-und-die-syrisch-israelischen-verhandlungen-3/
 ---
 
-<div><font size=""3"">Die israelischen Unterhändler dürften in ihren Diskussionen mit den Syrern schnell auf drei Kernfrage stoßen, welche nicht so einfach gelöst werden können: die Einigung über den Grenzverlauf, Sicherheitsvereinbarungen und die syrisch-iranische Allianz.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Unmittelbar vor dem Ausbruch des Yom-Kippur-Krieges brachte Syrien entlang der Grenze 1400 Panzer gegen Israels 177 in Stellung – ein Kräfteverhältnis von 8 zu 1 für Syrien. Sollte Syrien sein beachtliches Raketenarsenal im Kriegsfall einsetzen, um israelische Reserven aufzuhalten, so wächst die Bedeutung des Golan für Israels Verteidigung, denn in dem Fall kann Israels kleiner stehende Armee länger ohne Reserven standhalten.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Als Israel einen Friedensvertrag mit Ägypten schloss verpflichtete es sich zu einem vollständigen Rückzug zu internationalen Grenzen. In den 50er Jahren hatte Syrien Gebiete innerhalb der israelischen Grenzen erobert – die demilitarisierte Zone in al-Hamma, das Banias-Gebiet und den Küstenstreifen am Nordostufer des See Genezareth. </font></div><div><font size=""3""> </font></div><div><font size=""3"">Sollte Israel der syrischen Forderung nach einem Rückzug zu der Linie vom 4. Juni 1967 zustimmen würde es nicht nur die syrische Aggression belohnen, sondern auch die Kontrolle von Israels größtem Süßwasser-Reservoir gefährden. Israel sollte mit Syrien nicht über eine Grenze verhandeln, welche entweder der vom 4. Juni 1967 oder der älteren internationalen Grenze entspricht, denn beide sind nicht verteidigungsfähig.</font></div><div><font size=""3""> </font></div><div><font size=""3"">In der Vergangenheit haben die Vereinigten Staaten Israel wiederholte diplomatische Versicherungen gegeben, dass Israel sich nicht aus den Golan-Höhen zurückziehen müsse – angefangen bei dem Schreiben US-Präsident Fords an Premier Yitzhak Rabin vom 1. September 1975, über die Erneuerung der Versicherungen in der Madrid-Friedenskonferenz durch US-Außenminister James Baker bis zur erneuerten Verpflichtung von US-Außenminister Warren Christopher im September 1996.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Selbst wenn Syrien nach vorheriger Absprache mit Teheran, Schritte zu einer anscheinenden Reduzierung der Bindung an Iran einleiten würde, die Aufgabe des Golan wäre irreversibel, politische Ausrichtungen von Staaten des Nahen Ostens hingegen notorisch unbeständig. Es wäre ein Kardinalfehler, würde Israel seine eigene Sicherheit dadurch gefährden, dass es einem Rückzug aus dem Golan zustimmt.</font></div><div><font size=""3""> </font></div><div>[<font color=""#0000ff"" size=""3"">http://www.jcpa.org/JCPA/Templates/ShowPage.asp?DRIT=1&amp;DBID=1&amp;LNGID=1&amp;TMID=111&amp;FID=283&amp;PID=0&amp;IID=2112&amp;TTL=The\_Golan\_Heights\_and\_the\_Syrian-Israeli\_Negotiations</font>]("http://www.jcpa.org/JCPA/Templates/ShowPage.asp?DRIT=1&DBID=1&LNGID=1&TMID=111&FID=283&PID=0&IID=2112&TTL=The_Golan_Heights_and_the_Syrian-Israeli_Negotiations")</div><div><font size=""3""> </font></div><div><font size=""3""> </font></div>
+
+Die israelischen Unterhändler dürften in ihren Diskussionen mit den Syrern schnell auf drei Kernfrage stoßen, welche nicht so einfach gelöst werden können: die Einigung über den Grenzverlauf, Sicherheitsvereinbarungen und die syrisch-iranische Allianz.
+
+ 
+
+Unmittelbar vor dem Ausbruch des Yom-Kippur-Krieges brachte Syrien entlang der Grenze 1400 Panzer gegen Israels 177 in Stellung – ein Kräfteverhältnis von 8 zu 1 für Syrien. Sollte Syrien sein beachtliches Raketenarsenal im Kriegsfall einsetzen, um israelische Reserven aufzuhalten, so wächst die Bedeutung des Golan für Israels Verteidigung, denn in dem Fall kann Israels kleiner stehende Armee länger ohne Reserven standhalten.
+
+ 
+
+Als Israel einen Friedensvertrag mit Ägypten schloss verpflichtete es sich zu einem vollständigen Rückzug zu internationalen Grenzen. In den 50er Jahren hatte Syrien Gebiete innerhalb der israelischen Grenzen erobert – die demilitarisierte Zone in al-Hamma, das Banias-Gebiet und den Küstenstreifen am Nordostufer des See Genezareth. 
+
+ 
+
+Sollte Israel der syrischen Forderung nach einem Rückzug zu der Linie vom 4. Juni 1967 zustimmen würde es nicht nur die syrische Aggression belohnen, sondern auch die Kontrolle von Israels größtem Süßwasser-Reservoir gefährden. Israel sollte mit Syrien nicht über eine Grenze verhandeln, welche entweder der vom 4. Juni 1967 oder der älteren internationalen Grenze entspricht, denn beide sind nicht verteidigungsfähig.
+
+ 
+
+In der Vergangenheit haben die Vereinigten Staaten Israel wiederholte diplomatische Versicherungen gegeben, dass Israel sich nicht aus den Golan-Höhen zurückziehen müsse – angefangen bei dem Schreiben US-Präsident Fords an Premier Yitzhak Rabin vom 1. September 1975, über die Erneuerung der Versicherungen in der Madrid-Friedenskonferenz durch US-Außenminister James Baker bis zur erneuerten Verpflichtung von US-Außenminister Warren Christopher im September 1996.
+
+ 
+
+Selbst wenn Syrien nach vorheriger Absprache mit Teheran, Schritte zu einer anscheinenden Reduzierung der Bindung an Iran einleiten würde, die Aufgabe des Golan wäre irreversibel, politische Ausrichtungen von Staaten des Nahen Ostens hingegen notorisch unbeständig. Es wäre ein Kardinalfehler, würde Israel seine eigene Sicherheit dadurch gefährden, dass es einem Rückzug aus dem Golan zustimmt.
+
+ 
+
+[http://www.jcpa.org/JCPA/Templates/ShowPage.asp?DRIT=1&amp;DBID=1&amp;LNGID=1&amp;TMID=111&amp;FID=283&amp;PID=0&amp;IID=2112&amp;TTL=The\_Golan\_Heights\_and\_the\_Syrian-Israeli\_Negotiations]("http://www.jcpa.org/JCPA/Templates/ShowPage.asp?DRIT=1&DBID=1&LNGID=1&TMID=111&FID=283&PID=0&IID=2112&TTL=The_Golan_Heights_and_the_Syrian-Israeli_Negotiations")
+
+ 
+
+ 

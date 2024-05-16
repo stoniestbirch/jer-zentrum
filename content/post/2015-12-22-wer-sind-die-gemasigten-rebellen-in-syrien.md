@@ -13,12 +13,12 @@ title: Wer sind die gemäßigten Rebellen in Syrien?
 url: /wer-sind-die-gemasigten-rebellen-in-syrien/
 ---
 
-**<span small="" style=""font-size:">Wer sind die gemäßigten Rebellen in Syrien?</span>**<span small="" style=""font-size:">  
-</span>
+**Wer sind die gemäßigten Rebellen in Syrien?**  
 
-<span small="" style=""font-size:">Jacques Neriah</span>
 
-<span small="" style=""font-size:"></span>
+Jacques Neriah
+
+
 
 USA und NATO haben Russland vorgeworfen, gemäßigte Rebellengruppen in Syrien anzugreifen, anstatt sich auf den Islamischen Staat zu konzentrieren. Die gemäßigte Opposition – umsorgt, bewaffnet und finanziert von den Vereinigten Staaten, der Türkei, Jordanien, Saudi Arabien und Katar – kämpfe angeblich gegen das Assad-Regime und sei dessen Alternative. Die New York Times berichtete, dass die Russen Bombenangriffe gegen die syrische Opposition fliegen würden. (1) Einem hochrangigen amerikanischen Beamten zufolge seien mindestens eine oder möglicherweise mehrere dieser von der CIA heimlich bewaffneten und ausgebildeten Oppositionsgruppen Ziel russischer Luftschläge geworden und hätten Opfer und Schäden zu beklagen gehabt.
 
@@ -54,8 +54,8 @@ Zu dieser Demütigung der USA fügte der russische Außenminister Lavrov noch we
 
 Betont werden muss, dass die schwindende Rolle der FSA in Syrien einhergeht mit einer Stärkung dschihadistischer Organisationen, die während der letzten zwei Jahre ihre Strukturen konsolidieren konnten. Diese Gruppen kamen zu dem Schluss, dass sie vereint Assads Koalition besser schlagen könnten, und so schufen sie neue organisatorische Strukturen:
 
-<span small="" style=""font-size:">  
-Die erste Koalition wurde im September 2013 gegründet, als sich ca. 50 Rebellengruppen rund um Damaskus entschieden, sich zu einer neuen Organisation namens Jaish el-Islam zusammenzuschließen, die von Zahran Alloush, Sohn eines saudischen Geistlichen und Chef der Liwa el-Islam, der größten der Gruppen, geführt wurde. Zwei Monate später waren bereits 65 Gruppen beigetreten, während 175 den Wunsch ausgedrückt hatten, sich anzuschließen.</span>
+  
+Die erste Koalition wurde im September 2013 gegründet, als sich ca. 50 Rebellengruppen rund um Damaskus entschieden, sich zu einer neuen Organisation namens Jaish el-Islam zusammenzuschließen, die von Zahran Alloush, Sohn eines saudischen Geistlichen und Chef der Liwa el-Islam, der größten der Gruppen, geführt wurde. Zwei Monate später waren bereits 65 Gruppen beigetreten, während 175 den Wunsch ausgedrückt hatten, sich anzuschließen.
 
 Anfang 2015 wurde die Jaish el-Fath ("Armee der Eroberung") im Gebiet von Idlib, Latakia und Dschisr asch-Schughur gegründet. Zu ihren Gründungsmitgliedern gehörten die aggressivsten der gegen den IS gerichteten Dschihadistenorganisationen, unter ihnen mehrere al-Qaida-Splittergruppen und -Sympathisanten: Ahrar el-Sham, al-Nusra-Front, Jund el-Aqsa, Jaish el-Sunna, Faylaq el-Sham, Liwa el-Haqq und Ajnad el-Sham. Nur vier Tage nach ihrer Gründung eroberte die Koalition am 28 März 2015 Idlib und im Anschluss das ganze Gouvernement Idlib in Nordsyrien. (17)
 
@@ -82,10 +82,10 @@ Diese Frage scheint von entscheidender Bedeutung, denn Washington hat sich entsc
 
 Dieses Rezept erscheint jedoch äußerst problematisch. Zum einen ist es schwer umzusetzen. Zum anderen hat es kein klar definiertes Ziel: d.h. unter Umständen kann sich auf diese Weise die Taliban-Situation wiederholen, die in Afghanistan nach Abzug des Sowjets entstand oder aber das Chaos, das im Irak nach dem amerikanischen Abzug um sich griff, als die sunnitische Minderheitenregierung durch ein schiitisches Regime ersetzt wurde, das den Irak praktisch geteilt hat.
 
-<span small="" style=""font-size:">**‘ ‘ ‘**  
-</span>
+**‘ ‘ ‘**  
 
-<span small="" style=""font-size:"><span style=""font-size:" x-small="">1 http://www.nytimes.com/2015/10/01/world/europe/russia-airstrikes-syria.html?\_r=0</span></span>
+
+1 http://www.nytimes.com/2015/10/01/world/europe/russia-airstrikes-syria.html?\_r=0
 
 2 http://www.bbc.com/news/world-middle-east-24403003
 

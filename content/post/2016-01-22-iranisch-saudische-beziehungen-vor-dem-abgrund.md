@@ -17,12 +17,12 @@ title: Iranisch-Saudische Beziehungen vor dem Abgrund
 url: /iranisch-saudische-beziehungen-vor-dem-abgrund/
 ---
 
-<span small="" style=""font-size:">**Iranisch-Saudische Beziehungen vor dem Abgrund**</span>
+**Iranisch-Saudische Beziehungen vor dem Abgrund**
 
 GenLt. Michael Segall
 
-<span small="" style=""font-size:">  
-Die Hinrichtung eines der wichtigsten Schiitenführer Saudi Arabiens Scheich Nimr Baqir al-Nimr, der die schiitische Protestwelle während des Arabischen Frühlings anführte, treibt die historischen Spannungen zwischen Teheran und Riad auf einen neuen Höhepunkt. In seinen Predigten hatte er das saudische Königshaus scharf kritisiert ("Befreit Palästina und nicht Bahrain") und seine Unterstützung für den Iran bekundet.(1) Diese Reden wurden zur Grundlage für das 2014 ausgesprochene Todesurteil, das zusammen mit 46 anderen, auf Terrorismusanschuldigungen beruhenden (vier davon galten Schiiten) Anfang Januar vollstreckt wurde. Die Hinrichtung führte zu Unruhen im Gouvernement Qatif im Osten des Königreichs.</span>
+  
+Die Hinrichtung eines der wichtigsten Schiitenführer Saudi Arabiens Scheich Nimr Baqir al-Nimr, der die schiitische Protestwelle während des Arabischen Frühlings anführte, treibt die historischen Spannungen zwischen Teheran und Riad auf einen neuen Höhepunkt. In seinen Predigten hatte er das saudische Königshaus scharf kritisiert ("Befreit Palästina und nicht Bahrain") und seine Unterstützung für den Iran bekundet.(1) Diese Reden wurden zur Grundlage für das 2014 ausgesprochene Todesurteil, das zusammen mit 46 anderen, auf Terrorismusanschuldigungen beruhenden (vier davon galten Schiiten) Anfang Januar vollstreckt wurde. Die Hinrichtung führte zu Unruhen im Gouvernement Qatif im Osten des Königreichs.
 
 Der Oberste Führer des Iran Khamenei verlor keine Zeit damit, die Drohung auszusprechen, dass diese Hinrichtung nicht ohne Konsequenzen bleiben werde. Der Iran hatte bereits zuvor einige Male vor der Vollstreckung gewarnt. Khamenei erklärte: "Zweifelsohne wird das Blut dieses unschuldigen Märtyrers seine Spuren hinterlassen. Saudische Politiker werden die Rache des Himmels spüren." (2) Die Worte Khameneis, der das Schweigen des Westen und der Menschenrechtsorganisationen anklagte, verbreiteten sich in sozialen Netzwerken in verschiedenen Sprachen. (3)
 
@@ -64,11 +64,11 @@ Der Iran wird also den Vorteil des Atomprogramms, seiner inneren Stabilität und
 
 Der Iran und Saudi Arabien befinden sich bereits in einem Kalten Krieg um den Einfluss im Nahen Osten und darüber hinaus. Der Kampf zwischen den beiden islamischen Konfessionen wird sich fortsetzen und im Kontext der regionalen und internationalen Entwicklungen entfalten. Noch mehr als die Anreicherung von Uran fürchten die Saudis die um sich greifende iranische Subversion weiter Teile des Nahen Ostens und der islamischen Welt. Beide Mächte bereiten sich auf jenen Tag vor, an dem der Kalte Krieg zu einem heißen werden wird. Einem brandheißen.
 
-<span small="" style=""font-size:">  
-**\* \* \***  
-</span>
+  
+--- 
 
-<span small="" style=""font-size:">1 https://www.youtube.com/watch?v=TnOGeNSKyWk</span>
+
+1 https://www.youtube.com/watch?v=TnOGeNSKyWk
 
 2 http://en.farsnews.com/newstext.aspx?nn=13941013000244
 

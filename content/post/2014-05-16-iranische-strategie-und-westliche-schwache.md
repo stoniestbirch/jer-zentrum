@@ -18,9 +18,13 @@ title: Iranische Strategie und westliche Schwäche
 url: /iranische-strategie-und-westliche-schwache/
 ---
 
-<div align=""center"">**<font size=""3"">Iranische Strategie und westliche Schwäche</font>**<font size=""3"">Michael Segall</font>
 
-</div><font size=""3""></font>
+**Iranische Strategie und westliche Schwäche**
+
+Michael Segall
+
+
+
 
 Für Mitte Mai ist eine weitere Runde der Atomgespräche zwischen Iran und dem Westen angesetzt. Eine Sprecherin des iranischen Außenministeriums gab bekannt, dass der Iran und die P5+1-Staaten in Wien damit beginnen werden, ein endgültiges Atomabkommen auszuarbeiten, dessen Rahmenbedingungen bereits festgelegt seien. In den vergangenen Wochen ist das Thema aufgrund der aktuellen Krise in der Ukraine zwischen dem Westen und Russland (ein wesentliches Mitglied der Atomverhandlungen) an den Rand gedrängt worden – was dem Iran sicherlich nicht ungelegen kam. Gleichzeitig bleiben viele Fragen offen, die die iranischen Verpflichtungen des Genfer Abkommens betreffen und das Ausmaß, mit dem sie erfüllt wurden.
 
@@ -80,5 +84,6 @@ Der Westen erscheint in iranischen Augen daher als schwach. Es ist also zu erwar
 
 Sollte dies die vorherrschende Stimmung bei der aktuellen Verhandlungsrunde bleiben, dann besteht Anlass zur Sorge.
 
-<div align=""center"">**<font size=""3"">\* \* \*</font>**</div><font size=""3"">  
-</font>
+
+**\* \* \***
+  

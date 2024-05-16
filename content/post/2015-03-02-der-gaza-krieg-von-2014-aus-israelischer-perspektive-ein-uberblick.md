@@ -15,18 +15,24 @@ title: 'Der Gaza-Krieg von 2014 aus israelischer Perspektive: Ein Überblick'
 url: /der-gaza-krieg-von-2014-aus-israelischer-perspektive-ein-uberblick/
 ---
 
-<div align=""center""><font face=""Arial"" size=""3""><font size=""4"">**![""]("/UserFiles/Hirsh_Top_WEB-1024x719.jpg")**</font></font><font face=""Arial"">  
-</font> </div><font face=""Arial""> <font size=""3""><font size=""4"">  
-</font></font></font>
 
-<div align=""center""><font face=""Arial""><font size=""3""><font size=""4""> <font size=""2"">Raketenbeschuss durch die Hamas aus dem dicht bevölkerten Gaza-City, 15. Juli 2014. Das israelische Kraftwerk in Ashkelon ist im Hintergrund sichtbar. (AFP/Thomas Coex)</font></font></font></font></div><font face=""Arial""><font size=""3""><font size=""4"">   
-</font></font> </font>
+**![""]("/UserFiles/Hirsh_Top_WEB-1024x719.jpg")**  
+ 
+   
 
-<div align=""center""><font color=""#003366"" face=""Arial"" size=""3""><font size=""4"">**Der Gaza-Krieg von 2014 aus israelischer Perspektive: Ein Überblick**</font></font><font color=""#008080"" face=""Arial"">  
-</font><font face=""Arial"">  
-</font> <font face=""Arial"" size=""3"">**Hirsh Goodman**</font><font face=""Arial"">  
-</font> </div><font face=""Arial""> <font size=""3"">  
-<font color=""#003366"">**Die abgewendete Katastrophe**</font></font></font>
+
+
+ Raketenbeschuss durch die Hamas aus dem dicht bevölkerten Gaza-City, 15. Juli 2014. Das israelische Kraftwerk in Ashkelon ist im Hintergrund sichtbar. (AFP/Thomas Coex)
+   
+ 
+
+
+**Der Gaza-Krieg von 2014 aus israelischer Perspektive: Ein Überblick**  
+  
+ **Hirsh Goodman**  
+ 
+   
+**Die abgewendete Katastrophe**
 
 Der Gaza-Krieg von 2014 erwies sich als grundlegendes Ereignis in Israel, einen Moment, in dem eine potentielle Katastrophe abgewendet wurde als indirektes Resultat eines Krieges, den Israel nicht wünschte und zu beschränken suchte, nachdem die Feindseligkeiten ausgebrochen waren. Während der folgenden 50 Tage Krieg, die am 8. Juli einsetzten, lehnte die Hamas 11 internationale Versuche, einen Waffenstillstand herbeizuführen, ab oder verletzte diesen. Währenddessen saßen ihre Führer sicher in Bunkeranlagen des Gazastreifens oder im Hauptquartier in Katar, gleichgültig gegenüber dem Leiden ihres Volkes.
 
@@ -40,19 +46,19 @@ Durch die punktgenauen Luftschläge mit ihren – angesichts der Wohnblöcke im 
 
 ---
 
-<font face=""Arial"">   
-</font>
+   
 
-> > > > <font face=""Arial"" size=""3"">***<font size=""3"">Während des Krieges lehnte die Hamas 11 Versuche, einen Waffenstillstand herbeizuführen, ab oder verletzte diesen. Währenddessen saßen ihre Führer sicher in Bunkeranlagen des Gazastreifens gleichgültig gegenüber dem Leiden ihres Volkes.</font>***</font><font face=""Arial"">  
-> > > > </font>
 
-<font face=""Arial"" size=""3"">  
-</font>
+> > > > ***Während des Krieges lehnte die Hamas 11 Versuche, einen Waffenstillstand herbeizuführen, ab oder verletzte diesen. Währenddessen saßen ihre Führer sicher in Bunkeranlagen des Gazastreifens gleichgültig gegenüber dem Leiden ihres Volkes.***  
+> > > > 
+
+  
+
 
 ---
 
-<font face=""Arial""> <font size=""3"">  
-Das Gleiche galt für den Versuch, den Konflikt zu verlängern. Auf diese Weise hat sich die Hamas im Wesentlichen selbst eine Niederlage bereitet. Der Einmarsch Israels reichte zwar nur drei Kilometer weit, da die IDF Kampf in Gazas Bevölkerungszentren vermeiden wollten. Doch indem die Hamas es auf einen israelischen Einsatz von Bodentruppen ankommen ließ, verriet sie ihren viel heimtückischeren Plan. Sie hatte still und heimlich Vorkehrungen für Überraschungsangriffe auf Israel getroffen, die zum Massaker an zahllosen israelischen Zivilisten geführt und auf die zivile Infrastruktur Israels wie Kraftwerke und andere empfindliche Einrichtungen abgezielt hätten.</font></font>
+   
+Das Gleiche galt für den Versuch, den Konflikt zu verlängern. Auf diese Weise hat sich die Hamas im Wesentlichen selbst eine Niederlage bereitet. Der Einmarsch Israels reichte zwar nur drei Kilometer weit, da die IDF Kampf in Gazas Bevölkerungszentren vermeiden wollten. Doch indem die Hamas es auf einen israelischen Einsatz von Bodentruppen ankommen ließ, verriet sie ihren viel heimtückischeren Plan. Sie hatte still und heimlich Vorkehrungen für Überraschungsangriffe auf Israel getroffen, die zum Massaker an zahllosen israelischen Zivilisten geführt und auf die zivile Infrastruktur Israels wie Kraftwerke und andere empfindliche Einrichtungen abgezielt hätten.
 
 Im Herzen dieses Plans stand ein anspruchsvolles Netzwerk von Angriffstunneln, das unter der israelischen Grenze hindurch führte und für welches zig Millionen Dollar ausgegeben worden waren. In den Tunneln war genug Zement verbaut worden, das nach konservativen Schätzungen für zwei mehrgeschossigen Krankenhäuser, 20 Schulen, drei Hochhäuser und einige andere öffentliche Strukturen gereicht hätte.
 
@@ -60,14 +66,18 @@ Dass die Hamas Tunnel zum Schmuggel von Waffen und Gütern nach Gaza verwendet s
 
 Mit Finanzhilfen wie der aus Katar, hatte die Hamas eine Infrastruktur für einen Überraschungsangriff aufgebaut. Zusätzlich zu dem Angriff durch die Tunnel wären tausende von Raketen wären auf israelische Wohngebiete nieder gegangen, von denen manche dreimal so hohe Bevölkerungsdichte aufweisen wie Gaza.(2) Gleichzeitig wäre dieser Angriff durch Kampfschwimmer aus dem Meer begleitet gewesen und Terroristen, die mit Hilfe von Paraglidern strategische Ziele in Israel angegriffen hätten(3) – soviel ist nunmehr aus der Aufrüstung der Hamas ersichtlich.
 
-<div align=""center""><font face=""Arial"" size=""3"">![""]("/UserFiles/2RTR42YK4_web-1024x683.jpg")</font><font face=""Arial"">  
-</font> </div><font face=""Arial""> <font size=""3"">  
-</font> </font>
 
-<div align=""center""><font face=""Arial"" size=""3"">Hamas-Terroristen sammeln sich in einem Untergrundtunnel in Gaza. 18. August 2014.</font><font face=""Arial"">  
-</font> <font face=""Arial"" size=""3"">(Reuters/Mohammed Salem)</font><font face=""Arial"">  
-</font> </div><font face=""Arial""> <font size=""3"">  
-Hier arbeitete die Hamas an der Möglichkeit einer terroristischen Version des Yom-Kippur-Krieges von 1973. Damals hatten Ägypten und Syrien einen Überraschungsangriff auf die israelischen Truppen im Sinai und auf dem Golan gestartet. Heute wären jedoch die Städte Israels zu Schlachtfelder und die israelischen Zivilisten zu den Opfern des Krieges geworden. Es wäre kein Krieg gewesen, um Gebiete zurückzugewinnen, die man im letzten Krieg verloren hatte, sondern die unauslöschliche Botschaft, dass die Hamas die Existenz Israels niemals hinnehmen würde.</font></font>
+![""]("/UserFiles/2RTR42YK4_web-1024x683.jpg")  
+ 
+   
+ 
+
+
+Hamas-Terroristen sammeln sich in einem Untergrundtunnel in Gaza. 18. August 2014.  
+ (Reuters/Mohammed Salem)  
+ 
+   
+Hier arbeitete die Hamas an der Möglichkeit einer terroristischen Version des Yom-Kippur-Krieges von 1973. Damals hatten Ägypten und Syrien einen Überraschungsangriff auf die israelischen Truppen im Sinai und auf dem Golan gestartet. Heute wären jedoch die Städte Israels zu Schlachtfelder und die israelischen Zivilisten zu den Opfern des Krieges geworden. Es wäre kein Krieg gewesen, um Gebiete zurückzugewinnen, die man im letzten Krieg verloren hatte, sondern die unauslöschliche Botschaft, dass die Hamas die Existenz Israels niemals hinnehmen würde.
 
 Israel hatte die Bedrohung durch diese Tunnel unterschätzt und die Bedeutung der beiden 2013 entdeckten, ausgeklügelten Tunnel nicht vollständig verstanden, deren Ausgänge mehrere hundert Meter weit auf israelisches Gebiet hineinragten. Man war damals davon ausgegangen, dass die Hamas sie lediglich für lokale Terroranschläge gebrauchen wollte, wenn auch von etwas größerem Ausmaß als in der Vergangenheit. So dachte man, die Hamas habe lediglich vor, Geiseln zu nehmen, um sie nach Gaza zu verschleppen und als Mittel zu nutzen, um die Erleichterung der von Israel und Ägypten verhängten Blockade gegen sie zu erpressen, so dass sie militärisch nutzbares Material importieren könnte.
 
@@ -79,7 +89,7 @@ Israel deutete die Angelegenheit weiterhin so, dass die Hamas diese, die Grenzen
 
 Der Gaza-Krieg von 2014 erwies sich für Israel nicht nur dahingehend als entscheidend, wie er von der Hamas geführt und von der internationalen Presse in Gaza berichtet wurde, sondern weil mit ihm ganz unbeabsichtigt die Möglichkeit eines zukünftigen Massakers in Israel verhindert wurde.
 
-<font color=""#003366"">**Ein Krieg, den Israel nicht gesucht hat**</font>
+**Ein Krieg, den Israel nicht gesucht hat**
 
 Der Krieg von 2014 war ein Krieg, den Israel gern verhindert hätte, bei dem alles getan wurde, ihn zu begrenzen und in dem Israel sogar alle internationalen Waffenstillstände unterstützt hat, selbst wenn die ganze militärische Infrastruktur der Hamas in Gaza intakt geblieben wäre.
 
@@ -109,12 +119,14 @@ Diese ökonomischen Realitäten sowie die Brutalität der Hamas gegen all jene, 
 
 Diese Dynamik nahm eine neue Wendung, als in der Nacht zum 12. Juni 2014 Hamas-Aktivisten im Westjordanland drei israelische Teenager entführten, nachdem es ihnen gelungen war, sie an einer Bushaltestelle außerhalb der Siedlung Alon Shvut (Teil des Gush-Etzion-Blocks) in ihr Auto zu locken. Ein hochrangiges Hamas-Mitglied, das gegenwärtig in der Türkei lebt, nachdem Israel ihn 2010 deportiert hatte, hatte den Plan dazu entworfen und sorgte für seine Umsetzung.
 
-<div align=""center""><font face=""Arial"" size=""3"">![""]("/UserFiles/314365728610_1f562d3b5b_k-1024x682.jpg")</font><font face=""Arial"">  
-</font> <font face=""Arial"">  
+
+![""]("/UserFiles/314365728610_1f562d3b5b_k-1024x682.jpg")  
+   
 Der israelische Premier Netanyahu spricht auf der Beerdigung von Eyal Yifrach, Naftali Frankel und Gilad Shaar am 1. Juli 2014.  
  Die drei wurden von der Hamas im Westjordanland am 12. Juni entführt und ermordet. (PMO/Flickr)  
-</font> </div><font face=""Arial""> <font size=""3"">  
-Die IDF versuchten, die entführten Teenager ausfindig zu machen und die Täter zu stellen, und begannen daher mit der Operation „Brothers’ Keeper“ – der größten Militäraktion im Westjordanland seit dem Höhepunkt der Zweiten Intifada 2002. Gleichzeitig wurde massiv gegen die Hamas-Institutionen in der West Bank vorgegangen, die sich wieder auszubreiten begonnen hatten und durch die im Rahmen des Shalit-Austauschs freigelassenen Terroristen wiederbelebt wurden. 51 der damals Freigelassenen wurden während der Operation verhaftet.(10) </font></font>
+ 
+   
+Die IDF versuchten, die entführten Teenager ausfindig zu machen und die Täter zu stellen, und begannen daher mit der Operation „Brothers’ Keeper“ – der größten Militäraktion im Westjordanland seit dem Höhepunkt der Zweiten Intifada 2002. Gleichzeitig wurde massiv gegen die Hamas-Institutionen in der West Bank vorgegangen, die sich wieder auszubreiten begonnen hatten und durch die im Rahmen des Shalit-Austauschs freigelassenen Terroristen wiederbelebt wurden. 51 der damals Freigelassenen wurden während der Operation verhaftet.(10) 
 
 Die Entführung und die Ungewissheit über das Schicksal der drei Studenten erregte Israel in nahezu präzedenzlosem Ausmaß. Die Schmerzen der Familien waren medial vermittelt und berührten in ihrer so vertrauten und vorbildhaften Art und Weise die ganze Nation.
 
@@ -130,12 +142,14 @@ Die Spannungen erreichten einen Höhepunkt als am 2. Juli ein 16-jähriger Palä
 
 Im Westjordanland wurde die Atmosphäre explosiv. Es kam zu gewalttätigen Ausschreitungen in Jerusalem, einschließlich des Tempelberges. Die Regierung entschied sich jedoch abermals, ihre Reaktion auf den eskalierenden Raketenterror so niedrigschwellig es ging zu halten, um keinen aus dem Ruder laufenden Grenzkonflikt zu kreiieren.
 
-<div align=""center""><font face=""Arial"" size=""3"">![""]("/UserFiles/4mideast_israel_iron_dome2-1024x683.jpg")</font><font face=""Arial"">  
-</font> <font face=""Arial"">  
+
+![""]("/UserFiles/4mideast_israel_iron_dome2-1024x683.jpg")  
+   
 Das Raketenabwehrsystem "Eiserne Kuppel" in Tel Aviv feuert eine Abfangrakete auf einen aus Gaza kommenden Raketenangriff, 9. Juli 2014.  
  (AP/Dan Balilty)  
-</font> </div><font face=""Arial""> <font size=""3"">  
-Angesichts des Erfolgs der „Eisernen Kuppel“ und dem vergleichsweise geringen Schaden, den die zunehmenden Raketenangriffe verursachten, sowie der Komplexität einer groß angelegten Militäroperation in Gaza, entschied sich die israelische Sicherheitskabinet – trotz wachsender innerer Kritik der Inaktivität, aber auf starkes Anraten des Verteidigungsestablishments – für fortgesetzte Zurückhaltung. Man hoffte, das Problem mit Gaza schließlich diplomatisch lösen zu können. „Die Erfahrung hat gezeigt, dass man in Momenten wie diesen mit kühlem Kopf und verantwortlich handeln sollte und nicht überstürzt,“ sagte der israelische Premierminister Netanyahu am 6. Juli.(12) Man beurteilte die Lage so, dass die Hamas nicht einen umfassenden Krieg anstrebte, sondern lediglich das taktische Ziel hatte, ihre Unterstützung und Kontrolle in Gaza zu halten.</font></font>
+ 
+   
+Angesichts des Erfolgs der „Eisernen Kuppel“ und dem vergleichsweise geringen Schaden, den die zunehmenden Raketenangriffe verursachten, sowie der Komplexität einer groß angelegten Militäroperation in Gaza, entschied sich die israelische Sicherheitskabinet – trotz wachsender innerer Kritik der Inaktivität, aber auf starkes Anraten des Verteidigungsestablishments – für fortgesetzte Zurückhaltung. Man hoffte, das Problem mit Gaza schließlich diplomatisch lösen zu können. „Die Erfahrung hat gezeigt, dass man in Momenten wie diesen mit kühlem Kopf und verantwortlich handeln sollte und nicht überstürzt,“ sagte der israelische Premierminister Netanyahu am 6. Juli.(12) Man beurteilte die Lage so, dass die Hamas nicht einen umfassenden Krieg anstrebte, sondern lediglich das taktische Ziel hatte, ihre Unterstützung und Kontrolle in Gaza zu halten.
 
 Die Situation eskalierte jedoch zusehends. Am 7. Juli wurden Panzerabwehrraketen auf IDF-Truppen entlang des Grenzzauns gefeuert.(13) Später starben sechs Hamas-Kämpfer bei der Explosion in einem noch nicht fertig gestellten Tunnel in Südgaza. Insgesamt 68 Raketen wurden an diesem Tag von der Hamas und anderen Gruppen auf Israel geschossen, u.a. auch die große südisraelische Stadt Beersheba.(14)
 
@@ -143,13 +157,15 @@ In der Nacht zum 8. Juli erreichten die palästinensischen Raketen Tel Aviv, Jer
 
 Der Krieg mit der Hamas wurde unvermeidlich und so wurde am 8. Juli in Reaktion auf die wachsenden Angriffe aus Gaza die Operation „Schutzrand“ ausgerufen.
 
-<div align=""center""><font face=""Arial"" size=""3"">![""]("/UserFiles/520140712093702528afp-1024x615.jpg")</font><font face=""Arial"">  
-</font> <font face=""Arial"">  
+
+![""]("/UserFiles/520140712093702528afp-1024x615.jpg")  
+   
 Einwohner Beershebas begutachten die Schäden an einem Haus vom 12. Juli 2014, nachdem es von eine palästinensischen Rakete aus dem Gazastreifen getroffen wurde.   
 Ohne "Eiserne Kuppel" würden hunderte von israelischen Häusern ähnlich aussehen. (AFP/Menahem Kehana)  
-</font> </div><font face=""Arial""> <font size=""3""></font></font>
+ 
+ 
 
-<font color=""#003366"">**Opfer des Krieges: Die Wahrheit**</font>
+**Opfer des Krieges: Die Wahrheit**
 
 Operation „Schutzrand“ eskalierte zu einem 50-tägigen Konflikt, in dem die Hamas und andere Gruppen 4,258 Raketen und zahllose Mörsergranaten auf Israel abfeuerten. Israel reagierte mit 5,226 Luftschlägen und einer begrenzten Bodenkampagne.(15) Wie viele Menschen tatsächlich in Gaza starben, ist bis heute nicht vollständig geklärt, doch man geht von über 2,100 toten Kämpfern und Zivilisten aus. Auf israelischer Seite gab es 74 Tote. Hätte das Raketenabfangsystem „Eiserne Kuppel“ nicht 735 Raketen abgefangen, deren Ziele in dicht bevölkerten Gebieten lagen, dann wäre die Zahl der israelischen Opfer weit höher gewesen.(16)
 
@@ -163,27 +179,29 @@ Der höchstrangige Offizier der Vereinigten Staaten, der Vorsitzende der Vereini
 
 ---
 
-<font face=""Arial"">   
-</font>
+   
 
-> > <font face=""Arial"">***<font size=""3""><font size=""3"">Israel ist "außerordentlich weit gegangen, um Kollateralschäden und zivile Opfer in Gaza zu vermeiden.“  
-> > </font></font><font size=""3""><font size=""3"">Gen. Martin Dempsey, </font>Vorsitzender der Vereinigten Generalstäbe der USA, </font>***<font size=""3"">***<font size=""3""><font size=""3"">6. November 2014</font></font>***</font>  
-> > </font>
 
-<font face=""Arial"" size=""3"">  
-</font>
+> > ***Israel ist "außerordentlich weit gegangen, um Kollateralschäden und zivile Opfer in Gaza zu vermeiden.“  
+> > Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, ******6. November 2014***  
+> > 
+
+  
+
 
 ---
 
-<font face=""Arial""> <font size=""3""></font></font>
+ 
 
-<font size=""2"">  
-</font>
+  
 
-<div align=""center""><font face=""Arial""><font size=""3""><font size=""2""> <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/QAsutHJGGo8"" width=""420""></iframe>Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, lobt die "umfangreichen Anstrengungen" Israels, zivile Opfer in Gaza zu vermeiden.
 
-</font></font></font></div><font face=""Arial""><font size=""3"">   
-Doch das ist nicht das Bild, das die meisten Menschen von diesem Krieg haben, denn 50 Tage lang wurde die öffentliche Meinung stärker von dem Bildmaterial der Hamas und ihrer Berichterstattung gefüttert, das geschickt manipuliert wurde, um der „Opferdoktrin“ Genüge zu tun. Die Opferzahlen wurden trotz undurchsichtiger Quellenlage und ohne Bestätigung wie ein Evangelium heruntergebetet. Nur wenige der internationalen Medien, die sich während des Konfliktes in Gaza aufhielten (oder deren Redakteure daheim), wagten es, die ihnen auferlegten Beschränkungen in Frage zu stellen aus Angst vor Vergeltung.</font></font>
+
+ <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/QAsutHJGGo8"" width=""420""></iframe>Gen. Martin Dempsey, Vorsitzender der Vereinigten Generalstäbe der USA, lobt die "umfangreichen Anstrengungen" Israels, zivile Opfer in Gaza zu vermeiden.
+
+
+   
+Doch das ist nicht das Bild, das die meisten Menschen von diesem Krieg haben, denn 50 Tage lang wurde die öffentliche Meinung stärker von dem Bildmaterial der Hamas und ihrer Berichterstattung gefüttert, das geschickt manipuliert wurde, um der „Opferdoktrin“ Genüge zu tun. Die Opferzahlen wurden trotz undurchsichtiger Quellenlage und ohne Bestätigung wie ein Evangelium heruntergebetet. Nur wenige der internationalen Medien, die sich während des Konfliktes in Gaza aufhielten (oder deren Redakteure daheim), wagten es, die ihnen auferlegten Beschränkungen in Frage zu stellen aus Angst vor Vergeltung.
 
 Ein deutliches Zeichen wie schwerwiegend diese Beschränkungen waren, lässt sich aus der Erklärung der Foreign Press Association (FPA) vom 11. August in Jerusalem ablesen, in dem die FPA „aufs Schärfste gegen die offenkundigen, unablässigen, gewalttätigen und unorthodoxen Methoden der Hamas-Authoritäten und ihrer Vertreter gegen internationale Journalisten in Gaza im vergangenen Monat \[protestiert\].“ (20) Die Stellungnahme führte aus, dass die internationale Presse „nicht durch Drohungen oder Druck davon abgehalten werden \[kann\], zu berichten, denn sonst würde ihren Lesern und Zuschauern ein objektives Bild der Verhältnisse verweigert.“
 
@@ -193,19 +211,19 @@ Die IDF gehören zu den ersten, die eingestehen würden, dass – aller Vorsicht
 
 ---
 
-<font face=""Arial"">   
-</font>
+   
 
-> > <font face=""Arial"">***<font size=""3"">Dabei ist selektive Blindheit kein doppelter Standard – es ist die Abwesenheit eines Standards. </font>***  
-> > </font>
 
-<font face=""Arial"" size=""3"">  
-</font>
+> > ***Dabei ist selektive Blindheit kein doppelter Standard – es ist die Abwesenheit eines Standards. ***  
+> > 
+
+  
+
 
 ---
 
-<font face=""Arial"">   
-<font size=""3"">Aus diesen Gründen verkündete das IDF-Military Advocate General’s Corps (MAG) am 10. September auf einer Pressekonferenz vor der internationalen Presse, dass eine vorläufige militärische Untersuchung von 55 mutmaßlichen Fällen militärischen Fehlverhaltens sowie fünf möglichen Fällen von strafrechtlichen Verhaltung anberaumt sei, wozu Fälle gehörten wie der Tod von 16 Zivilisten, die in einer UN-Schule in Beit Hanoun Zuflucht gefunden hatten sowie der Tod von vier Jungen, die starben, als sie am Strand von Gaza spielten. (21) </font></font>
+   
+Aus diesen Gründen verkündete das IDF-Military Advocate General’s Corps (MAG) am 10. September auf einer Pressekonferenz vor der internationalen Presse, dass eine vorläufige militärische Untersuchung von 55 mutmaßlichen Fällen militärischen Fehlverhaltens sowie fünf möglichen Fällen von strafrechtlichen Verhaltung anberaumt sei, wozu Fälle gehörten wie der Tod von 16 Zivilisten, die in einer UN-Schule in Beit Hanoun Zuflucht gefunden hatten sowie der Tod von vier Jungen, die starben, als sie am Strand von Gaza spielten. (21) 
 
 Am 6. Dezember erklärte der Sprecher der IDF, dass auf Grundlage der Empfehlung des FFAM (Fact Finding Assessment Mechanism) – einem unabhängigen juristischen Untersuchungskomitee – acht weitere strafrechtliche Untersuchungen in die Wege geleitete wurden und 85 weitere Fälle derzeit überprüft würden. (22)
 
@@ -227,7 +245,7 @@ Die Asymmetrie verfügt über viele Facetten jenseits der reinen Zahlen, wie der
 
 Aufgrund vergangener Erfahrung war sich Israel darüber absolut im Klaren, welche Schwierigkeiten ein Krieg in Gaza mit sich bringen würde – immerhin ein Gebiet von 360 Quadratkilometern, ungefähr zweimal die Größe von Washington D.C., bewohnt von 1.82 Mio Einwohnern und zu 75 Prozent urbanisiert. Ohne die fürchterliche Realität leugnen zu wollen, die der Krieg für die Menschen in Gaza bedeutet hat, muss man sich doch vor Augen halten, dass 5,226 Luftschläge gegen die Hamas, die sich während der 50 Tage in der zivilen Infrastruktur eingegraben hatte, ein weit höhere Opferzahl produziert hätten, wären Israel die Folgen für die Zivilbevölkerung gleichgültig.
 
-<font color=""#003366"">**Falsches Spiel des Menschenrechtsrates**</font>
+**Falsches Spiel des Menschenrechtsrates**
 
 Die Regierungen der Welt, einschließlich der gemäßigt arabischen, standen überwältigend hinter Israel, auch wenn es anti-israelische Demonstrationen von NGOs in Europa und den Vereinigten Staaten gab. Die Regierenden waren sich darüber im Klaren, welche Partei den Krieg begonnen hatte und dafür verantwortlich war, dass der Konflikt fortdauerte, indem sie alle internationalen Schlichtungsversuche ablehnte.
 
@@ -237,35 +255,37 @@ Am 8. Juli verurteilte der Sprecher des Weißen Hauses Josh Earnest entschieden 
 
 ---
 
-<font face=""Arial""> </font>
+ 
 
-> <font face=""Arial"" size=""3"">***<font size=""3"">  
-> Am 8. Juli verurteilte der Sprecher des Weißen Hauses Josh Earnest entschieden „den fortgesetzen Raketenbeschuss auf israelisches Gebiet und die vorsätzlichen Angriffe auf Zivilisten durch Terrororganisationen in Gaza“ und fügte hinzu, dass „kein Land \[…\] Raketenangriffe auf seine Zivilisten hinnehmen \[kann\]. Wir unterstützen Israels Selbstverteidigungsrecht gegen diese böswilligen Attacken.“</font>***</font><font face=""Arial"">  
-> </font>
+> ***  
+> Am 8. Juli verurteilte der Sprecher des Weißen Hauses Josh Earnest entschieden „den fortgesetzen Raketenbeschuss auf israelisches Gebiet und die vorsätzlichen Angriffe auf Zivilisten durch Terrororganisationen in Gaza“ und fügte hinzu, dass „kein Land \[…\] Raketenangriffe auf seine Zivilisten hinnehmen \[kann\]. Wir unterstützen Israels Selbstverteidigungsrecht gegen diese böswilligen Attacken.“***  
+> 
 
-<font face=""Arial"" size=""3"">***<font size=""3"">  
-</font>***</font>
+***  
+***
 
 ---
 
-<font face=""Arial""> <font size=""3"">***<font size=""3"">  
-</font>***Der kanadische Außenminister John Baird bekräftigte, dass „Israel \[…\] jedes Recht \[hat\], sich selbst gegen solche kriegerischen Akte des Terrorismus zu verteidigen,“(29) und UN-Generalsekretär Ban Ki-moon „verurteil\[te\] die jüngsten mehrfachen Raketenangriffe auf Israel von Gaza aus“ und forderte, dass „die unterschiedslosen Angriffe auf zivile Gebiete“ aufzuhören hätten.(30) </font></font>
+ ***  
+***Der kanadische Außenminister John Baird bekräftigte, dass „Israel \[…\] jedes Recht \[hat\], sich selbst gegen solche kriegerischen Akte des Terrorismus zu verteidigen,“(29) und UN-Generalsekretär Ban Ki-moon „verurteil\[te\] die jüngsten mehrfachen Raketenangriffe auf Israel von Gaza aus“ und forderte, dass „die unterschiedslosen Angriffe auf zivile Gebiete“ aufzuhören hätten.(30) 
 
 Der Botschafter der EU in Israel, Lars Faaborg Andersen, drückte seine „eindeutige Solidarität“ mit den Israelis aus;(31) der britische Premier David Cameron „verurteilte die entsetzlichen Angriffe, die die Hamas verübt“(32) die deutsche Kanzlerin Angela Merkel rief am 9. Juli Premier Netanyahu an, um ihm ihre Unterstützung zuzusichern und hat, Berichten zufolge, „die Raketenangriffe der Hamas aufs Schärfste verurteilt.“(33) Der deutsche Außenminister Frank-Walter Steinmeier forderte in einer Stellungnahme, dass „ der mörderische Raketenbeschuss der Hamas auf israelische Städte sofort gestoppt werden \[müsse\]“.(34)
 
-<div align=""center""><font face=""Arial"" size=""3"">![""]("/UserFiles/615256458815_b984cbb907_h-1024x682.jpg")</font><font face=""Arial"">  
-</font> <font face=""Arial"">  
-</font>> > > <font face=""Arial"">Am 23. Juli 2014 verabschiedete der UN-Menschenrechtsrat eine Resolution, in der Israel verurteilt wird. Die Resolution erwähnt die Hamas kein einziges Mal. (UN/Jean-Marc Ferré/Flickr)  
-> > > </font>
 
-</div><font face=""Arial""> <font size=""3"">  
-Im scharfen Gegensatz dazu jedoch – wenn auch nicht völlig überraschend – veröffentlichte der UN-Menschenrechtsrat (UNHRC) eine Stellungnahme, deren Einseitigkeit und Vorverurteilung Israels bemerkenswert ist:</font></font>
+![""]("/UserFiles/615256458815_b984cbb907_h-1024x682.jpg")  
+   
+> > > Am 23. Juli 2014 verabschiedete der UN-Menschenrechtsrat eine Resolution, in der Israel verurteilt wird. Die Resolution erwähnt die Hamas kein einziges Mal. (UN/Jean-Marc Ferré/Flickr)  
+> > > 
 
-> <font face=""Arial"" size=""3"">„Am 23. Juli 2014 hat der Menschenrechtsrat eine Resolution verabschiedet, in der entschieden wurde, dass eine unabhängige, internationale Kommission eingerichtet werden soll, um alle Verletzungen des humanitären Völkerrechts und der Menschenrechte in den besetzten palästinensischen Gebieten, einschließlich Ostjerusalem, und besonders im besetzten Gazastreifen im Rahmen der seit dem 13. Juni 2014 durchgeführten Militäroperationen zu untersuchen. Der Bericht soll dem Rat zu seiner 28. Sitzung im März 2015 vorgelegt werden.“(35) </font><font face=""Arial"">  
-> </font>
 
-<font face=""Arial"" size=""3"">  
-Im Weiteren werden Israels „massive \[…\] Militäroperationen missbilligt“ und Israel „aufs Schärfste \[verurteilt\] für die \[…\] massive Verletzung der internationalen Menschenrechte und fundamentalen Freiheiten wie es durch die israelischen Militäroperationen geschah \[…\], die unverhältnismäßige und unterschiedslose Angriffe beinhaltet haben \[…\] einschließlich des Angriffs auf medizinisches und humanitäres Personal, was Kriegsverbrechen gleichkommen könnte“. All dies – und es ist nur ein kleiner Auszug aus dem eigentlichen Dokument – bevor eine Untersuchung der Umstände des Krieges überhaupt eröffnet worden war.</font>
+   
+Im scharfen Gegensatz dazu jedoch – wenn auch nicht völlig überraschend – veröffentlichte der UN-Menschenrechtsrat (UNHRC) eine Stellungnahme, deren Einseitigkeit und Vorverurteilung Israels bemerkenswert ist:
+
+> „Am 23. Juli 2014 hat der Menschenrechtsrat eine Resolution verabschiedet, in der entschieden wurde, dass eine unabhängige, internationale Kommission eingerichtet werden soll, um alle Verletzungen des humanitären Völkerrechts und der Menschenrechte in den besetzten palästinensischen Gebieten, einschließlich Ostjerusalem, und besonders im besetzten Gazastreifen im Rahmen der seit dem 13. Juni 2014 durchgeführten Militäroperationen zu untersuchen. Der Bericht soll dem Rat zu seiner 28. Sitzung im März 2015 vorgelegt werden.“(35)   
+> 
+
+  
+Im Weiteren werden Israels „massive \[…\] Militäroperationen missbilligt“ und Israel „aufs Schärfste \[verurteilt\] für die \[…\] massive Verletzung der internationalen Menschenrechte und fundamentalen Freiheiten wie es durch die israelischen Militäroperationen geschah \[…\], die unverhältnismäßige und unterschiedslose Angriffe beinhaltet haben \[…\] einschließlich des Angriffs auf medizinisches und humanitäres Personal, was Kriegsverbrechen gleichkommen könnte“. All dies – und es ist nur ein kleiner Auszug aus dem eigentlichen Dokument – bevor eine Untersuchung der Umstände des Krieges überhaupt eröffnet worden war.
 
 Die Einseitigkeit ist auch in den Aspekten unverholen, die von der Resolution nicht benannt werden: nicht erwähnt werden die tausende von unterschiedslosen Raketen- und Mörserangriffen auf Israel, der psychologische Terror, den israelische Zivilisten in Folge des unablässigen Beschusses durchmachen mussten, ganz zu schweigen von der Evakuierung tausender israelischer Familien und dem schweren wirtschaftlichen Schaden, der dem Land durch den Krieg zugefügt wurde, wozu auch die Schließung seines internationalen Flughafens und seiner Häfen als Folge der Raketen zählt.
 
@@ -283,16 +303,20 @@ Die gleiche Auswertung zeigt deutlich, wie es Israel gelang, lebenswichtige Infr
 
 Wenn Israel es so gewollt hätte, wäre Gaza einfach durch Aushungern zur Aufgabe gewzungen worden, indem man die Zufuhr von Lebensmitteln nach Gaza von Israel aus kontrolliert hätte. Doch trotz wiederholter Angriffe auf die Grenzübergänge durch Hamas und andere und unter großen persönlichen Risiken ermöglichten es israelische Beamte, den Zugang von 5,779 Lastkraftwagen mit Gütern und 20 Mio Litern Treibstoff während des Krieges.  
    
-<font face=""Arial""> </font>
+ 
 
-<div align=""center""><font face=""Arial"" size=""3""> ![""]("/UserFiles/714729527183_167d439341_o-1024x683.jpg")</font><font face=""Arial"">  
-</font> </div><font face=""Arial""> </font>
 
-> > > <div align=""center""><font face=""Arial"" size=""2"">Das medizinischen Corps kümmert sich um palästinensische Zivilisten in einem Feldlazarett der IDF auf der israelischen Seite des Grenzübergangs Erez. (IDF/Flickr)</font><font face=""Arial"">  
-> > > </font> </div>
+ ![""]("/UserFiles/714729527183_167d439341_o-1024x683.jpg")  
+ 
+ 
 
-<font face=""Arial"" size=""3"">  
-Über 250 Krankenwagen und 4,000 Palästinenser und Ausländer durften während der Operation „Schutzrand“ die Grenze von Gaza nach Israel überqueren, einige zur Behandlung in einem Feldkrankenhaus, das Israel in unmittelbarer Grenznähe zu genau diesem Zweck errichtet hatte. Andere wurden in Krankenhäuser weiter im Landesinneren oder ins Ausland gebracht. Während der gesamten Dauer des Konfliktes versorgte Israel den Gazastreifen mit Elektrizität, außer in den Momenten, in denen Stromleitungen zerstört wurden und nicht ohne große Risiken für die Techniker sofort repariert werden konnten. Israel betrachtete den Krieg als gegen die Hamas gerichtet, nicht aber gegen die Menschen in Gaza.</font>
+> > > 
+Das medizinischen Corps kümmert sich um palästinensische Zivilisten in einem Feldlazarett der IDF auf der israelischen Seite des Grenzübergangs Erez. (IDF/Flickr)  
+> > >  
+
+
+  
+Über 250 Krankenwagen und 4,000 Palästinenser und Ausländer durften während der Operation „Schutzrand“ die Grenze von Gaza nach Israel überqueren, einige zur Behandlung in einem Feldkrankenhaus, das Israel in unmittelbarer Grenznähe zu genau diesem Zweck errichtet hatte. Andere wurden in Krankenhäuser weiter im Landesinneren oder ins Ausland gebracht. Während der gesamten Dauer des Konfliktes versorgte Israel den Gazastreifen mit Elektrizität, außer in den Momenten, in denen Stromleitungen zerstört wurden und nicht ohne große Risiken für die Techniker sofort repariert werden konnten. Israel betrachtete den Krieg als gegen die Hamas gerichtet, nicht aber gegen die Menschen in Gaza.
 
 Indem der Menschrechtsrat willentlich Scheuklappen anlegt, was die tatsächlichen Kriegsverbrechen und Verbrechen gegen die Menschlichkeit angeht, die die Hamas-Führung gegen ihre eigene Bevölkerung begeht, macht er sich der Billigung von Barbarei und der Ermutigung von Terrorismus schuldig. Dass dies unter dem Schirm einer internationalen Organisation, die dem Schutz der Menschenrechte verpflichtet scheint, geschieht, gibt diese Rechte dem Gespött preis.
 
@@ -308,25 +332,27 @@ Es wäre ein Gewinn für die Welt, wenn der UN-Menschenrechtsrat dem nachkommen 
 
 ---
 
-<font face=""Arial"">   
-</font>
+   
 
-> > > <font face=""Arial"">***<font size=""3""><font size=""3"">Es sollte die Hamas sein – und nicht Israel –, die von der Welt verurteilt wird. Die Hamas – und nicht Israel –, sollte Gegenstand der Empörung jener zahllosen Menschenrechtsgruppen werden.</font></font>***<font size=""3""><font size=""3""><font size=""3""> ***Die Kriegsverbrechen und Verbrechen gegen die Menschlichkeit der Hamas hingegen zu ignorieren, kommt also der Ermutigung von Terrorismus gleich.*** </font></font></font>  
-> > > </font>
 
-<font face=""Arial"" size=""3""><font size=""3""><font size=""3"">  
-</font></font></font>
+> > > ***Es sollte die Hamas sein – und nicht Israel –, die von der Welt verurteilt wird. Die Hamas – und nicht Israel –, sollte Gegenstand der Empörung jener zahllosen Menschenrechtsgruppen werden.**Die Kriegsverbrechen und Verbrechen gegen die Menschlichkeit der Hamas hingegen zu ignorieren, kommt also der Ermutigung von Terrorismus gleich.***   
+> > > 
+
+  
+
 
 ---
 
-<font face=""Arial"">   
-<font size=""3""><font color=""#003366"">**Die Endphase**</font></font></font>
+   
+**Die Endphase**
 
-<div align=""center""><font face=""Arial"" size=""3""><font color=""#003366"">**![""]("/UserFiles/8Hirsh_PM_MOD_COS.jpg")**</font></font><font face=""Arial"">  
-</font> <font face=""Arial"">  
+
+**![""]("/UserFiles/8Hirsh_PM_MOD_COS.jpg")**  
+   
 Premier Netanyahu,Verteidigungsminister Moshe Yaalon und IDF-Generalstabschef Gen-lt. Benny Gantz vor der Presse, 27. August 2014. (AP/Sebastian Scheiner)  
-</font> </div><font face=""Arial""> <font size=""3"">  
-In der ersten Augustwoche zog Israel seine Bodentruppen aus Gaza ab. 32 Angriffstunnel mit vielen Ein- und Ausgängen waren entdeckt und zerstört worden. Die IDF erklärten ihre Mission für beendet.(38) Premierminister Netanyahu sah sich hohem politischen Druck ausgesetzt – u.a. von wichtigen Ministern im eigenen Kabinet – , die IDF tiefer nach Gaza eindringen zu lassen oder sogar den ganzen Gazastreifen zurückzuerobern, den Israel unilateral vor einem Jahrzehnt 2005 geräumt hatte, als es 8,000 Israelis dazu zwang, ihre Wohnungen aufzugeben und 21 jüdische Gemeinden in Gaza abriss.</font></font>
+ 
+   
+In der ersten Augustwoche zog Israel seine Bodentruppen aus Gaza ab. 32 Angriffstunnel mit vielen Ein- und Ausgängen waren entdeckt und zerstört worden. Die IDF erklärten ihre Mission für beendet.(38) Premierminister Netanyahu sah sich hohem politischen Druck ausgesetzt – u.a. von wichtigen Ministern im eigenen Kabinet – , die IDF tiefer nach Gaza eindringen zu lassen oder sogar den ganzen Gazastreifen zurückzuerobern, den Israel unilateral vor einem Jahrzehnt 2005 geräumt hatte, als es 8,000 Israelis dazu zwang, ihre Wohnungen aufzugeben und 21 jüdische Gemeinden in Gaza abriss.
 
 Doch der Gedanke, erneut Kontrolle über Gaza zu übernehmen, spielte in den Köpfen der obersten Entscheidungsträger Anfang August keine Rolle. Stattdessen konzentrierten sie sich darauf, wie man diesen bereits einen Monat andauernden Konflikt beenden, nicht, wie man ihn verlängern könnte. Im Hintergrund gab es während der Kämpfe Anzeichen, dass die Hamas sich langsam dazu bereit erklärte, den Waffenstillstandsvorschlägen der Kairoer Gespräche zuzustimmen, auch wenn noch keine der Bedingungen erfüllt worden waren.
 
@@ -334,11 +360,13 @@ Und so wurde für den 10. August eine 72-stündige Feuerpause, beginnend um 0 Uh
 
 Acht Stunden vor Auslaufen der Verlängerung bis zum 19. August wurde eine Raketensalve auf Beersheba und Netivot, einer Stadt von 30,000 Einwohnern in Südisrael gefeuert, und später dann ebenso auf Ashkelon, Ashdod, Tel Aviv und Jerusalem – insgesamt waren es 50 Raketen.
 
-<div align=""center""><font face=""Arial"" size=""3"">![""]("/UserFiles/9rocketcountchartnumbers3-1024x571.jpg")</font><font face=""Arial"">  
+
+![""]("/UserFiles/9rocketcountchartnumbers3-1024x571.jpg")  
 Die Hamas und andere Terrorgruppen des Gazastreifens feuerten während des Gaza-Krieges 2014 mehr als 4,500 Raketen auf Israel.  
  (IDF-Präsentation, 3. September 2014)  
-</font> </div><font face=""Arial""> <font size=""3"">  
-Anfänglich reagierte die israelische Luftwaffe auf ausgewählte Ziele, in derselben Art wie man den Krieg bis zu diesem Zeitpunkt geführt hatte. Doch die Verletzung der jüngsten Feuerpause durch die Hamas, die bereits so viele zuvor gebrochen hatte, führte in Israel zur Einsicht, dass ein neuer Ansatz von Nöten war, um den Konflikt zu beenden.</font></font>
+ 
+   
+Anfänglich reagierte die israelische Luftwaffe auf ausgewählte Ziele, in derselben Art wie man den Krieg bis zu diesem Zeitpunkt geführt hatte. Doch die Verletzung der jüngsten Feuerpause durch die Hamas, die bereits so viele zuvor gebrochen hatte, führte in Israel zur Einsicht, dass ein neuer Ansatz von Nöten war, um den Konflikt zu beenden.
 
 Es war offensichtlich, dass die Hamas den diplomatischen Prozess in Kairo nutzte, um den Krieg zu verlängern. Indem sie Feuerpausen einging, nur um sie wieder zu brechen, bis wenigstens ein Teil ihrer Bedingungen erfüllt wurden, hoffte die Hamas, den Menschen in Gaza, die sie ruiniert hatte, wenigstens etwas zu bieten. Sich anders zu verhalten wäre dem Eingeständnis der Niederlage gleichgekommen, um die es sich in der Realität handelte.
 
@@ -360,13 +388,15 @@ Die New York Times berichtete an diesem Tag von Jerusalem aus über den Waffenst
 
 Wäre die Hamas also bereits am siebenten Tag bereit zu einem Waffenstillstand gewesen, dann wären zahlreiche Leben gerettet und viel Zerstörung abgewendet worden. Dann wiederum – angesichts des Ausmaßes der während des Krieges enttarnten und unschädlich gemachten militärischen Infrastruktur ist kaum abzuschätzen, wieviel Leben letztlich durch diesen Krieg gerettet wurden.
 
-<font color=""#003366"">**Lehren für die Zukunft**</font>
+**Lehren für die Zukunft**
 
-<div align=""center""><font face=""Arial"" size=""3""><font color=""#003366"">**![""]("/UserFiles/xHirsh_HamasGunmanWEB-1024x680.jpg")**</font></font><font face=""Arial"">  
-</font> <font face=""Arial"">  
+
+**![""]("/UserFiles/xHirsh_HamasGunmanWEB-1024x680.jpg")**  
+   
 Die Hamas bereitet den nächsten Krieg mit Israel vor. (AP/Mohammed Asad)  
-</font> </div><font face=""Arial""> <font size=""3"">  
-Mit der Installation der „Eisernen Kuppel“ als effektives Abwehrmittel gegen die Raketenbedrohung durch die Hamas in der November 2012 Operation „Wolkensäule“ – damals mit 86 Prozent Trefferquote und seitdem kontinuierlich verbessert – hat die Terrorgruppe ihre Strategie überdacht. Die Tunnel waren noch im Anfangsstadium, nur sporadisch genutzt für lokalisierte Angriffe unter der Grenze hindurch auf israelische Soldaten und Zivilisten, die sich in der Nähe Gazas aufhielten.</font></font>
+ 
+   
+Mit der Installation der „Eisernen Kuppel“ als effektives Abwehrmittel gegen die Raketenbedrohung durch die Hamas in der November 2012 Operation „Wolkensäule“ – damals mit 86 Prozent Trefferquote und seitdem kontinuierlich verbessert – hat die Terrorgruppe ihre Strategie überdacht. Die Tunnel waren noch im Anfangsstadium, nur sporadisch genutzt für lokalisierte Angriffe unter der Grenze hindurch auf israelische Soldaten und Zivilisten, die sich in der Nähe Gazas aufhielten.
 
 Mit Hilfe in Sachen Expertise, Waffen, Ausbildung, Geldern, Unterstützung und Ermutigung durch den Iran, die Türkei, Katar, die ägyptischen Muslimbruderschaft und andere hat die Hamas eine neue Strategie entwickelt, um Israel zu schädigen – es wurde eine Kampfgruppe mit allen Elementen einer regulären Armee geschaffen: eine hierarchische Kommandostruktur geteilt in sechs regionale Brigaden mit entwickelten Führungs- und Kontrollebenen, hoch motivierten Spezialeinheiten wie Kampftauchern und Paraglidern, Wärmesensorausrüstung, Panzer- und Luftabwehrraketen sowie, schließlich, 32 Angriffstunneln, von denen einige bis zu 18 Meter tief unter der Erde verliefen. Alles, um den Feind – Israel – tief und schwer zu schlagen.
 
@@ -380,23 +410,24 @@ Der einzige Weg, die Hamas zu schlagen, ist allerdings nicht militärische Stär
 
 Indem man die Hamas für ihre Verbrechen nicht haftbar macht, zündet man bereits an der Lunte für den nächsten Konflikt. Dies ist die wichtigste Botschaft des Gaza-Krieges von 2014. Sie muss verstanden werden, soll die nächste Runde des Blutvergießens verhindert werden.
 
-<div align=""center""><font face=""Arial"">  
-</font> </div><font face=""Arial""> <font size=""3"">  
-</font></font>
+
+  
+ 
+   
+
 
 ---
 
-<font face=""Arial""> **<font size=""3"">Hirsh Goodman ist der Initiator eines Programms für Medienstrategie des Institute for National Security Studies der Universität Tel Aviv. Er ist ehemaliger Armeekorrespondent der Jerusalem Post, Chefredakteur von The Jerusalem Report und Strategic Fellow des Washington Institute for Near East Policy.  
-</font>**</font>
+ **Hirsh Goodman ist der Initiator eines Programms für Medienstrategie des Institute for National Security Studies der Universität Tel Aviv. Er ist ehemaliger Armeekorrespondent der Jerusalem Post, Chefredakteur von The Jerusalem Report und Strategic Fellow des Washington Institute for Near East Policy.**
 
 ---
 
-<font face=""Arial""> <font size=""3""></font></font>
+ 
 
-<font face=""Arial""><font size=""3""><font size=""4"">**<font face=""Arial""><font size=""3"">Texte:</font></font>**</font></font></font>
+**Texte:**
 
-*Hirsh Goodman und Dore Gold* <font size=""3"">  
-<font face=""Arial"">**<font face=""Arial"">[Der Gaza-Krieg von 2014: Einleitung]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=237")</font>**</font></font>
+*Hirsh Goodman und Dore Gold*   
+**[Der Gaza-Krieg von 2014: Einleitung]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=237")**
 
 *Hirsh Goodman*  
 [Der Gaza-Krieg von 2014 aus israelischer Perspektive: Ein Überblick]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=231")
@@ -415,10 +446,12 @@ Indem man die Hamas für ihre Verbrechen nicht haftbar macht, zündet man bereit
 
 *Daniel P. Rubenstein*  
 [Das Tunnelnetzwerk der Hamas: Geplanter Massenmord]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")  
-<font size=""3""><font face=""Arial"">**<font face=""Arial"">[]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")</font>**</font></font>
+**[]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")**
 
-<div align=""center""><font face=""Arial"" size=""3"">\* \* \*</font></div><font face=""Arial"">   
-<font size=""2"">1 Gabi Siboni, “Operations Cast Lead, Pillar of Defense, and Protective Edge: A Comparative Review,” The Lessons of Operation Protective Edge, Anat Kurz and Shlomo Brom, eds. (Tel Aviv: Institute for National Security Studies, 2004), pp. 27-36, http://www.inss.org.il/uploadImages/systemFiles/Operations%20Cast%20Lead,%20Pillar%20of%20Defense,%20and%20Protective%20Edge\_%20A%20Comparative%20Review.pdf  
+
+\* \* \*
+   
+1 Gabi Siboni, “Operations Cast Lead, Pillar of Defense, and Protective Edge: A Comparative Review,” The Lessons of Operation Protective Edge, Anat Kurz and Shlomo Brom, eds. (Tel Aviv: Institute for National Security Studies, 2004), pp. 27-36, http://www.inss.org.il/uploadImages/systemFiles/Operations%20Cast%20Lead,%20Pillar%20of%20Defense,%20and%20Protective%20Edge\_%20A%20Comparative%20Review.pdf  
 2 Gaza density: 4,822 per sq. km., Palestinian Central Bureau of Statistics, “Gaza Abacus, The Economist, 7. August 2014, http://www.economist.com/blogs/pomegranate/2014/08/israel-and-palestinians.  
 Density of Israeli cities: Bnai Brak 21,031 per sq. km.; Givatayim 16,329; Bat Yam 15,913; Tel Aviv 7,947, “Localities, Population and Density per Sq. Km., by Metropolitan Area and Selected Localities, 2009,” Statistical Abstract of Israel 2010, Israel Central Bureau of Statistics, Table 2.16, http://www1.cbs.gov.il/reader/shnaton/templ\_shnaton\_e.html?num\_tab=st02\_16&amp;CYear=2010  
 3 Adiv Sterman, “Captured Hamas Operative Reveals Paragliding Attack Plan,” Times of Israel, 30. Juli 2014, http://www.timesofisrael.com/captured-hamas-operative-reveals-paragliding-attack-plan/  
@@ -469,4 +502,3 @@ http://www.idfblog.com/blog/2014/08/21/idf-targets-senior-hamas-terrorists-gaza/
 42 Jonathan Ferziger and Saud Abu Ramadan, “Israel, Hamas Accept Gaza Cease-Fire Accord,” Bloomberg, 26. August 2014, http://www.bloomberg.com/news/2014-08-26/egypt-says-cease-fire-between-israel-gaza-groups-starts-today.html  
 43 Jodi Rudoren, “Cease-Fire Extended, But Not on Hamas’s Terms,” New York Times, 26. August 2014,   
 http://www.nytimes.com/2014/08/27/world/middleeast/israel-gaza-strip-conflict.html?\_r=0  
-</font></font>

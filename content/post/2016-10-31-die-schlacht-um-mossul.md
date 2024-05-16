@@ -16,15 +16,15 @@ title: Die Schlacht um Mossul
 url: /die-schlacht-um-mossul/
 ---
 
-<span small="" style=""font-size:">  
+  
 **Die Schlacht um Mossul**  
 Dr. Jacques Neriah  
-</span>
 
-<span small="" style=""font-size:">   
-</span>
 
-<span small="" style=""font-size:">Am 17. Oktober 2016 um 1 Uhr Ortszeit begann der Beschuss von IS-Zielen in Mossul durch irakische, kurdische, amerikanische und französische Artillerieeinheiten, unterstützt von Luftschlägen der US-geführten Allianz. Nach Monaten der Vorbereitung begann so der langerwartete Angriff auf die zweitgrößte Stadt des Irak – Mossul. Im Sommer 2014 war die Stadt an IS-Einheiten gefallen. Damals genügte eine geschätzte Zahl von allerhöchstens 1,500 IS-Kämpfern, um die fünf Mal größeren irakischen Truppen (drei vollständige Divisionen zum Schutz der Stadt) aus Mossul zu vertreiben.</span>
+   
+
+
+Am 17. Oktober 2016 um 1 Uhr Ortszeit begann der Beschuss von IS-Zielen in Mossul durch irakische, kurdische, amerikanische und französische Artillerieeinheiten, unterstützt von Luftschlägen der US-geführten Allianz. Nach Monaten der Vorbereitung begann so der langerwartete Angriff auf die zweitgrößte Stadt des Irak – Mossul. Im Sommer 2014 war die Stadt an IS-Einheiten gefallen. Damals genügte eine geschätzte Zahl von allerhöchstens 1,500 IS-Kämpfern, um die fünf Mal größeren irakischen Truppen (drei vollständige Divisionen zum Schutz der Stadt) aus Mossul zu vertreiben.
 
 Verschiedene Quellen berichteten, dass aktuell den 5-10,000 IS-Kämpfern ca. 65,000 irakische Soldaten gegenüberstehen. Einige arabische Quellen rechnen sogar mit einer Zahl von 140,000 Soldaten der Anti-IS-Truppen:
 
@@ -90,6 +90,5 @@ Die Schlacht um Mossul könnte so etwas wie die letzten Atemzüge des sogenannte
 
 Eines jedoch scheint klar: die Niederlage des politischen Islam, den der IS vertritt, dürfte als Niederlage der Sunniten im Irak und Syrien verstanden werden und wird die politischen Strukturen der be iden Länder, ihre regionalen und internationalen Allianzen verschieben. Der Hauptgewinner wäre Iran, der damit seine Hegemonie über zwei der wichtigsten arabischen Staaten festschreiben würde, während Saudi Arabien und Katar verloren hätten.
 
-<span small="" style=""font-size:">  
-**\* \* \***   
-</span>
+  
+---  

@@ -13,9 +13,13 @@ title: Israels Doktrin der Verhältnismäßigkeit
 url: /israels-doktrin-der-verhaltnismasigkeit/
 ---
 
-<div align=""center"">**<font size=""3"">Israels Doktrin der Verhältnismäßigkeit</font>**<font size=""3"">Dr. Dore Gold</font>
 
-</div><font size=""3""></font>
+**Israels Doktrin der Verhältnismäßigkeit**
+
+Dr. Dore Gold
+
+
+
 
 Auf die Bilder der Zerstörung, die nach den Kämpfen zwischen der israelischen Armee und der Hamas im Gaza-Viertel Shajaiya, folgte erneut das oft beschworene Mantra, Israel reagiere „unverhältnismäßig“. Während manche Kommentatoren – um mehr Feinsinnigkeit bemüht – ihren Glauben, dass Israel exzessiv vorgehe, zum Ausdruck bringen, sind anderen deutlich in ihrer Anklage, Israel verletze das Kriegsrecht, v.a. die Doktrin der Verhältnismäßigkeit. Diesen substanzlosen Vorwurf gilt es zurückzuweisen.
 

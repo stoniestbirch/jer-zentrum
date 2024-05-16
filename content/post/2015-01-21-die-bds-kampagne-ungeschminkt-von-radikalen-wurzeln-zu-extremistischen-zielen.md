@@ -30,10 +30,14 @@ title: 'Die BDS-Kampagne ungeschminkt: Von radikalen Wurzeln zu extremistischen 
 url: /die-bds-kampagne-ungeschminkt-von-radikalen-wurzeln-zu-extremistischen-zielen/
 ---
 
-<div align=""center"">**<font size=""3"">Die BDS-Kampagne ungeschminkt: Von radikalen Wurzeln zu extremistischen Zielen</font>**<font size=""3"">Dan Diker</font>
 
-</div><font size=""3"">  
-**Einleitung**</font>
+**Die BDS-Kampagne ungeschminkt: Von radikalen Wurzeln zu extremistischen Zielen**
+
+Dan Diker
+
+
+  
+**Einleitung**
 
 Im Sommer 2014 feuerte die Hamas mehr als viertausend Raketen auf Israel und griff das Land mit Hilfe eines weit verzweigten Netzes von Angriffstunneln an, die tief in israelisches Gebiet hineinreichten. Die israelischen Streitkräfte IDF reagierten, in dem sie die terroristische Infrastruktur Gazas zum Ziel erklärten, was zahlreiche Demonstrationen in europäischen und amerikanischen Städten heraufbeschwor, die faktisch pro-Hamas forderten: "Befreit Palästina", "Schluss mit der Belagerung Gazas", "Schluss mit der israelischen Apartheid" oder "Stoppt den israelischen Staatsterrorismus". (1)
 
@@ -140,7 +144,9 @@ Die BDS-Politik, Israel als souveränen Staat zu überwinden, steht in einer lan
 
 Aus diesen Gründen gilt es, BDS zu demaskieren. Die Bewegung hat nicht nur im ganzen politischen Spektrum Israels Verurteilung erfahren, sie hat auch zu einer tiefen Abneigung innerhalb der israelische Bevölkerung geführt und damit die Aussichten auf eine friedliche Verhandlungslösung des palästinensisch-israelischen Konflikt weiter reduziert.
 
-<div align=""center""><font size=""3"">\* \* \*</font></div><font size=""3""><font size=""2"">1 “Over 10,000 march against Israel in London, Paris,” AFP, July 26, 2014,http://www.timesofisrael.com/over-10000-march-against-israel-in-london-paris/</font></font>
+
+\* \* \*
+1 “Over 10,000 march against Israel in London, Paris,” AFP, July 26, 2014,http://www.timesofisrael.com/over-10000-march-against-israel-in-london-paris/
 
 2“Urgent call from Gaza civil society” calling for BDS, July 2014,http://www.bdsmovement.net/2014/urgent-call-from-gaza-civil-society-act-now-12272
 

@@ -17,17 +17,17 @@ title: Die amerikanische Haltung zum Status Ostjerusalems und der Rechtslage ein
 url: /die-amerikanische-haltung-zum-status-ostjerusalems-und-der-rechtslage-einer-wiedervereinigung-der-stadt/
 ---
 
-<span medium="" style=""font-size:">  
-<span large="" style=""font-size:">**Die amerikanische Haltung zum Status Ostjerusalems und der Rechtslage einer Wiedervereinigung der Stadt (1)**</span></span>
+  
+**Die amerikanische Haltung zum Status Ostjerusalems und der Rechtslage einer Wiedervereinigung der Stadt (1)**
 
-<span medium="" style=""font-size:">Shmuel Berkowitz</span>
+Shmuel Berkowitz
 
-<span medium="" style=""font-size:">  
-</span>
+  
 
-<span medium="" style=""font-size:"><span medium="" style=""font-size:">Auszug aus der Monographie [The Status of Jerusalem in International and Israeli Law, JCPA 2018.  ]("http://jcpa.org/the-status-of-jerusalem-in-international-and-israeli-law/#_chapter_3")</span></span>[  ]("http://jcpa.org/the-status-of-jerusalem-in-international-and-israeli-law/#_chapter_3")
 
-<span medium="" style=""font-size:">Während der UN-Vollversammlung vom 14. Juli 1967 erklärten die Vereinigten Staaten durch ihren UN-Botschafter Arthur Goldberg, dass sie die Vereinigung Jerusalems durch Israel verurteilten und nicht anerkennen würden, sowie, dass der Endstatus der Stadt durch Verhandlungen zwischen den beiden Parteien im Rahmen einer umfassenden Lösung des arabisch-israelischen Konfliktes bestimmt werden sollte. Im Juli 1969 ging der nächste amerikanische UN-Botschafter Charles Woodruff Yost in einer Rede vor dem UN-Sicherheitsrat sogar soweit, Ostjerusalem als "besetztes Gebiet" zu bezeichnen – wie den Rest der von Israel im Sechstagekrieg eroberten Gebiete – und erklärte, dass der politische Status nur durch ein Abkommen zwischen den betroffenen Parteien festgelegt werden könnte. (2)</span>
+Auszug aus der Monographie [The Status of Jerusalem in International and Israeli Law, JCPA 2018.  ]("http://jcpa.org/the-status-of-jerusalem-in-international-and-israeli-law/#_chapter_3")[  ]("http://jcpa.org/the-status-of-jerusalem-in-international-and-israeli-law/#_chapter_3")
+
+Während der UN-Vollversammlung vom 14. Juli 1967 erklärten die Vereinigten Staaten durch ihren UN-Botschafter Arthur Goldberg, dass sie die Vereinigung Jerusalems durch Israel verurteilten und nicht anerkennen würden, sowie, dass der Endstatus der Stadt durch Verhandlungen zwischen den beiden Parteien im Rahmen einer umfassenden Lösung des arabisch-israelischen Konfliktes bestimmt werden sollte. Im Juli 1969 ging der nächste amerikanische UN-Botschafter Charles Woodruff Yost in einer Rede vor dem UN-Sicherheitsrat sogar soweit, Ostjerusalem als "besetztes Gebiet" zu bezeichnen – wie den Rest der von Israel im Sechstagekrieg eroberten Gebiete – und erklärte, dass der politische Status nur durch ein Abkommen zwischen den betroffenen Parteien festgelegt werden könnte. (2)
 
 In Folge fügte US-Präsident Carter dem Camp-David-Abkommen zwischen Israel und Ägypten vom 17. September 1978 einen Brief hinzu, in dem bestätigt wurde, dass die amerikanische Position gegenüber Jerusalem sich gegenüber der ihrer UN-Botschafter nicht verschoben hätte. (3)
 
@@ -82,9 +82,9 @@ Tatsächlich ließ das Außenministerium am 23. Februar 2018 verkünden, dass di
 
 Dies macht es möglich, dass das Oberste Bundesgericht der Vereinigten Staaten diesem Wechsel in der Haltung der amerikanischen Präsidenten hinsichtlich Jerusalem Rechnung trägt und das Außenministerium anweist, im amerikanischen Pass eines Kindes amerikanischer Bürger, geboren in Jerusalem "geboren in Israel" zu registrieren – im Unterschied zum Fall Menachem Zivotofskys.
 
-<span large="" style=""font-size:">**\* \* \*** </span>
+---
 
-<span medium="" style=""font-size:"></span>
+
 
 1\. Siehe Berkowitz, Wars of the Holy Places, pp. 390-392.
 

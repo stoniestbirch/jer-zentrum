@@ -19,9 +19,13 @@ title: 'Atomgespräche als Machtmittel: Wie der Iran die Verhandlungen regional 
 url: /atomgesprache-als-machtmittel-wie-der-iran-die-verhandlungen-regional-ausnutzt/
 ---
 
-<div align=""center"">**<font size=""3"">Atomgespräche als Machtmittel: Wie der Iran die Verhandlungen regional ausnutzt</font>**<font size=""3"">Michael Segall</font>
 
-</div><font size=""3""></font>
+**Atomgespräche als Machtmittel: Wie der Iran die Verhandlungen regional ausnutzt**
+
+Michael Segall
+
+
+
 
 • Der Iran bemüht sich um eine symmetrische Beziehung zu den Vereinigten Staaten. Er will der Welt zu zeigen, dass sich seine Macht – ähnlich der amerikanischen – weit über die eigenen Grenzen erstreckt.
 
@@ -55,9 +59,13 @@ Kurz vor Beginn der Wiener Atomgespräche bekundete der Oberste Führer Ayatolla
 
 Trotz dieser Angriffe auf die Vereinigten Staaten veröffentlichte der Oberste Führer per Twitter und Facebook wie zur Unterstützung der diplomatischen Bemühungen eine Zusammenfassung seiner Statements, in denen Atomwaffen als Verstoß gegen das Islamische Recht bezeichnet werden. Der Iran behauptet sogar, dass Khamenei ein Fatwa gegen den Besitz und die Anwendung solcher Waffen erlassen hätte. Doch dabei handelt es sich nur um eine diplomatische Öffentlichkeitskampagne des Landes. Khamenei hat eine solche Fatwa nie erlassen. Zu diesen Erklärungen gehört ein Facebook-Post von Khamenei, der behauptet:
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/NWnew.jpg")„  
-</font><div align=""left""><font size=""3"">Atomwaffen – Atomwaffen schaffen weder Sicherheit, noch dienen sie der Stärkung politischer Macht, sondern gefährden vielmehr beides. Die Ereignisse der Neunziger Jahre haben gezeigt, dass der Besitz solcher Waffen Regime wie das der Sowjetunion nicht retten konnten. Auch heute kennen wir Länder, die von fatalen Sicherheitskrisen heimgesucht werden, obwohl sie über Atomwaffen verfügen.“</font></div></div><font size=""3"">  
-Inmitten all der Euphorie über eine mögliche Verbesserung der amerikanisch-iranischen Beziehungen seit Unterzeichnung des Interimsabkommens hat die iranische Führung allerdings klargestellt, dass sie gegen die Einführung zusätzlicher Fragestellungen in die Gespräche sei und dass eine Erneuerung des Verhältnisses nach Washington nicht einmal auf der Agenda stehe. Ebenso betont der Iran, dass die Gespräche mit dem Westen sich allein um die Atomfrage drehen würden. Themen wie das Raketenprogramm oder Menschenrechtsfragen seien darin nicht enthalten. Menschenrechtsorganisationen, die sich mit dem Iran befassen, haben einen dramatischen Anstieg von Hinrichtungen verzeichnet, seitdem Rouhani gewählt wurde.</font>
+
+![""]("/UserFiles/NWnew.jpg")„  
+
+Atomwaffen – Atomwaffen schaffen weder Sicherheit, noch dienen sie der Stärkung politischer Macht, sondern gefährden vielmehr beides. Die Ereignisse der Neunziger Jahre haben gezeigt, dass der Besitz solcher Waffen Regime wie das der Sowjetunion nicht retten konnten. Auch heute kennen wir Länder, die von fatalen Sicherheitskrisen heimgesucht werden, obwohl sie über Atomwaffen verfügen.“
+
+  
+Inmitten all der Euphorie über eine mögliche Verbesserung der amerikanisch-iranischen Beziehungen seit Unterzeichnung des Interimsabkommens hat die iranische Führung allerdings klargestellt, dass sie gegen die Einführung zusätzlicher Fragestellungen in die Gespräche sei und dass eine Erneuerung des Verhältnisses nach Washington nicht einmal auf der Agenda stehe. Ebenso betont der Iran, dass die Gespräche mit dem Westen sich allein um die Atomfrage drehen würden. Themen wie das Raketenprogramm oder Menschenrechtsfragen seien darin nicht enthalten. Menschenrechtsorganisationen, die sich mit dem Iran befassen, haben einen dramatischen Anstieg von Hinrichtungen verzeichnet, seitdem Rouhani gewählt wurde.
 
 **Symmetrie mit einer Supermacht**
 
@@ -85,9 +93,11 @@ Die Atomgespräche gestatten dem Iran, sich als auf einer Ebene mit den wesentli
 
 Zur gleichen Zeit gestattet der Mangel direkter Gegner auf der geostrategischen Ebene dem Iran, die Atomgespräche im entspannten Tempo zu führen. Dieser Ansatz wurde durch die offensichtliche und anhaltende Schwäche der Vereinigten Staaten und des Westens bei der Lösung der syrischen Krise weiter ermutigt, die zunehmend zu einem Kampfschauplatz zwischen Saudi Arabien und dem Iran geworden ist und die blutige Spaltung zwischen Sunniten und Schiiten manifestiert. Folglich sieht der Iran keine wesentliche Gefahr auf dem Weg zu seinem strategischen Ziel. Indem Präsident Obama und seine Regierung fortgesetzt die Politik der „aktiven Passivität“ betreiben, die sie entworfen haben, setzt sich der Niedergang der amerikanischen Rolle in der Region unvermindert fort.
 
-<div align=""center"">**<font size=""3"">\* \* \*</font>**</div><font size=""3""></font>
 
-<font size=""2"">1. https://www.youtube.com/watch?v=UAoYlr5YH2g&amp;noredirect=1  
+**\* \* \***
+
+
+1. https://www.youtube.com/watch?v=UAoYlr5YH2g&amp;noredirect=1  
 2\. http://www.phoenix.de/content/phoenix/die\_sendungen/diskussionen/802368; http://www.zdf.de/ZDFmediathek/beitrag/video/2080528/Zarif-Iran-spricht-mit-dem-Westen  
 3\. http://irdiplomacy.ir/fa/page/1928362/%D8%AA%D8%AD%D8%B1%DB%8C%D9%81+%D8%A7%D8%B8%D9%87%D8%A7%D8%B1%D8%A7%D8%AA+%D8%B8%D8%B1%DB%8C%D9%81+%D8%AF%D8%B1+%D8%B1%D8%B3%D8%A7%D9%86%D9%87+%D9%87%D8%A7%DB%8C+%D8%B5%D9%87%DB%8C%D9%88%D9%86%DB%8C%D8%B3%D8%AA%DB%8C.html  
 4\. http://www.inn.ir/NSite/FullStory/News/?Serv=1&amp;Id=203535&amp;Rate=0  
@@ -97,4 +107,3 @@ Zur gleichen Zeit gestattet der Mangel direkter Gegner auf der geostrategischen 
 8\. http://www.presstv.ir/detail/2014/02/09/349870/iran-naval-fleet-to-near-us-border  
 9\. http://www.farsnews.com/newstext.php?nn=13910310000860#sthash.uO6w13cI.dpuf  
 10\. http://www.farsnews.com/newstext.php?nn=13921112002036  
-</font>

@@ -35,12 +35,12 @@ title: Ban Ki-Moons Reaktionen auf Terroranschläge – authentisch oder politis
 url: /ban-ki-moons-reaktionen-auf-terroranschlage-authentisch-oder-politisch-voreingenommen/
 ---
 
-<span small="" style=""font-size:">**Ban Ki-Moons Reaktionen auf Terroranschläge – authentisch oder politisch voreingenommen?**</span>
+**Ban Ki-Moons Reaktionen auf Terroranschläge – authentisch oder politisch voreingenommen?**
 
 Alan Baker
 
-<span small="" style=""font-size:">  
-Der jüngste tragische Terrorakt und der Hass, der das Leben des palästinensischen Kindes Ali Dawabsha im Westjordanland forderte und die Familie des Kindes schwer verletzte, kann und darf nicht verharmlost werden. Es obliegt allen Teilen der Gesellschaft, dies zu verurteilen. Dies ist geschehen.</span>
+  
+Der jüngste tragische Terrorakt und der Hass, der das Leben des palästinensischen Kindes Ali Dawabsha im Westjordanland forderte und die Familie des Kindes schwer verletzte, kann und darf nicht verharmlost werden. Es obliegt allen Teilen der Gesellschaft, dies zu verurteilen. Dies ist geschehen.
 
 Die scharfen Worte des UN-Generalsekretärs vom 31. Juli 2015, wenige Stunden nach der Tragödie, die durch seinen Sprecher vermittelt wurden, sowie die Beileidswünsche an die Familie und die Forderung, die Täter zu ahnden, waren daher angemessen und berechtigt.
 
@@ -110,10 +110,10 @@ Dabei darf man sich fragen, ob dies vorsätzlich von Seiten des Generalsekretär
 
 Wie auch immer es sich verhält – dem UN-Generalsekretär und seinem Stab muss dringlich nahegelegt werden, die Praxis der Mitteilung von Verurteilungen, Anteilnahmen, Sympathien für Familien, Regierungen und Bürger sowie Aufrufe zur Untersuchungen und Ahndung zu reflektieren und dafür zu sorgen, dass sie sich unter Anwendung der grundsätzlichen Prinzipien der UN-Charta – Gerechtigkeit, Treu und Glauben, Gleichheit und Nicht-Diskriminierung – befinden.
 
-**<span small="" style=""font-size:">\* \* \*</span>**<span small="" style=""font-size:">  
-</span>
+--- 
 
-<span small="" style=""font-size:"></span>
+
+
 
 1 http://www.un.org/sg/statements/index.asp?nid=8875  
 2 http://www.un.org/sg/statements/index.asp?nid=5134  

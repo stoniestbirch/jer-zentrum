@@ -21,10 +21,14 @@ title: 'Ägypten nach Mursi: Ist der politische Islam am Ende?'
 url: /agypten-nach-mursi-ist-der-politische-islam-am-ende/
 ---
 
-<div align=""center"">**<font size=""3"">Ägypten nach Mursi: Ist der politische Islam am Ende?</font>**<font size=""3"">Col. (ret.) Dr. Jacques Neriah</font>
 
-</div><font size=""3"">  
-• Knapp ein Jahr nachdem einer der ihren demokratisch zum ägyptischen Präsidenten gewählt wurde, endete für die Muslimbrüder der 80-jährige Traum von der Macht in einem Fiasko.</font>
+**Ägypten nach Mursi: Ist der politische Islam am Ende?**
+
+Col. (ret.) Dr. Jacques Neriah
+
+
+  
+• Knapp ein Jahr nachdem einer der ihren demokratisch zum ägyptischen Präsidenten gewählt wurde, endete für die Muslimbrüder der 80-jährige Traum von der Macht in einem Fiasko.
 
 • Die Muslimbruderschaft wurde gestürzt, da sie die Opposition falsch eingeschätzt hatte, zu sehr darauf versessen war, alle Schlüsselpositionen des Staates zu besetzen und eine mögliche Allianz zwischen liberalen Kräften und der Armee nicht vorhersehen konnte.
 

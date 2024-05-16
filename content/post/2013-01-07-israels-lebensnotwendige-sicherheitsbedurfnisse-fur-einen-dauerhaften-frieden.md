@@ -36,7 +36,9 @@ In der vorliegenden Studie geben die besten Experten Israels für strategische P
 
 Damit bietet der vorliegende Sammelband ein vollständiges, wertvolles und notwendiges Dossier für ein besseres Verständnis der strategischen Probleme und der neuen geopolitischen Lage. Er bietet Spezialisten wie auch der allgemeinen Öffentlichkeit neue Perspektiven auf die brennenden Fragen regionaler Sicherheit.
 
-<div class="wp-block-image"><figure class="aligncenter size-large is-resized">[![](https://i2.wp.com/jer-zentrum.org/wp-content/uploads/2020/06/defensible_borders_german_Page_001.jpg?fit=724%2C1024&ssl=1)](https://jer-zentrum.org/wp-content/uploads/2020/06/defensible_borders_german.pdf)</figure></div>zum [Download](https://jer-zentrum.org/wp-content/uploads/2020/06/defensible_borders_german.pdf)
+
+<figure class="aligncenter size-large is-resized">[![](https://i2.wp.com/jer-zentrum.org/wp-content/uploads/2020/06/defensible_borders_german_Page_001.jpg?fit=724%2C1024&ssl=1)](https://jer-zentrum.org/wp-content/uploads/2020/06/defensible_borders_german.pdf)</figure>
+zum [Download](https://jer-zentrum.org/wp-content/uploads/2020/06/defensible_borders_german.pdf)
 
 #### ausgewählte Karten:
 

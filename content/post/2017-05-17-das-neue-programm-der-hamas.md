@@ -21,12 +21,11 @@ title: Das neue  Programm der Hamas
 url: /das-neue-programm-der-hamas/
 ---
 
-**<span medium="" style=""font-size:">Das neue Programm der Hamas  
-</span>**
+**Das neue Programm der Hamas**
 
-<span small="" style=""font-size:">Jonathan D. Halevi</span>
+Jonathan D. Halevi
 
-<span small="" style=""font-size:">Am 1. Mai 2017 präsentierte Khaled Mashal, Führer der Hamas, das neue politische Programm der Gruppe, mit dem allerdings die Hamas-Charter nicht aufgehoben wird, sondern auf die aktuelle politische Situation zugeschnittene Strategien vorgestellt werden.(1)</span>
+Am 1. Mai 2017 präsentierte Khaled Mashal, Führer der Hamas, das neue politische Programm der Gruppe, mit dem allerdings die Hamas-Charter nicht aufgehoben wird, sondern auf die aktuelle politische Situation zugeschnittene Strategien vorgestellt werden.(1)
 
 Zu den wichtigsten Punkten des Dokuments gehören:
 

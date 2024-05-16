@@ -17,15 +17,19 @@ title: Die erste Runde in Irans Krieg gegen den Westen
 url: /die-erste-runde-in-irans-krieg-gegen-den-westen/
 ---
 
-<div align=""center""><font face=""Arial"" size=""3"">**Die erste Runde in Irans Krieg gegen den Westen**</font></div><font face=""Arial"" size=""3"">  
-</font>
 
-<div align=""center""><font face=""Arial"" size=""3"">Dore Gold</font></div><font face=""Arial"" size=""3"">  
+**Die erste Runde in Irans Krieg gegen den Westen**
+  
+
+
+
+Dore Gold
+  
 • Seit dem Libanonkrieg von 1982 hat der UN-Sicherheitsrat wiederholt gefordert, dass alle ausländischen Streitkräfte libanesisches Gebiet verlassen. Dieser Abzug aller ausländischen Armeen und terroristischer Gruppen wurde zu Recht als Vorraussetzung gesehen für eine Befriedung der unbeständigen israelisch-libanesischen Grenze und der Wiederherstellung der libanesischen Souveränität.  
 • Dass UN-Generalsekretär Kofi Annan Hisbollah-Führer Scheich Hassan Nasrallah bei einem Besuch Beiruts am 20. Juni 2000 die Hand schüttelte war beunruhigend. Die UN-Strategie bestand darin, der Hisbollah Anerkennung zu verleihen und als Gegenleistung von ihnen gemäßigtes Verhalten zu bekommen.  
 • 2002 berichteten die libanesischen Medien von dem Eintreffen iranischer Revolutionsgarden, die kamen, um die Hisbollah im Umgang mit Fajr-3- und Fajr-5-Mittelstreckenwaffen zu trainieren. Diese haben eine Reichweite von 70 km und wurden im Südlibanon installiert und auf nordisraelische Städte ausgerichtet. Als Gegenleistung für den Abzug aus dem Libanon bekam Israel also eine gestärkte Hisbollah sowie iranische Kämpfer, welche direkt an der Grenze Stellungen errichteten.  
 • Die Hauptziele der ganzen westlichen Allianz – einschließlich Israels – im gegenwärtigen Konflikt sind: volle Durchsetzung der UN-Sicherheitsratresolutionen, welche eine vollständige Entwaffnung der Hisbollah verlangen sowie eine Stationierung der libanesischen Armee entlang der israelisch-libanesischen Grenze; und eine Entfernung aller iranischen Kräfte und ihrer Ausrüstung sowie jeglicher fortdauernder syrischer Präsenz von libanesischem Territorium.  
-• Iran in seiner Eröffnungsrunde dieses Nahostkrieges zu besiegen, war nicht nur im israelischen Interesse, sondern im Interesse der ganzen zivilisierten Welt. Israels Strategie basiert auf der Isolierung der Hisbollah-Bewegung im Libanon von jeglicher Verstärkung durch Iran und seinen Verbündete zur Luft, zu Land und zur See.</font>
+• Iran in seiner Eröffnungsrunde dieses Nahostkrieges zu besiegen, war nicht nur im israelischen Interesse, sondern im Interesse der ganzen zivilisierten Welt. Israels Strategie basiert auf der Isolierung der Hisbollah-Bewegung im Libanon von jeglicher Verstärkung durch Iran und seinen Verbündete zur Luft, zu Land und zur See.
 
 Die UN und Libanon
 
@@ -65,4 +69,4 @@ In diesem Kontext liegt die hauptsächliche Verantwortung voll und ganz bei Iran
 
 Dore Gold ist der Präsident des Jerusalem Center for Public Affairs und war Israels Botschafter bei den Vereinten Nationen von 1997 bis 1999.
 
-<font size=""2"">Übersetzung: Alexander Arndt</font>
+Übersetzung: Alexander Arndt

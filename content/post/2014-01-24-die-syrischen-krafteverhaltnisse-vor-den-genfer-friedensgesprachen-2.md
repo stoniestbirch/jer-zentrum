@@ -30,181 +30,181 @@ title: Die syrischen Kräfteverhältnisse vor den Genfer Friedensgesprächen
 url: /die-syrischen-krafteverhaltnisse-vor-den-genfer-friedensgesprachen-2/
 ---
 
-<font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3"">**Die syrischen Kräfteverhältnisse vor den Genfer Friedensgesprächen**</font><font face=""Arial"" size=""3""> </font>
+**Die syrischen Kräfteverhältnisse vor den Genfer Friedensgesprächen** 
 
-<font face=""Arial"" size=""3""></font>
 
-<font face=""Arial"" size=""3"">Pinhas Inbari</font>
 
-<font face=""Arial"" size=""3""> </font>
+Pinhas Inbari
 
-<font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""><span style=""mso-spacerun:yes""> </span>\* Dieser Bericht stützt sich auf Telefongespräche mit Mitgliedern der syrischen Opposition.</font>
+ 
 
-<font face=""Arial"" size=""3""> </font>
+ \* Dieser Bericht stützt sich auf Telefongespräche mit Mitgliedern der syrischen Opposition.
 
-<font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""><span style=""mso-list:Ignore"">·<span font-size-adjust:="" font-size:="" font-stretch:="" font-variant:="" font-weight:="" line-height:="" none="" normal="" style=""font-style:"> </span></span>Die zweiter Genfer Friedenskonferenz zu Syrien wurde anberaumt, da die Vereinigten Staaten und Russland sich darüber einig waren, dass die größte Gefahr, die vom syrischen Schlachtfeld ausgeht, Al-Qaida ist, und die Situation daher unter Kontrolle gebracht werden muss.</font>
+ 
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
+· Die zweiter Genfer Friedenskonferenz zu Syrien wurde anberaumt, da die Vereinigten Staaten und Russland sich darüber einig waren, dass die größte Gefahr, die vom syrischen Schlachtfeld ausgeht, Al-Qaida ist, und die Situation daher unter Kontrolle gebracht werden muss.
 
-<font face=""Arial"" size=""3""><span style=""mso-list:Ignore"">·<span font-size-adjust:="" font-size:="" font-stretch:="" font-variant:="" font-weight:="" line-height:="" none="" normal="" style=""font-style:"> </span></span>Aus Perspektive der syrischen Opposition besteht die Gefahr, dass beide Mächte Assad an der Macht halten, wenn sie vor die Wahl zwischen ihm und Al-Qaida gestellt werden.</font><font face=""Arial"" size=""3""> </font>
+  
 
-<font face=""Arial"" size=""3""></font>
+· Aus Perspektive der syrischen Opposition besteht die Gefahr, dass beide Mächte Assad an der Macht halten, wenn sie vor die Wahl zwischen ihm und Al-Qaida gestellt werden. 
 
-<font face=""Arial"" size=""3""><span style=""mso-list:Ignore"">·<span font-size-adjust:="" font-size:="" font-stretch:="" font-variant:="" font-weight:="" line-height:="" none="" normal="" style=""font-style:"> </span></span>Ursächlich für die Notwendigkeit dieser Konferenz war v.a. das Scheitern der Freien Syrischen Armee unter General Idris, dem es nicht gelang, Assad zu schlagen und einen Regimewechsel herbeizuführen.</font>
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3""><span style=""mso-list:Ignore"">·<span font-size-adjust:="" font-size:="" font-stretch:="" font-variant:="" font-weight:="" line-height:="" none="" normal="" style=""font-style:"> </span></span>Ironischerweise war es der Erfolg der Al-Qaida-Gruppen in ihrem Kampf gegen Assads Truppen und die Freie Syrische Armee, die den Russen half, die Amerikaner davon zu überzeugen, dass Assad gegenwärtig die Macht behalten müsse. Aus diesen Gründen werden die Anhänger Assads auch an der Konferenz teilnehmen.</font><font face=""Arial"" size=""3""> </font>
+· Ursächlich für die Notwendigkeit dieser Konferenz war v.a. das Scheitern der Freien Syrischen Armee unter General Idris, dem es nicht gelang, Assad zu schlagen und einen Regimewechsel herbeizuführen.
 
-<font face=""Arial"" size=""3""></font>
+  
 
-<font face=""Arial"" size=""3""><span style=""mso-list:Ignore"">·<span font-size-adjust:="" font-size:="" font-stretch:="" font-variant:="" font-weight:="" line-height:="" none="" normal="" style=""font-style:"> </span></span>Wenn die syrische Opposition schon Schwierigkeiten hat, die Anwesenheit der Anhänger Assads auf der Konferenz zu tolerieren, dann wäre eine iranische Teilnahme unakzeptabel. Nach Auffassung der Opposition ist der wahre Gegner auf dem Schlachtfeld die iranische Armee. Der Iran sei in Syrien einmarschiert und habe die Hisbollah gegen die Opposition ins Feld geschickt.</font>
+· Ironischerweise war es der Erfolg der Al-Qaida-Gruppen in ihrem Kampf gegen Assads Truppen und die Freie Syrische Armee, die den Russen half, die Amerikaner davon zu überzeugen, dass Assad gegenwärtig die Macht behalten müsse. Aus diesen Gründen werden die Anhänger Assads auch an der Konferenz teilnehmen. 
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3""><span style=""mso-list:Ignore"">·<span font-size-adjust:="" font-size:="" font-stretch:="" font-variant:="" font-weight:="" line-height:="" none="" normal="" style=""font-style:"> </span></span>Israel muss sich auf zwei Szenarien gefasst machen: Ein Abkommen zwischen verschiedenen Nahost-Akteuren könnte die palästinensische Sache aufgreifen. Zudem ist es möglich, dass der Druck auf Israel erneuert wird, die Golanhöhen zurückzugeben, um eine neue syrische Regierung „zu stärken.“</font>
 
-<font face=""Arial"" size=""3""> </font>
+· Wenn die syrische Opposition schon Schwierigkeiten hat, die Anwesenheit der Anhänger Assads auf der Konferenz zu tolerieren, dann wäre eine iranische Teilnahme unakzeptabel. Nach Auffassung der Opposition ist der wahre Gegner auf dem Schlachtfeld die iranische Armee. Der Iran sei in Syrien einmarschiert und habe die Hisbollah gegen die Opposition ins Feld geschickt.
 
-<font face=""Arial"" size=""3""> </font>
+  
 
-<font face=""Arial"" size=""3""> </font>
+· Israel muss sich auf zwei Szenarien gefasst machen: Ein Abkommen zwischen verschiedenen Nahost-Akteuren könnte die palästinensische Sache aufgreifen. Zudem ist es möglich, dass der Druck auf Israel erneuert wird, die Golanhöhen zurückzugeben, um eine neue syrische Regierung „zu stärken.“
 
-<font face=""Arial"" size=""3"">**Eine amerikanisch-russische Verständigung**</font><font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""></font>
+ 
 
-<font face=""Arial"" size=""3"">Genf-2, die internationale Friedenskonferenz über die Zukunft Syriens, begann am 22. Januar 2014 im schweizerischen Montreux. Quellen innerhalb der syrischen Opposition zufolge wurde sie anberaumt, da die Vereinigten Staaten und Russland sich darüber einig waren, dass die größte Gefahr, die vom syrischen Schlachtfeld ausgeht, Al-Qaida ist, und die Situation daher unter Kontrolle gebracht werden muss.</font>
+ 
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
+**Eine amerikanisch-russische Verständigung** 
 
-<font face=""Arial"" size=""3"">Diese Übereinkunft setzt die syrische Opposition unter hohen Druck: aus ihrer Perspektive besteht die Gefahr, dass beide Mächte Assad an der Macht halten, wenn sie vor die Wahl zwischen ihm und Al-Qaida gestellt werden.</font><font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3""></font>
 
-<font face=""Arial"" size=""3"">Das Hauptproblem ist die Spaltung der Oppositionsgruppen, so dass die beiden Großmächte ihnen ihre Vorstellungen diktieren können. Schon die Organisation von Genf-2 beinhaltete solch ein Diktat. Anfänglich weigerte sich die syrische Opposition, die Anhänger Assads zu der Konferenz zuzulassen. Doch der amerikanische Druck, die Unterstützung der Opposition einzustellen, war stark genug, dass Oppositionsgruppen der Forderung beider Mächte <span style=""mso-spacerun:yes""> </span>einer Teilnahme von Assad-Loyalisten zustimmen mussten.</font>
+Genf-2, die internationale Friedenskonferenz über die Zukunft Syriens, begann am 22. Januar 2014 im schweizerischen Montreux. Quellen innerhalb der syrischen Opposition zufolge wurde sie anberaumt, da die Vereinigten Staaten und Russland sich darüber einig waren, dass die größte Gefahr, die vom syrischen Schlachtfeld ausgeht, Al-Qaida ist, und die Situation daher unter Kontrolle gebracht werden muss.
 
-<font face=""Arial"" size=""3""> </font>
+  
 
-<font face=""Arial"" size=""3""> </font>
+Diese Übereinkunft setzt die syrische Opposition unter hohen Druck: aus ihrer Perspektive besteht die Gefahr, dass beide Mächte Assad an der Macht halten, wenn sie vor die Wahl zwischen ihm und Al-Qaida gestellt werden. 
 
-<font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3"">**Wer-ist-Wer in der „syrischen Opposition“?**</font>
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
+Das Hauptproblem ist die Spaltung der Oppositionsgruppen, so dass die beiden Großmächte ihnen ihre Vorstellungen diktieren können. Schon die Organisation von Genf-2 beinhaltete solch ein Diktat. Anfänglich weigerte sich die syrische Opposition, die Anhänger Assads zu der Konferenz zuzulassen. Doch der amerikanische Druck, die Unterstützung der Opposition einzustellen, war stark genug, dass Oppositionsgruppen der Forderung beider Mächte  einer Teilnahme von Assad-Loyalisten zustimmen mussten.
 
-<font face=""Arial"" size=""3"">Wie setzt sich also die syrische Opposition zusammen, was motiviert sie, wer steht hinter ihnen?</font><font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""></font>
+ 
 
-<font face=""Arial"" size=""3"">Zunächst gilt festzuhalten, dass die eigentlichen Fusstruppen des Bürgerkriegs auf der Konferenz gar nicht vertreten sind: weder die verschiedenen Al-Qaida-Gruppen noch die Freie Syrische Armee nehmen teil. Gegen Al-Qaida richtet sich ja die Konferenz, zudem bleibt die Gruppe solcherart Veranstaltungen im Allgemeinen fern. Die Freie Syrische Armee unter Kommandeur Salim Idris ist hingegen noch nicht bereit, den Raum mit Assad-Anhängern zu teilen, auch wenn Berichten zufolge der Druck auf Idris, doch zu kommen, enorm war.</font>
+ 
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
+**Wer-ist-Wer in der „syrischen Opposition“?**
 
-<font face=""Arial"" size=""3"">Die Gespräche werden also von Parteien geführt, die sich auf dem Schlachtfeld gar nicht begegnen. Wer sind diese?</font>
+  
 
-<font face=""Arial"" size=""3""> </font>
+Wie setzt sich also die syrische Opposition zusammen, was motiviert sie, wer steht hinter ihnen? 
 
-<font face=""Arial"" size=""3"">Eine ziemliche große Gruppe wird von der Nationalen Koalition der syrischen Revolutions- und Oppositionskräfte (auch Syrische Nationale Koalition genannt) gestellt, die die Oppositionsgruppen im Exil vertritt. Geführt wird sie von Ahmed al-Dscharba, Spross einer der führenden Familien des Shammar-Beduinen-Clans, der zwischen Syrien, dem Irak und Saudi Arabien angesiedelt und als pro-saudisch zu betrachten ist. Tatsächlich wird die Gruppe von Saudi Arabien finanziert.</font><font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3""></font>
 
-<font face=""Arial"" size=""3"">Mitglied dieser Koalition ist der Syrische Nationalrat, der vor ihrer Gründung die repräsentative Körperschaft der syrischen Opposition war. Dazu gehören die Muslimbrüder und panarabische Nationalisten. Gefördert wird er von der Türkei und Katar. Obschon formal Teil der Koalition, beeinflusst die Konkurrenz zwischen Katar und Saudi Arabien seine Beziehungen zur Koalition. All dies ließ sich im Vorfeld bei der Debatte über die Teilnahme von Genf-2 beobachten. Nachdem al-Dscharba die Teilnahme verkündet hatte, erklärten seine Rivalen vom Nationalrat, dass sie nicht teilnehmen würden. Die Gründe für al-Dscharbas Entscheidung sind nicht ganz klar. Erwartet wurde, dass die saudische Verärgerung über Washington dazu führen würde, dass die pro-saudischen Kräfte die Konferenz boykottieren würden, doch das Gegenteil trat ein.<span style=""mso-spacerun:yes""> </span>Quellen innerhalb der syrischen Opposition erklärten, dass die Saudis die Spannungen mit den USA nicht öffentlich machen wollten und gleichzeitig nicht mit Al-Qaida assoziiert werden wollten; man könnte die Gespräche auch von innen her jederzeit torpedieren.</font>
+Zunächst gilt festzuhalten, dass die eigentlichen Fusstruppen des Bürgerkriegs auf der Konferenz gar nicht vertreten sind: weder die verschiedenen Al-Qaida-Gruppen noch die Freie Syrische Armee nehmen teil. Gegen Al-Qaida richtet sich ja die Konferenz, zudem bleibt die Gruppe solcherart Veranstaltungen im Allgemeinen fern. Die Freie Syrische Armee unter Kommandeur Salim Idris ist hingegen noch nicht bereit, den Raum mit Assad-Anhängern zu teilen, auch wenn Berichten zufolge der Druck auf Idris, doch zu kommen, enorm war.
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
+  
 
-<font face=""Arial"" size=""3"">Auch Russland hat bevorzugte Gruppierungen, so dass es nicht überrascht, dass diese zur Teilnahme überredet werden konnten. Zu diesen Gruppen gehören alte linksradikale Fraktionen der syrischen Ba’ath-Partei. Quellen innerhalb der syrischen Opposition deuten dabei auf eine <span style=""mso-spacerun:yes""> </span>„interne Oppositionsgruppe“ die von Qadri Dschamil und Ali Haidar angeführt wird, zwei ehemaligen langjährigen Ba’athisten, die Assad die Gefolgschaft aufkündigten. Neben ihnen gibt es noch eine weitere Gruppe von langjährigen arabischen Nationalisten, die von Haitham Mana’a und Hassan Abd al-Azim geführt werden und unter dem Namen „Koordinierte Administration“ eine Reihe von Koordinationskomitees für die Rebellengruppen im Feld umfassen. Diese Gruppe hat sich aber ihre Unabhängigkeit bewahrt, erhält keinerlei Unterstützung von außen und nimmt an Genf-2 nicht teil.</font>
+Die Gespräche werden also von Parteien geführt, die sich auf dem Schlachtfeld gar nicht begegnen. Wer sind diese?
 
-<font face=""Arial"" size=""3""><font face=""Arial"" size=""3""> </font></font>
+ 
 
-<font face=""Arial"" size=""3"">Ursächlich für die Notwendigkeit dieser Konferenz war für die Großmächte v.a. das Scheitern der Freien Syrischen Armee unter General Idris, der es nicht gelang, Assad zu schlagen und einen Regimewechsel herbeizuführen. Stattdessen gelang es verschiedenen Al-Qaida-Organisationen sich lokal auf dem Schlachtfeld zu behaupten und erst vor Kurzem Idris eine empfindliche Niederlage in der Nähe von Aleppo zuzufügen, wo sie sein Hauptwaffenlager eroberten.</font>
+Eine ziemliche große Gruppe wird von der Nationalen Koalition der syrischen Revolutions- und Oppositionskräfte (auch Syrische Nationale Koalition genannt) gestellt, die die Oppositionsgruppen im Exil vertritt. Geführt wird sie von Ahmed al-Dscharba, Spross einer der führenden Familien des Shammar-Beduinen-Clans, der zwischen Syrien, dem Irak und Saudi Arabien angesiedelt und als pro-saudisch zu betrachten ist. Tatsächlich wird die Gruppe von Saudi Arabien finanziert. 
 
-<font face=""Arial"" size=""3""> </font>  
-<font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3"">**Die Al-Qaida in Syrien**</font>
 
-<font face=""Arial"" size=""3""> </font>
+Mitglied dieser Koalition ist der Syrische Nationalrat, der vor ihrer Gründung die repräsentative Körperschaft der syrischen Opposition war. Dazu gehören die Muslimbrüder und panarabische Nationalisten. Gefördert wird er von der Türkei und Katar. Obschon formal Teil der Koalition, beeinflusst die Konkurrenz zwischen Katar und Saudi Arabien seine Beziehungen zur Koalition. All dies ließ sich im Vorfeld bei der Debatte über die Teilnahme von Genf-2 beobachten. Nachdem al-Dscharba die Teilnahme verkündet hatte, erklärten seine Rivalen vom Nationalrat, dass sie nicht teilnehmen würden. Die Gründe für al-Dscharbas Entscheidung sind nicht ganz klar. Erwartet wurde, dass die saudische Verärgerung über Washington dazu führen würde, dass die pro-saudischen Kräfte die Konferenz boykottieren würden, doch das Gegenteil trat ein. Quellen innerhalb der syrischen Opposition erklärten, dass die Saudis die Spannungen mit den USA nicht öffentlich machen wollten und gleichzeitig nicht mit Al-Qaida assoziiert werden wollten; man könnte die Gespräche auch von innen her jederzeit torpedieren.
 
-<font face=""Arial"" size=""3"">Wer sind die Al-Qaida-Kräfte in Syrien?</font>
+  
 
-<font face=""Arial"" size=""3""></font>
+Auch Russland hat bevorzugte Gruppierungen, so dass es nicht überrascht, dass diese zur Teilnahme überredet werden konnten. Zu diesen Gruppen gehören alte linksradikale Fraktionen der syrischen Ba’ath-Partei. Quellen innerhalb der syrischen Opposition deuten dabei auf eine  „interne Oppositionsgruppe“ die von Qadri Dschamil und Ali Haidar angeführt wird, zwei ehemaligen langjährigen Ba’athisten, die Assad die Gefolgschaft aufkündigten. Neben ihnen gibt es noch eine weitere Gruppe von langjährigen arabischen Nationalisten, die von Haitham Mana’a und Hassan Abd al-Azim geführt werden und unter dem Namen „Koordinierte Administration“ eine Reihe von Koordinationskomitees für die Rebellengruppen im Feld umfassen. Diese Gruppe hat sich aber ihre Unabhängigkeit bewahrt, erhält keinerlei Unterstützung von außen und nimmt an Genf-2 nicht teil.
 
-<font face=""Arial"" size=""3"">Es gibt ungefähr vierzig Gruppen mit verschiedenen Namen, doch zwei davon spielen eine tragende Rolle. Die eine ist die von Abu Muhammad al-Dschawlani geführte Al-Nusra-Front; die andere die „Daash“ auch ISIS – Islamischer Staat im Irak und in Syrien – genannt. Die Al-Nusra-Front setzt sich aus syrischen und jordanischen Mudschaheddin zusammen, die ISIS hat eine irakische Führung.</font><font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""></font>
+Ursächlich für die Notwendigkeit dieser Konferenz war für die Großmächte v.a. das Scheitern der Freien Syrischen Armee unter General Idris, der es nicht gelang, Assad zu schlagen und einen Regimewechsel herbeizuführen. Stattdessen gelang es verschiedenen Al-Qaida-Organisationen sich lokal auf dem Schlachtfeld zu behaupten und erst vor Kurzem Idris eine empfindliche Niederlage in der Nähe von Aleppo zuzufügen, wo sie sein Hauptwaffenlager eroberten.
 
-<font face=""Arial"" size=""3"">Ironischerweise war der Erfolg dieser salafistischen Gruppen für Assad von Vorteil. Schließlich behauptete er von Anfang an, dass er es nicht mit einer Rebellion, sondern mit Terrorismus zu tun hätte und die Erfolge </font>
+   
+ 
 
-<font face=""Arial"" size=""3""> </font>
+**Die Al-Qaida in Syrien**
 
-<font face=""Arial"" size=""3"">der Al-Qaida-Gruppen in ihrem Kampf gegen seine Truppen und die Freie Syrische Armee half den Russen, die Amerikaner davon zu überzeugen, dass Assad gegenwärtig die Macht behalten müsse. Aus diesen Gründen werden die Anhänger Assads auch an der Konferenz teilnehmen.</font>
+ 
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
+Wer sind die Al-Qaida-Kräfte in Syrien?
 
-<font face=""Arial"" size=""3"">Die Oppositionsgruppen behaupten dagegen, dass wenigstens ISIS mit Assad verbündet sei. Die Al-Qaida-Kämpfer von ISIS seien ursprünglich syrische Geheimagenten gewesen, die in den Irak geschleust wurden, um dort gegen die amerikanischen Truppen zu kämpfen. Nachdem der syrische Aufstand ausbrach, hätten Assads Geheimdienste mit ihnen die Rebellen unterwandert, um zu beweisen, dass die Revolte nichts anderes als Terrorismus sei. Diese Gruppen hätten sich schließlich gegen die Freie Syrische Armee gewandt, um sie vom Kampf gegen Assad abzulenken.</font>
 
-<font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3""> </font>
+Es gibt ungefähr vierzig Gruppen mit verschiedenen Namen, doch zwei davon spielen eine tragende Rolle. Die eine ist die von Abu Muhammad al-Dschawlani geführte Al-Nusra-Front; die andere die „Daash“ auch ISIS – Islamischer Staat im Irak und in Syrien – genannt. Die Al-Nusra-Front setzt sich aus syrischen und jordanischen Mudschaheddin zusammen, die ISIS hat eine irakische Führung. 
 
-<font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3"">**Die Kurden Syriens**</font><font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3""></font>
+Ironischerweise war der Erfolg dieser salafistischen Gruppen für Assad von Vorteil. Schließlich behauptete er von Anfang an, dass er es nicht mit einer Rebellion, sondern mit Terrorismus zu tun hätte und die Erfolge 
 
-<font face=""Arial"" size=""3"">Die syrischen Kurden stellen einen Sonderfall dar. Auch sie sind in viele verschiedene Gruppen zerfallen, von denen die führende die Demokratische Unionspartei (PYD) ist – eine linksradikale Schwesterpartei der türkischen PKK, die dem Ba’ath-Regime Assads loyal ist. Die syrische Armee konnte sich aus den kurdischen Gebieten zurückziehen und ihre Kräfte gegen die Rebellen richten, da die PYD die kurdischen Verhältnisse für die syrische Regierung im Griff hält. Jüngsten Berichten zufolge seien unter der „administrativen Autonomie“ der PYD im syrischen Kurdistan Bilder von Assad wieder auf den Straßen zu sehen.</font>
+ 
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
+der Al-Qaida-Gruppen in ihrem Kampf gegen seine Truppen und die Freie Syrische Armee half den Russen, die Amerikaner davon zu überzeugen, dass Assad gegenwärtig die Macht behalten müsse. Aus diesen Gründen werden die Anhänger Assads auch an der Konferenz teilnehmen.
 
-<font face=""Arial"" size=""3"">Alle kurdischen Parteien fordern innerhalb des syrischen Staates Autonomie. Der Unterschied zwischen ihnen und den sunnitischen Gruppierungen (Muslimbrüder, arabische Nationalisten, Ex-Ba’athisten) ist, dass die Kurden ein dezentralisiertes Regime mit autonomen Regionen für die Ethnien und Minderheiten fordern, während die Sunniten ein zentralisiertes Regime in Damaskus befürworten.</font><font face=""Arial"" size=""3""> </font>
+  
 
-<font face=""Arial"" size=""3""></font>
+Die Oppositionsgruppen behaupten dagegen, dass wenigstens ISIS mit Assad verbündet sei. Die Al-Qaida-Kämpfer von ISIS seien ursprünglich syrische Geheimagenten gewesen, die in den Irak geschleust wurden, um dort gegen die amerikanischen Truppen zu kämpfen. Nachdem der syrische Aufstand ausbrach, hätten Assads Geheimdienste mit ihnen die Rebellen unterwandert, um zu beweisen, dass die Revolte nichts anderes als Terrorismus sei. Diese Gruppen hätten sich schließlich gegen die Freie Syrische Armee gewandt, um sie vom Kampf gegen Assad abzulenken.
 
-<font face=""Arial"" size=""3"">Die Kurden hatten beabsichtigt, als separate Delegation an Genf-2 teilzunehmen, doch die Vereinigten Staaten bestanden darauf, dass sie als Teil der „Koalition“ erschienen. Aus diesem Grund bleiben die Kurden Genf fern. In ihren Augen war die amerikanische Weigerung, sie als eigene Delegation anzuerkennen, Zeichen, dass die Amerikaner ein zentralistisches syrisches Regime auch nach Assads Sturz unterstützen würden.</font>
+ 
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3"">Wenn die syrische Opposition schon Schwierigkeiten hat, die Anwesenheit der Anhänger Assads auf der Konferenz zu tolerieren, dann wäre eine iranische Teilnahme unakzeptabel. Nach Auffassung der Opposition ist der wahre Gegner auf dem Schlachtfeld die iranische Armee. Der Iran sei in Syrien einmarschiert und habe die Hisbollah gegen die Opposition ins Feld geschickt. Auch Saudi Arabien hat Mühe, die Teilnahme von Assad-Loyalisten zu akzeptieren und lehnte eine iranische Teilnahme rundum ab.</font>
+ 
 
-<font face=""Arial"" size=""3""> </font>
+**Die Kurden Syriens** 
 
-<font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3"">**Assads Zukunft?**</font><font face=""Arial"" size=""3""> </font>
+Die syrischen Kurden stellen einen Sonderfall dar. Auch sie sind in viele verschiedene Gruppen zerfallen, von denen die führende die Demokratische Unionspartei (PYD) ist – eine linksradikale Schwesterpartei der türkischen PKK, die dem Ba’ath-Regime Assads loyal ist. Die syrische Armee konnte sich aus den kurdischen Gebieten zurückziehen und ihre Kräfte gegen die Rebellen richten, da die PYD die kurdischen Verhältnisse für die syrische Regierung im Griff hält. Jüngsten Berichten zufolge seien unter der „administrativen Autonomie“ der PYD im syrischen Kurdistan Bilder von Assad wieder auf den Straßen zu sehen.
 
-<font face=""Arial"" size=""3""></font>
+  
 
-<font face=""Arial"" size=""3"">Während die erste Genfer Konferenz im Juni 2012 einen Plan vorlegte, der eine Übergangsregierung und Wahlen für einen neuen Präsidenten vorsahen, bestand Assad damals auf sein Recht, in diesen Wahlen zu kandidieren. Auch Genf-2 dürfte eine Übergangsregierung sowie Wahlen vorschlagen und Assad empfehlen, sich ehrenhaft aus dem politischen Geschäft zurückzuziehen, wofür ihm das physische Überleben garantiert würde. Ob Wahlen umgesetzt werden könnten, ist mehr als fraglich, da die Truppen auf dem Schlachtfeld einen solchen Plan rundum ablehnen.</font>
+Alle kurdischen Parteien fordern innerhalb des syrischen Staates Autonomie. Der Unterschied zwischen ihnen und den sunnitischen Gruppierungen (Muslimbrüder, arabische Nationalisten, Ex-Ba’athisten) ist, dass die Kurden ein dezentralisiertes Regime mit autonomen Regionen für die Ethnien und Minderheiten fordern, während die Sunniten ein zentralisiertes Regime in Damaskus befürworten. 
 
-<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3"">In der Zwischenzeit mehren sich Anzeichen, dass außerhalb des Konferenzrahmens ein Handel stattfinden könnte, in dem der Iran, Russland und die Vereinigten Staaten sich auf einen neuen Präsidenten einigen und Assad zur Akzeptanz nötigen. Eine derartige Initiative – sollte sie überhaupt zustande kommen – müsste jedoch den Zeitpunkt abwarten, an dem Assad alle chemischen Waffen abgeliefert hätte.</font><font face=""Arial"" size=""3""> </font>
 
-<font face=""Arial"" size=""3""></font>
+Die Kurden hatten beabsichtigt, als separate Delegation an Genf-2 teilzunehmen, doch die Vereinigten Staaten bestanden darauf, dass sie als Teil der „Koalition“ erschienen. Aus diesem Grund bleiben die Kurden Genf fern. In ihren Augen war die amerikanische Weigerung, sie als eigene Delegation anzuerkennen, Zeichen, dass die Amerikaner ein zentralistisches syrisches Regime auch nach Assads Sturz unterstützen würden.
 
-<font face=""Arial"" size=""3"">Israel muss sich auf zwei Szenarien gefasst machen: Zum einen könnte ein Abkommen zwischen verschiedenen Nahost-Akteuren die palästinensische Sache aufgreifen. Der palästinensische Präsident Mahmoud Abbas wird nach Moskau fliegen, um Optionen mit den Russen zu klären. Zum anderen muss sich Israel darauf vorbereiten, dass, sobald eine neue Zentralregierung in Damaskus etabliert wurde, der Druck auf Israel erneuert wird, die Golanhöhen zurückzugeben, um diese neue syrische Regierung „zu stärken.“</font>
+  
 
-<font face=""Arial"" size=""3""> </font>
+Wenn die syrische Opposition schon Schwierigkeiten hat, die Anwesenheit der Anhänger Assads auf der Konferenz zu tolerieren, dann wäre eine iranische Teilnahme unakzeptabel. Nach Auffassung der Opposition ist der wahre Gegner auf dem Schlachtfeld die iranische Armee. Der Iran sei in Syrien einmarschiert und habe die Hisbollah gegen die Opposition ins Feld geschickt. Auch Saudi Arabien hat Mühe, die Teilnahme von Assad-Loyalisten zu akzeptieren und lehnte eine iranische Teilnahme rundum ab.
 
-<font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""> </font>
+ 
 
-<font face=""Arial"" size=""3""></font>
+ 
 
-<font face=""Arial"" size=""3""> </font>
+**Assads Zukunft?** 
+
+
+
+Während die erste Genfer Konferenz im Juni 2012 einen Plan vorlegte, der eine Übergangsregierung und Wahlen für einen neuen Präsidenten vorsahen, bestand Assad damals auf sein Recht, in diesen Wahlen zu kandidieren. Auch Genf-2 dürfte eine Übergangsregierung sowie Wahlen vorschlagen und Assad empfehlen, sich ehrenhaft aus dem politischen Geschäft zurückzuziehen, wofür ihm das physische Überleben garantiert würde. Ob Wahlen umgesetzt werden könnten, ist mehr als fraglich, da die Truppen auf dem Schlachtfeld einen solchen Plan rundum ablehnen.
+
+  
+
+In der Zwischenzeit mehren sich Anzeichen, dass außerhalb des Konferenzrahmens ein Handel stattfinden könnte, in dem der Iran, Russland und die Vereinigten Staaten sich auf einen neuen Präsidenten einigen und Assad zur Akzeptanz nötigen. Eine derartige Initiative – sollte sie überhaupt zustande kommen – müsste jedoch den Zeitpunkt abwarten, an dem Assad alle chemischen Waffen abgeliefert hätte. 
+
+
+
+Israel muss sich auf zwei Szenarien gefasst machen: Zum einen könnte ein Abkommen zwischen verschiedenen Nahost-Akteuren die palästinensische Sache aufgreifen. Der palästinensische Präsident Mahmoud Abbas wird nach Moskau fliegen, um Optionen mit den Russen zu klären. Zum anderen muss sich Israel darauf vorbereiten, dass, sobald eine neue Zentralregierung in Damaskus etabliert wurde, der Druck auf Israel erneuert wird, die Golanhöhen zurückzugeben, um diese neue syrische Regierung „zu stärken.“
+
+ 
+
+ 
+
+ 
+
+
+
+ 

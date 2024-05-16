@@ -15,10 +15,14 @@ title: Die iranische Rolle im jüngsten Hamas-Krieg gegen Israel
 url: /die-iranische-rolle-im-jungsten-hamas-krieg-gegen-israel/
 ---
 
-<div align=""center"">**<font size=""3"">Die iranische Rolle im jüngsten Hamas-Krieg gegen Israel</font>**<font size=""3"">Michael Segall</font>
 
-</div><font size=""3"">  
-Seitdem es im Anschluss an die Operation Wolkensäule Ende 2012 weitgehend ruhig im Gazastreifen geblieben ist, hat der Iran alles daran gesetzt, das Raketenarsenal der Hamas und des Palästinensischen Islamischen Dschihads quantitativ wie qualitativ aufzustocken. Die Öffnung der Landgrenze zwischen Gaza und dem Sinai während der einjährigen Herrschaft Mohammed Mursis in Ägypten (2012-2013) machte es dem Iran relativ einfach, die Terrororganisationen in Gaza über den Sudan und Sinai und mit Hilfe des weit verzweigten Tunnelsystems mit hochentwickelten Waffen zu versorgen. Eine dieser Lieferungen – zu der auch die in Syrien produzierten M-302 gehören, die während der Operation Schutzwall auf Hadera und Haifa gefeuert wurden – wurde von der israelischen Marine letzten März auf dem Klos-C-Schiff aufgebracht. Auch die Victoria, die am 15. März 2011 abgefangen wurde, transportierte solche Waffen, u.a. Seezielflugkörper und hochentwickelte Kornet-Panzerabwehrraketen. (1)</font>
+**Die iranische Rolle im jüngsten Hamas-Krieg gegen Israel**
+
+Michael Segall
+
+
+  
+Seitdem es im Anschluss an die Operation Wolkensäule Ende 2012 weitgehend ruhig im Gazastreifen geblieben ist, hat der Iran alles daran gesetzt, das Raketenarsenal der Hamas und des Palästinensischen Islamischen Dschihads quantitativ wie qualitativ aufzustocken. Die Öffnung der Landgrenze zwischen Gaza und dem Sinai während der einjährigen Herrschaft Mohammed Mursis in Ägypten (2012-2013) machte es dem Iran relativ einfach, die Terrororganisationen in Gaza über den Sudan und Sinai und mit Hilfe des weit verzweigten Tunnelsystems mit hochentwickelten Waffen zu versorgen. Eine dieser Lieferungen – zu der auch die in Syrien produzierten M-302 gehören, die während der Operation Schutzwall auf Hadera und Haifa gefeuert wurden – wurde von der israelischen Marine letzten März auf dem Klos-C-Schiff aufgebracht. Auch die Victoria, die am 15. März 2011 abgefangen wurde, transportierte solche Waffen, u.a. Seezielflugkörper und hochentwickelte Kornet-Panzerabwehrraketen. (1)
 
 Obwohl die syrische Krise Spannungen zwischen dem Iran und der Hamas begünstigt hat, riss der vielfältige Kontakt zwischen beiden Seiten nicht ab. Aus iranischer Perspektive kommt dem Kampf gegen Israel eine höherer Stellenwert zu als laufende Scherereien mit Palästinenserorganisationen. Unmittelbar nach der Operation Wolkensäule 2012 schrieben sich die Türkei und Ägypten die wesentliche Rolle bei der Unterstützung der Palästinenser zu – zum Ärger des Iran. Teheran blieb entschlossen, die Palästinenser auf eigene Weise zu unterstützen – militärisch. Ziel war es, die Bindung der Hamas an den Iran auch in Krisenzeiten zu bewahren.
 
@@ -89,7 +93,9 @@ Während der Konflikt in Gaza und evtl. auch im Libanon eskaliert, ist es Aufgab
 
 Je mehr Zeit vergeht, umso näher rückt der Iran an die Atombombe und verstärkt dabei seinen Zugriff auf Schlüsselereignisse in der Region. Der Westen muss das iranische Verhalten thematisieren und während der Verhandlungen zur Sprache bringen.
 
-<div align=""center"">**<font size=""3"">\* \* \*</font>**</div>1 http://www.terrorism-info.org.il/en/article/20459.
+
+**\* \* \***
+1 http://www.terrorism-info.org.il/en/article/20459.
 
 2 Mainly Explosively Formed Penetrator (EFP). Iran also transferred such devices to Shiites in Iraq against coalition forces causing massive fatalities
 

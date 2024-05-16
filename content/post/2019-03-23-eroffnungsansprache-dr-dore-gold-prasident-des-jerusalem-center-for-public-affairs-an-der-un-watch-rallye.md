@@ -16,13 +16,13 @@ title: 'Eröffnungsansprache: Dr. Dore Gold, Präsident des Jerusalem Center for
 url: /eroffnungsansprache-dr-dore-gold-prasident-des-jerusalem-center-for-public-affairs-an-der-un-watch-rallye/
 ---
 
-**<span large="" style=""font-size:">Eröffnungsansprache: Dr. Dore Gold, Präsident des Jerusalem Center for Public Affairs, ehemaliger israelischer Botschafter bei den Vereinten Nationen und ehemaliger Generaldirektor des israelischen Außenministeriums, an der UN Watch Rallye  
-</span>**<span medium="" style=""font-size:">  
-</span>
+**Eröffnungsansprache: Dr. Dore Gold, Präsident des Jerusalem Center for Public Affairs, ehemaliger israelischer Botschafter bei den Vereinten Nationen und ehemaliger Generaldirektor des israelischen Außenministeriums, an der UN Watch Rallye  
+**  
 
-<span medium="" style=""font-size:">Montag, 18. März 2019</span>
 
-<span medium="" style=""font-size:">Was hier im UN-Menschenrechtsrat geschieht, ist nicht neu. Tatsächlich gibt es ein tiefes und anhaltendes Problem mit den UN-Gremien, von New York bis Genf, wenn es darum geht Vorwürfe hervorzubringen, welche aussagen, dass Israel die Grundnormen des Völkerrechts verletzt. Als ich 1997 als israelischer Botschafter bei den Vereinten Nationen ernannt worden war, erlebte ich diese Verhaltensweise vom ersten Tag an, sobald ich in das blaugrüne Gebäude an der First Avenue hereinlief.</span>
+Montag, 18. März 2019
+
+Was hier im UN-Menschenrechtsrat geschieht, ist nicht neu. Tatsächlich gibt es ein tiefes und anhaltendes Problem mit den UN-Gremien, von New York bis Genf, wenn es darum geht Vorwürfe hervorzubringen, welche aussagen, dass Israel die Grundnormen des Völkerrechts verletzt. Als ich 1997 als israelischer Botschafter bei den Vereinten Nationen ernannt worden war, erlebte ich diese Verhaltensweise vom ersten Tag an, sobald ich in das blaugrüne Gebäude an der First Avenue hereinlief.
 
 Ich wurde damit konfrontiert, dass die so genannten Hohen Vertragsparteien der Vierten Genfer Konvention – das sind ihre Unterzeichner – einberufen worden sind, um Maßnahmen gegen Israel, wegen angeblicher Verstöße gegen die nach dem Zweiten Weltkrieg angenommene Konvention, welche Zivilisten in Kriegszeiten schützt, zu ergreifen. Israel war ein Unterzeichner.
 
@@ -82,5 +82,4 @@ Israel sucht nicht danach, dass internationale Kräften einspringen, um es zu sc
 Das ist es, was Israel heute verlangt. Aber wenn es sich um die UN handelt, ist die Wahrheit äußerst schwer zu erhalten.
 
 DANKE.  
-<span small="" style=""font-size:">  
-</span>
+  

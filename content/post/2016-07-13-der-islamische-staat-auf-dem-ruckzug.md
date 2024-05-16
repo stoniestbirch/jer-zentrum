@@ -17,12 +17,12 @@ title: Der Islamische Staat auf dem Rückzug
 url: /der-islamische-staat-auf-dem-ruckzug/
 ---
 
-**<span small="" style=""font-size:">Der Islamische Staat auf dem Rückzug</span>**<span small="" style=""font-size:">  
+**Der Islamische Staat auf dem Rückzug**  
 Dr. Jacques Neriah  
-</span>
 
-<span small="" style=""font-size:">  
-Vor zwei Jahren gelang es dem Islamischen Staat mittels eines Blitzkrieges ein umfangreiches Territorium von der Größe Großbritanniens zu erobern und sein selbst ernanntes Kalifat zu errichten, das Teile Syrien und des Irak in Stücke riss. Die jüngsten Verluste der radikalen Islamisten haben jedoch zu einer beträchtlichen Verringerung des IS-Gebiets in beiden Ländern geführt.</span>
+
+  
+Vor zwei Jahren gelang es dem Islamischen Staat mittels eines Blitzkrieges ein umfangreiches Territorium von der Größe Großbritanniens zu erobern und sein selbst ernanntes Kalifat zu errichten, das Teile Syrien und des Irak in Stücke riss. Die jüngsten Verluste der radikalen Islamisten haben jedoch zu einer beträchtlichen Verringerung des IS-Gebiets in beiden Ländern geführt.
 
 Tatsächlich hat der IS einerseits von Seiten der Koalition aus Syrien, Iran, Russland und der Hisbollah wie andererseits der gemäßigt amerikanisch-westlich-irakisch-arabischen Koalition enorme Verluste an Kämpfern und noch mehr an Territorium (ca. 40%)verzeichnen müssen (dem französischen Verteidigungsminister zufolge verlor der IS 2015 20,000 Kämpfer). Der symbolreichste Verlust war die Aufgabe Palmyras, das von Bashar Assad treuen Truppen mit massiver russischer Luftunterstützung und Infanterie der Iranischen Revolutionsgarden und afghanischer Milizen zurückerobert wurde.
 

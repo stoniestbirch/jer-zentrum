@@ -52,8 +52,99 @@ title: Wird die Fatah dem bewaffneten Kampf abschwören?
 url: /wird-die-fatah-dem-bewaffneten-kampf-abschworen/
 ---
 
-<div align=""center"">**<font size=""3"">Wird die Fatah dem bewaffneten Kampf abschwören?</font>**</div><div align=""center"">**<font size=""3""> </font>**</div><div align=""center""><font size=""3""> </font></div><div align=""center""><font size=""3"">Pinhas Inbari</font></div><div align=""center""><font size=""3""> </font></div><div align=""center""><font size=""3""> </font></div><div><font size=""3"">Der sechste Kongress der Fatah, der nach zwanzig Jahren erstmalig wieder zusammentritt, dürfte v.a. nach zwei Gesichtspunkten beurteilt werden: seinen Beschlüssen und die Zusammensetzung der neuen Fatah-Führung. An dieser Stelle sollen die zu erwartenden Entscheidungen untersucht werden, während eine Einschätzung der neuen Führung zukünftigen Analysen vorbehalten bleibt.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Das internationale Interesse an dem Fatah-Kongress ist hoch, da ein Großteil der internationalen Gemeinschaft das Palästinenserproblem als Schlüssel für die ganze Breite der nahöstlichen Konflikte betrachtet. Viele Beobachter interessiert, inwieweit der Kongress die Aussichten für eine Neuaufnahme des Friedensprozesses zwischen Israel und den Palästinensern, oder gar für den Beginn eines regionalen Friedenprozesses auf Basis der bilateralen israelisch-palästinensischen Verständigung voranbringen oder zurückwerfen wird.</font></div><div><font size=""3""> </font></div><div><font size=""3"">In dieser Hinsicht ist die entscheidende Frage, ob die Fatah ihr historisches Prinzip des „bewaffneten Kampfes“ – Muqawama – aufgeben und sich zu auf Kompromissen basierenden Friedensverhandlungen bereit erklären wird, so wie es von der vergangenen Kadima-Regierung Israels und den palästinensischen Unterhändlern, geführt vom Palästinenserführer Mahmoud Abbas und dem ehemaligen PA-Premier Abu Ala, ausgiebig diskutiert wurde.</font></div><div><font size=""3""> </font></div><div>**<font size=""3"">Zwei Dokumente: Eins für die internationale Öffentlichkeit, eins zum internen Gebrauch</font>**</div><div><font size=""3""> </font></div><div><font size=""3"">Die beiden relevanten Papiere, die von dem Fatah-Kongress diskutiert und gebilligt werden müssen, sind das politische Programm</font>[<span><span><span><span><font size=""3"">\[1\]</font></span></span></span></span>]("http://jer-zentrum.org/FCKeditor/editor/fckblank.html#_edn1" """")<font size=""3""> und die „Interne Order“.</font>[<span><span><span><font size=""3"">\[2\]</font></span></span></span>]("http://jer-zentrum.org/FCKeditor/editor/fckblank.html#_edn2" """")<font size=""3""> Das Politische Programm könnte von vielen so betrachtet werden, als würde es einen Fortschritt hinsichtlich der Akzeptanz einer politischen Lösung und der Ablehnung von Gewalt widerspiegeln – auch wenn es nicht so weit geht, das Prinzip des „bewaffneten Kampfes“ aufzuheben. Das Papier bekennt sich zur Arabischen Friedensinitiative, spricht mit vage bleibenden Formulierungen vom „Rückkehrrecht“ – „basierend auf der UN-Resolution 181“ nicht jedoch in Erfüllung dieser Resolution und bietet eine „Intifada der Steine“ (die erste Intifada) als das dem militärischen Kampf zu bevorzugende Modell an.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Das Prinzip des „bewaffneten Kampfes“ wird als Option der Vergangenheit erwähnt, welche im Vergleich zu anderen Formen des Kampfes überprüft werden müsse. Die unseren Zeiten gemäßen Formen seien die Kampagne gegen die „Mauer“ in Nil’in und Bil’in, nur „10 000 Mal stärker“. Das politische Program benutzt den Begriff des „Kampfes“ (ihn nicht als „bewaffneten Kampf“ bezeichnend) und des „friedlichen Kampfes“. Allerdings finden sich mehr als ein Verweis auf den Begriff „Kampf aller Optionen“, worin der bewaffnete Kampf eingeschlossen ist. In einem Interview mit Ma’an News machte der Fatah-Führer im Libanon, Sultan Abu al-Einein, deutlich, dass damit auch der bewaffnete Kampf gemeint sei.</font></div><div><font size=""3""> </font></div><div>**<font size=""3"">Die „Interne Order“ – ein anderes Bild</font>**</div><div>**<font size=""3""> </font>**</div><div><font size=""3"">Den Kampf nach dem Vorbild Nil’in-Bil’in zu modellieren ist problematisch, da es allzu schnell in Gewalt umschlagen kann, wie Erfahrungen der Vergangenheit bewiesen haben. Doch das eigentliche Problem findet sich im zweiten Papier – der „Internen Order.“ Alle Formulierungen, die im Politischen Programm weggelassen wurden, finden sich in diesem vermeintlichen „bürokratischen“ Dokument. Der Begriff des „bewaffneten Volkskampfes“ erscheint gleich zu Beginn. Während das politische Programm danach strebt, den Kampf der Notwendigkeit „internationaler Legitimität“ unterzuordnen, wird die „Order“ deutlich in ihrer Ablehnung aller internationaler Friedensinitiativen: „Projekte, Vereinbarungen und Resolutionen, die von den Vereinten Nationen oder Einzelstaaten zum palästinensischen Problem beschlossen wurden oder werden, und die die Ansprüche der Palästinenser auf ihr Heimatland aufheben, sind null und nichtig.“</font></div><div>**<font size=""3""> </font>**</div><div><font size=""3"">Artikel 22 fordert zudem „einen gewaltsamen Widerspruch gegen alle politischen Lösungen, die eine Alternative zur Vernichtung des besetzenden zionistischen Gebildes in Palästina darstellen, und gegen alle Projekten, die auf die Eliminierung des Palästinenserproblems zielen, es zu internationalisieren suchen oder die durch irgendeine Partei dem Volk einen äußeren Vormund auferlegen wollen.“ Dieser Artikel steht im direkten Widerspruch zum Aufruf für eine größere internationale Einbindung des Problems und die Einladung internationaler Akteure in Palästina, wie sie sich im Politischen Programm finden.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Artikel 9 sagt deutlich, dass „die Befreiung des Heiligen Landes und die Verteidigung seiner heiligen Stätten (die für Ungläubige verboten sind) eine arabische, islamische und humanitäre Pflicht \[ist\].“</font></div><div><font size=""3""> </font></div><div>**<font size=""3"">Fatah bleibt bei der Strategie des „Bewaffneten Kampfes“</font>**</div><div>**<font size=""3""> </font>**</div><div><font size=""3"">An dieser Stelle kommen wir zum Kern: Die Fatah bleibt beim bewaffneten Kampf als Strategie zur Befreiung ganz Palästinas und zur Vernichtung Israels. Im Artikel 12 wird aufgerufen zur „vollständigen Befreiung Palästinas und zur Vernichtung des zionistischen Besatzungsstaates ökonomisch, politisch, militärisch und kulturell.“ (Tatsächlich ist eine der im Politischen Programm für eine „friedliche Intifada“ vorgeschlagenen Methoden ein wirtschaftlicher Boykott Israels).</font></div><div><font size=""3""> </font></div><div><font size=""3"">Artikel 13 fordert „die Errichtung eines souveränen demokratischen Palästinenserstaates auf dem Gebieten des ganzen Palästina, in dem die legitimen Rechte seiner Bürger auf Grundlage von Gerechtigkeit und Gleichheit ohne Diskriminierung von Rasse, Religion oder Glauben bewahrt werden, und dessen Hauptstadt Jerusalem ist.“ Während das Politische Programm eine „Ein-Staaten-Lösung“ nur für den Fall erwähnt, dass die „Zwei-Staaten-Lösung“ scheitert, betrachtet die „Interne Order“ erstere als einzige Lösung. Und Artikel 17 sagt: „Die bewaffnete Revolution des Volkes ist der einzige und unvermeidliche Weg zur Befreiung Palästinas.“</font></div><div><font size=""3""> </font></div><div><font size=""3"">Schließlich stellt Artikel 19 fest: „Der bewaffnete Kampf ist eine Strategie und nicht nur eine Taktik. Eine bewaffnete Revolution des arabisch-palästinensischen Volkes ist der entscheidende Faktor in einem Befreiungskrieg und für die Vernichtung der zionistischen Existenz. Dieser Kampf wird nicht ruhen, bis das zionistische Gebilde vernichtet und Palästina befreit ist.“</font></div><div><font size=""3""> </font></div><div><font size=""3"">Während also das Politische Programm der Fatah versucht, den internationalen Erwartungen entgegenzukommen und wie geschaffen scheint, um für die Neuauflage einer „friedlichen Intifada“ internationale Legitimität zu mobilisieren, so erinnert uns die „Interne Order“ daran, wie tief verfangen die Fatah in ihrer Ideologie der sechziger und siebziger Jahre noch ist.</font></div><div><font size=""3""> </font></div><div align=""center""><font size=""3"">\* \* <span> \*</span></font></div><div align=""center""><font size=""3""> </font></div><div><font size=""3"">Pinhas Inbari ist einer der führenden Politanalysten des Jerusalem Center for Public Affairs. Zudem ist er ein langjähriger Korrespondent für palästinensische Angelegenheiten. Er arbeitete für Israel Radio und Al Hamishmar, sowie gegenwärtig für verschiedene ausländische Medien. Er ist Autor einer Reihe von Büchern zu palästinensischen Themen, u.a. *The Palestinians: Between Terrorism and Statehood*.</font></div><div>**<font size=""3""> </font>**</div><div><font size=""3""> </font></div><div>  
-  
-<font size=""3"">---
 
-</font><div id=""edn1""><div>[<span><span><span><font size=""3"">\[1\]</font></span></span></span>]("http://jer-zentrum.org/FCKeditor/editor/fckblank.html#_ednref1" """")<font size=""3""> http://www.e-fateh.org/paper\_full\_1.aspx</font></div></div><div id=""edn2""><div>[<span><span><span><font size=""3"">\[2\]</font></span></span></span>]("http://jer-zentrum.org/FCKeditor/editor/fckblank.html#_ednref2" """")<font size=""3""> http://www.e-fateh.org/paper\_full\_3.aspx.</font></div></div></div>
+**Wird die Fatah dem bewaffneten Kampf abschwören?**
+
+
+
+ 
+
+Pinhas Inbari
+
+ 
+
+ 
+
+Der sechste Kongress der Fatah, der nach zwanzig Jahren erstmalig wieder zusammentritt, dürfte v.a. nach zwei Gesichtspunkten beurteilt werden: seinen Beschlüssen und die Zusammensetzung der neuen Fatah-Führung. An dieser Stelle sollen die zu erwartenden Entscheidungen untersucht werden, während eine Einschätzung der neuen Führung zukünftigen Analysen vorbehalten bleibt.
+
+ 
+
+Das internationale Interesse an dem Fatah-Kongress ist hoch, da ein Großteil der internationalen Gemeinschaft das Palästinenserproblem als Schlüssel für die ganze Breite der nahöstlichen Konflikte betrachtet. Viele Beobachter interessiert, inwieweit der Kongress die Aussichten für eine Neuaufnahme des Friedensprozesses zwischen Israel und den Palästinensern, oder gar für den Beginn eines regionalen Friedenprozesses auf Basis der bilateralen israelisch-palästinensischen Verständigung voranbringen oder zurückwerfen wird.
+
+ 
+
+In dieser Hinsicht ist die entscheidende Frage, ob die Fatah ihr historisches Prinzip des „bewaffneten Kampfes“ – Muqawama – aufgeben und sich zu auf Kompromissen basierenden Friedensverhandlungen bereit erklären wird, so wie es von der vergangenen Kadima-Regierung Israels und den palästinensischen Unterhändlern, geführt vom Palästinenserführer Mahmoud Abbas und dem ehemaligen PA-Premier Abu Ala, ausgiebig diskutiert wurde.
+
+ 
+
+**Zwei Dokumente: Eins für die internationale Öffentlichkeit, eins zum internen Gebrauch**
+
+ 
+
+Die beiden relevanten Papiere, die von dem Fatah-Kongress diskutiert und gebilligt werden müssen, sind das politische Programm[\[1\]]("#_edn1") und die „Interne Order“.[\[2\]]("#_edn2") Das Politische Programm könnte von vielen so betrachtet werden, als würde es einen Fortschritt hinsichtlich der Akzeptanz einer politischen Lösung und der Ablehnung von Gewalt widerspiegeln – auch wenn es nicht so weit geht, das Prinzip des „bewaffneten Kampfes“ aufzuheben. Das Papier bekennt sich zur Arabischen Friedensinitiative, spricht mit vage bleibenden Formulierungen vom „Rückkehrrecht“ – „basierend auf der UN-Resolution 181“ nicht jedoch in Erfüllung dieser Resolution und bietet eine „Intifada der Steine“ (die erste Intifada) als das dem militärischen Kampf zu bevorzugende Modell an.
+
+ 
+
+Das Prinzip des „bewaffneten Kampfes“ wird als Option der Vergangenheit erwähnt, welche im Vergleich zu anderen Formen des Kampfes überprüft werden müsse. Die unseren Zeiten gemäßen Formen seien die Kampagne gegen die „Mauer“ in Nil’in und Bil’in, nur „10 000 Mal stärker“. Das politische Program benutzt den Begriff des „Kampfes“ (ihn nicht als „bewaffneten Kampf“ bezeichnend) und des „friedlichen Kampfes“. Allerdings finden sich mehr als ein Verweis auf den Begriff „Kampf aller Optionen“, worin der bewaffnete Kampf eingeschlossen ist. In einem Interview mit Ma’an News machte der Fatah-Führer im Libanon, Sultan Abu al-Einein, deutlich, dass damit auch der bewaffnete Kampf gemeint sei.
+
+ 
+
+**Die „Interne Order“ – ein anderes Bild**
+
+
+
+Den Kampf nach dem Vorbild Nil’in-Bil’in zu modellieren ist problematisch, da es allzu schnell in Gewalt umschlagen kann, wie Erfahrungen der Vergangenheit bewiesen haben. Doch das eigentliche Problem findet sich im zweiten Papier – der „Internen Order.“ Alle Formulierungen, die im Politischen Programm weggelassen wurden, finden sich in diesem vermeintlichen „bürokratischen“ Dokument. Der Begriff des „bewaffneten Volkskampfes“ erscheint gleich zu Beginn. Während das politische Programm danach strebt, den Kampf der Notwendigkeit „internationaler Legitimität“ unterzuordnen, wird die „Order“ deutlich in ihrer Ablehnung aller internationaler Friedensinitiativen: „Projekte, Vereinbarungen und Resolutionen, die von den Vereinten Nationen oder Einzelstaaten zum palästinensischen Problem beschlossen wurden oder werden, und die die Ansprüche der Palästinenser auf ihr Heimatland aufheben, sind null und nichtig.“
+
+
+
+Artikel 22 fordert zudem „einen gewaltsamen Widerspruch gegen alle politischen Lösungen, die eine Alternative zur Vernichtung des besetzenden zionistischen Gebildes in Palästina darstellen, und gegen alle Projekten, die auf die Eliminierung des Palästinenserproblems zielen, es zu internationalisieren suchen oder die durch irgendeine Partei dem Volk einen äußeren Vormund auferlegen wollen.“ Dieser Artikel steht im direkten Widerspruch zum Aufruf für eine größere internationale Einbindung des Problems und die Einladung internationaler Akteure in Palästina, wie sie sich im Politischen Programm finden.
+
+ 
+
+Artikel 9 sagt deutlich, dass „die Befreiung des Heiligen Landes und die Verteidigung seiner heiligen Stätten (die für Ungläubige verboten sind) eine arabische, islamische und humanitäre Pflicht \[ist\].“
+
+ 
+
+**Fatah bleibt bei der Strategie des „Bewaffneten Kampfes“**
+
+
+
+An dieser Stelle kommen wir zum Kern: Die Fatah bleibt beim bewaffneten Kampf als Strategie zur Befreiung ganz Palästinas und zur Vernichtung Israels. Im Artikel 12 wird aufgerufen zur „vollständigen Befreiung Palästinas und zur Vernichtung des zionistischen Besatzungsstaates ökonomisch, politisch, militärisch und kulturell.“ (Tatsächlich ist eine der im Politischen Programm für eine „friedliche Intifada“ vorgeschlagenen Methoden ein wirtschaftlicher Boykott Israels).
+
+ 
+
+Artikel 13 fordert „die Errichtung eines souveränen demokratischen Palästinenserstaates auf dem Gebieten des ganzen Palästina, in dem die legitimen Rechte seiner Bürger auf Grundlage von Gerechtigkeit und Gleichheit ohne Diskriminierung von Rasse, Religion oder Glauben bewahrt werden, und dessen Hauptstadt Jerusalem ist.“ Während das Politische Programm eine „Ein-Staaten-Lösung“ nur für den Fall erwähnt, dass die „Zwei-Staaten-Lösung“ scheitert, betrachtet die „Interne Order“ erstere als einzige Lösung. Und Artikel 17 sagt: „Die bewaffnete Revolution des Volkes ist der einzige und unvermeidliche Weg zur Befreiung Palästinas.“
+
+ 
+
+Schließlich stellt Artikel 19 fest: „Der bewaffnete Kampf ist eine Strategie und nicht nur eine Taktik. Eine bewaffnete Revolution des arabisch-palästinensischen Volkes ist der entscheidende Faktor in einem Befreiungskrieg und für die Vernichtung der zionistischen Existenz. Dieser Kampf wird nicht ruhen, bis das zionistische Gebilde vernichtet und Palästina befreit ist.“
+
+ 
+
+Während also das Politische Programm der Fatah versucht, den internationalen Erwartungen entgegenzukommen und wie geschaffen scheint, um für die Neuauflage einer „friedlichen Intifada“ internationale Legitimität zu mobilisieren, so erinnert uns die „Interne Order“ daran, wie tief verfangen die Fatah in ihrer Ideologie der sechziger und siebziger Jahre noch ist.
+
+ 
+
+\* \*  \*
+
+ 
+
+Pinhas Inbari ist einer der führenden Politanalysten des Jerusalem Center for Public Affairs. Zudem ist er ein langjähriger Korrespondent für palästinensische Angelegenheiten. Er arbeitete für Israel Radio und Al Hamishmar, sowie gegenwärtig für verschiedene ausländische Medien. Er ist Autor einer Reihe von Büchern zu palästinensischen Themen, u.a. *The Palestinians: Between Terrorism and Statehood*.
+
+
+
+ 
+
+  
+  
+---
+
+
+
+[\[1\]]("#_ednref1") http://www.e-fateh.org/paper\_full\_1.aspx
+
+
+
+[\[2\]]("#_ednref2") http://www.e-fateh.org/paper\_full\_3.aspx.
+
+

@@ -15,18 +15,18 @@ excerpt: |-
   Uns allen ist nämlich bewusst, was in Jerusalem geschah, als wir die Altstadt nicht betreten durften, und was sich für die Heiligen Stätten verändert hat, seitdem Israel 1967 die Stadt wieder vereinte und den Zugang für Menschen aller Glaubensrichtungen unter Schutz stellte. Eine kurze Umfrage macht klar, dass nur ein freies und demokratisches Israel den Schutz der Heiligen Stätten der großen Religionen in Jerusalem gewährleistet.  Lassen Sie mich betonen, dass eine amerikanische Unterstützung der israelischen Rolle in Jerusalem die Kernwerte Amerikas und des Westens - Pluralismus, Frieden und gegenseitiger Respekt - ebenso stärkt wie die Position des einzigen internationalen Akteurs, der die Heiligen Stätten Jerusalems für alle schützt.
 guid: http://jer-zentrum.org/?p=87
 id: 87
-title: Verlegung der US-Botschaft von Tel Aviv nach Jerusalem &#8211; Probleme und
+title: Verlegung der US-Botschaft von Tel Aviv nach Jerusalem – Probleme und
   Chancen
 url: /verlegung-der-us-botschaft-von-tel-aviv-nach-jerusalem-probleme-und-chancen/
 ---
 
-<span medium="" style=""font-size:">**Verlegung der US-Botschaft von Tel Aviv nach Jerusalem – Probleme und Chancen**   
-Botschafter Dore Gold</span>
+**Verlegung der US-Botschaft von Tel Aviv nach Jerusalem – Probleme und Chancen**   
+Botschafter Dore Gold
 
-<span medium="" style=""font-size:">*Aussage vor dem "Committee on Oversight and Government Reform" des amerikanischen Repräsentantenhaus* </span>
+*Aussage vor dem "Committee on Oversight and Government Reform" des amerikanischen Repräsentantenhaus* 
 
-<span medium="" style=""font-size:">  
-Ich werde mich heute nicht direkt damit beschäftigen, wie die amerikanische Botschaft von Tel Aviv nach Jerusalem verlegt sollte. Meiner Ansicht nach hat US-Präsident Donald Trump dazu eine Verpflichtung abgegeben und ich gehe davon aus, dass er sich an diese hält. Die Vereinigten Staaten werden daher Zeit und Umstände zur Umsetzung der Entscheidung nach ihren eigenen Interessen prüfen. </span>
+  
+Ich werde mich heute nicht direkt damit beschäftigen, wie die amerikanische Botschaft von Tel Aviv nach Jerusalem verlegt sollte. Meiner Ansicht nach hat US-Präsident Donald Trump dazu eine Verpflichtung abgegeben und ich gehe davon aus, dass er sich an diese hält. Die Vereinigten Staaten werden daher Zeit und Umstände zur Umsetzung der Entscheidung nach ihren eigenen Interessen prüfen. 
 
 Die USA werden dabei jedoch eine ganze Reihe von Faktoren berücksichtigen müssen, wenn sie diese Entscheidung fällen. Oft übersehen wird in der Diskussion über den Ort der amerikanischen Botschaft in Israel, wieso dies eine Rolle spielt. Das Botschaftsthema ist nämlich Teil einer weit wichtigeren Frage: die der Notwendigkeit, dass Jerusalem als Hauptstadt Israels vom Westen anerkannt wird. Diese Anerkennung ist aus einer Reihe von Gründen von entscheidender Bedeutung.
 

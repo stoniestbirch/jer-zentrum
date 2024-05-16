@@ -42,8 +42,8 @@ title: Strategische Implikationen der Grenzöffnung zwischen Gaza und Ägypten f
 url: /strategische-implikationen-der-grenzoffnung-zwischen-gaza-und-agypten-fur-israel/
 ---
 
-<font face=""Arial"" size=""3"">  
- \* Es bestand Hoffnung, dass der Sanktionsdruck auf die Hamas in Gaza bei gleichzeitiger Mithilfe beim Aufbau einer stabilen und erfolgreichen palästinensischen Gesellschaft im Westjordanland auch im Gaza-Streifen Unterstützung für die Abbas-Führung auslösen würde. Allerdings kann Hamas nun durch den von ihr geschaffenen neuen Zugang zu ägyptischen Gütern, Waren und Dienstleistungen die kritische Situation Gazas entspannen und das Gefälle zum wohlhabenderen Westjordanland verringern.</font>
+  
+ \* Es bestand Hoffnung, dass der Sanktionsdruck auf die Hamas in Gaza bei gleichzeitiger Mithilfe beim Aufbau einer stabilen und erfolgreichen palästinensischen Gesellschaft im Westjordanland auch im Gaza-Streifen Unterstützung für die Abbas-Führung auslösen würde. Allerdings kann Hamas nun durch den von ihr geschaffenen neuen Zugang zu ägyptischen Gütern, Waren und Dienstleistungen die kritische Situation Gazas entspannen und das Gefälle zum wohlhabenderen Westjordanland verringern.
 
    
  \* Damit kontrolliert zum ersten Mal in der modernen Geschichte des Nahen Osten Hamas – der palästinensische Arm der Muslimbruderschaft und ideologische Cousin Al-Qaidas – ein zusammenhängendes Gebiet samt Bevölkerung de facto als Regierung ohne wirkliche Opposition.
@@ -107,8 +107,8 @@ Israel könnte also durchaus einige Vorteile durch diesen Wandel der Beziehung z
 **Die Rolle Irans**   
 Die iranische Rolle ist ein weiterer beunruhigender Aspekt dieser neuen Situation in Gaza. Irans direkte und nachhaltige Unterstützung seiner Marionette Hamas durch Khaled Mashal und die in Damaskus beheimatete Hamas-Führung hat wesentlich dazu beigetragen, dass Gaza eine verstärkte Ausgangsbasis für die Verbreitung iranischen Terrors und iranischer politischer Kontrolle in der Region wurde. Die Ironie ist nicht von der Hand zu weisen, dass ein ägyptisch unterstütztes Gaza nun neben Syrien zu einem zweiten iranischen Einfallstor in die arabische Welt werden könnte, von dem aus arabische Länder und Gebiete unterwandert und kontrolliert werden können, ganz im Rahmen der iranischen Großmachtpläne, unter einem nuklearen Schirm regionale Hegemonie zu erlangen.
 
-<font size=""2"">Gen.Maj. (Res.) Yaakov Amidror, Vorsitzender des Institute for Contemporary Affairs, ist ehemaliger Kommandeur des National Defense College der Israelischen Streitkräfte (IDF) sowie des IDF-Staff and Command College. Er ist außerdem ehemaliger Vorsitzender der IDF Research and Assessment Division, mit der besonderer Verantwortlichkeit bei der Erstellung des Nationalen Nachrichtendienstberichts. Dan Diker ist der führende Leiter des Institute for Contemporary Affairs und außenpolitische Experte des Jerusalem Center for Public Affairs.  
-</font>  
+Gen.Maj. (Res.) Yaakov Amidror, Vorsitzender des Institute for Contemporary Affairs, ist ehemaliger Kommandeur des National Defense College der Israelischen Streitkräfte (IDF) sowie des IDF-Staff and Command College. Er ist außerdem ehemaliger Vorsitzender der IDF Research and Assessment Division, mit der besonderer Verantwortlichkeit bei der Erstellung des Nationalen Nachrichtendienstberichts. Dan Diker ist der führende Leiter des Institute for Contemporary Affairs und außenpolitische Experte des Jerusalem Center for Public Affairs.  
+  
 \[1\] Ehud Yaari, "Egypt Working to Contain Gaza," Policy Watch #1337, Washington Institute for Near East Policy, 1. Februar 2008.
 
 1\[2\] "Egypt Agrees to Abbas Control over Gaza Border, Palestinian Officials Say," Ynet News, 27. Januar 2008.

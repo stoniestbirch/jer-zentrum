@@ -13,10 +13,14 @@ title: Die Struktur des Islamischen Staates (IS/ISIS)
 url: /die-struktur-des-islamischen-staates-is-isis/
 ---
 
-<div align=""center"">**<font size=""3"">Die Struktur des Islamischen Staates (IS/ISIS)</font>**<font size=""3"">Jacques Neriah</font>
 
-</div><font size=""3"">  
-Es wurde schon viel über ISIS – den Islamischen Staat im Irak und Syrien – geschrieben. Die meisten Kommentatoren sehen dabei in ISIS eine weitere Terrororganisation im Stile al-Qaidas, die mit Hilfe von Kohorten unorganisierter Gewalttäter einen Guerillakrieg führt. Ihre Ausrüstung im Stil der Taliban, ihre Geländewagen, die schwarzen Uniformen der Mehrzahl ihrer Kämpfer, ihre unrasierten Bärte, Turbane, Kapuzen und Stirnbänder mit arabischen Parolen tragen zur Verwirrung bei.</font>
+**Die Struktur des Islamischen Staates (IS/ISIS)**
+
+Jacques Neriah
+
+
+  
+Es wurde schon viel über ISIS – den Islamischen Staat im Irak und Syrien – geschrieben. Die meisten Kommentatoren sehen dabei in ISIS eine weitere Terrororganisation im Stile al-Qaidas, die mit Hilfe von Kohorten unorganisierter Gewalttäter einen Guerillakrieg führt. Ihre Ausrüstung im Stil der Taliban, ihre Geländewagen, die schwarzen Uniformen der Mehrzahl ihrer Kämpfer, ihre unrasierten Bärte, Turbane, Kapuzen und Stirnbänder mit arabischen Parolen tragen zur Verwirrung bei.
 
 Doch ISIS ist weit mehr als das. ISIS ist ein terroristischer Staat mit nahezu allen Elementen von Regierungsgewalt. Seit Beginn des syrischen Bürgerkrieges vor 3 Jahren hat sich der Islamische Staat von einer extremistischen Splittergruppe zur stärksten, brutalsten, am besten ausgerüsteten und finanzierten Miliz des gegenwärtigen ethnisch-konfessionellen Krieges in Syrien und Irak entwickelt.
 
@@ -24,7 +28,7 @@ Zunächst also die Frage nach dem Namen und den Grenzen dieses Islamischen Staat
 
 ![""]("/UserFiles/ISIS-Map.jpg")
 
-<font size=""2"">Von Spanien bis nach China – Der Fünfjahresplan des IS</font>
+Von Spanien bis nach China – Der Fünfjahresplan des IS
 
 Hält man sich die vom Islamischen Staat publizierten Karten vor Augen, dann wird das Kalifat irgendwann Andalusien im Westen Spaniens umfassen, sich über den Maghreb Nordafrikas erstrecken (und Westafrika einschließlich Nigeria), durch Libyen und Ägypten führen (als geografische Einheit – Ard Al-Kinana – gesehen) sowie Gebiete umfassen, die nach Sprache des Islamischen Staates Ard al-Habasha (Kamerun, Viktoria-Seen, Äthiopien, Somalia), Hidschaz (Saudi Arabien und Golfstaaten), Jemen bis hin nach Khurasan im Osten – die zentralasiatischen islamischen Republiken von Aserbaidschan über Pakistan und den südwestlichen Teil Chinas, der Region der Uiguren (alles checken?) reichen. Ebenso dazu gehören sollen der Iran und die Türkei (als Anadol bezeichnet) sowie Teile Europas (v.a. die Balkanstaaten – entlang der Grenzen des ehemaligen Osmanischen Reiches mit der Habsburger Monarchie).
 
@@ -61,7 +65,9 @@ Mit der Eroberung Mosuls und großer Gebiete in Syrien und im Irak hat der IS ei
 
 Beim Islamischen Staat scheint es sich nicht um ein vorübergehendes Phänomen zu handeln. Die gegenwärtig etablierten Strukturen deuten an, dass, selbst wenn die Führer des IS getötet werden sollten, sein System die Nachfolge gut geregelt hat – so hat auch al-Qaida die Tötung Osama Bin Ladens überlebt. Den Islamischen Staat zu beseitigen, dürfte sich als langes und schwieriges Unterfangen erweisen. Gelingt es nicht, eine Kluft zwischen IS und der lokalen Bevölkerung zu erzeugen, und scheitert man daran, eine dauerhafte politische Lösung für die sunnitisch-schiitischen Rivalitäten im Irak und den syrischen Konflikt zu finden, dann stehen die Erfolgsaussichten schlecht.
 
-<div align=""center""><font size=""3"">**\* \* \***</font></div><font size=""3""></font>
+
+**\* \* \***
+
 
 1 http://www.telegraph.co.uk/news/worldnews/middleeast/iraq/10956280/Inside-the-leadership-of-Islamic-State-how-the-new-caliphate-is-run.html  
 2 http://www.almayadeen.net/infographics/T0QSkHTn2UWk83bXlnj1  

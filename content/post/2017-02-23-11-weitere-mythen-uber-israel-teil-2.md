@@ -12,7 +12,7 @@ excerpt: |-
   Nachdem an dieser Stelle bereits die zehn bekanntesten Mythen über Israel ihrer Unwahrheit überführt wurden, sollen nun - in zwei Teilen - weitere Anschuldigungen besprochen werden.
 guid: http://jer-zentrum.org/?p=78
 id: 78
-title: 11 weitere Mythen über Israel &#8211; Teil 2
+title: 11 weitere Mythen über Israel – Teil 2
 url: /11-weitere-mythen-uber-israel-teil-2/
 ---
 
@@ -22,7 +22,7 @@ Alan Baker
 
 Nachdem an dieser Stelle bereits die zehn bekanntesten Mythen über Israel ihrer Unwahrheit überführt wurden, sollen nun – in zwei Teilen – weitere Anschuldigungen besprochen werden.
 
-**<span small="" style=""font-size:">6. Israel verweigert Millionen von palästinensischen Flüchtlingen das "Rückkehrrecht"</span>**<span small="" style=""font-size:"></span>
+**6. Israel verweigert Millionen von palästinensischen Flüchtlingen das "Rückkehrrecht"**
 
 Das Völkerrecht kennt kein "Rückkehrrecht" für Flüchtlinge, weder in Wort noch Praxis. Weder internationale Verträge noch völkerrechtlich bindende Resolutionen legen Israel eine derartige Verpflichtung auf.
 
@@ -186,14 +186,14 @@ Angesichts der Abwesenheit von klaren und akzeptierten internationalen Kriterien
 
 Humanitäre Normen sind unveräußerlicher Teil der völkerrechtlichen Verpflichtungen der israelischen Truppen. Die juristischen und militärischen Behörden Israels sind dazu verpflichtet, den Vorwurf der Verletzung humanitärer Normen zu untersuchen und dort, wo er sich als berechtigt erweist die entsprechenden juristischen Schritte einzuleiten.
 
-<span small="" style=""font-size:">[Teil 1]("http://jer-zentrum.org/ViewBlog.aspx?ArticleId=191")  
-</span>
+[Teil 1]("http://jer-zentrum.org/ViewBlog.aspx?ArticleId=191")  
 
-<span small="" style=""font-size:">  
-</span>**<span small="" style=""font-size:"> \* \* \*</span>**
 
-<span small="" style=""font-size:">  
-1 http://mfa.gov.il/MFA/InternatlOrgs/MFADocuments/Pages/United%20Nations%20General%20Assembly%20Resolution%20194%20-II.aspx</span>
+  
+** \* \* \***
+
+  
+1 http://mfa.gov.il/MFA/InternatlOrgs/MFADocuments/Pages/United%20Nations%20General%20Assembly%20Resolution%20194%20-II.aspx
 
 2 http://www.mfa.gov.il/mfa/internatlorgs/mfadocuments/pages/un%20security%20council%20resolution%20237.aspx
 

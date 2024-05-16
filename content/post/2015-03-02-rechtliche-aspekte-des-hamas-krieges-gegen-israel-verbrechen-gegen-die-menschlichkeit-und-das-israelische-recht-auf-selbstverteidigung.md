@@ -16,10 +16,12 @@ title: 'Rechtliche Aspekte des Hamas-Krieges gegen Israel: Verbrechen gegen die 
 url: /rechtliche-aspekte-des-hamas-krieges-gegen-israel-verbrechen-gegen-die-menschlichkeit-und-das-israelische-recht-auf-selbstverteidigung/
 ---
 
-<div align=""center""><font color=""#003366"" face=""Arial"" size=""4"">**![""]("/UserFiles/BannerGazaOption1b(3).jpg")Rechtliche Aspekte des Hamas-Krieges gegen Israel: Verbrechen gegen die Menschlichkeit und das israelische Recht auf Selbstverteidigung** </font><font face=""Arial"" size=""3"">**Alan Baker**</font>
 
-</div><font face=""Arial"" size=""3"">  
-Die ideologische Basis der Hamas, die in ihrer nationalen Charta festgelegt ist und in ihren unterschiedslosen Terroranschläge gegen israelische Städte, Dörfer und Bürger zum Ausdruck kommt, macht deutlich, dass sie als Terrororganisation zu definieren ist. Dies hat zur Konsequenz, dass die Hamas in wichtigen Staaten auf der Terrorliste steht.</font>
+**![""]("/UserFiles/BannerGazaOption1b(3).jpg")Rechtliche Aspekte des Hamas-Krieges gegen Israel: Verbrechen gegen die Menschlichkeit und das israelische Recht auf SelbstverteidigungAlan Baker**
+
+
+  
+Die ideologische Basis der Hamas, die in ihrer nationalen Charta festgelegt ist und in ihren unterschiedslosen Terroranschläge gegen israelische Städte, Dörfer und Bürger zum Ausdruck kommt, macht deutlich, dass sie als Terrororganisation zu definieren ist. Dies hat zur Konsequenz, dass die Hamas in wichtigen Staaten auf der Terrorliste steht.
 
 Die Terroraktionen der Hamas, zu denen nicht nur untschiedslose Angriffe gegen israelische Bevölkerungszentren zählen, sondern auch der vorsätzliche und zynische Missbrauch palästinensischer Zivilisten, Moscheen, Krankenhäuser und Schulen als menschliche Schutzschilde, stellen Verletzungen des Humanitären Völkerrechtes dar. Dafür sind die Führer und Kommandeure der Hamas haftbar zu machen und juristisch zu belangen.
 
@@ -27,15 +29,15 @@ Das Völkerrecht erkennt das israelische Selbstverteidigungsrecht an, sei es dur
 
 ---
 
-> > > <font face=""Arial"" size=""3"">***Der gegen Israel erhobene Vorwurf, es greife zu unverhältnismäßiger Gewalt, beruht auf einer falschen Lesart der internationalen Bestimmungen zur Verhältnismäßigkeit in bewaffneten Konflikten.***</font>
+> > > ***Der gegen Israel erhobene Vorwurf, es greife zu unverhältnismäßiger Gewalt, beruht auf einer falschen Lesart der internationalen Bestimmungen zur Verhältnismäßigkeit in bewaffneten Konflikten.***
 
 ---
 
-<font face=""Arial"" size=""3"">  
-</font><font face=""Arial"" size=""3"">  
-Der gegen Israel erhobene Vorwurf, es greife zu unverhältnismäßiger Gewalt, beruht auf einer falschen Lesart der internationalen Bestimmungen zur Verhältnismäßigkeit in bewaffneten Konflikten. Diese regulieren den Einsatz von Gewalt, der im Verhältnis stehen muss zu den militärischen Herausforderungen, die man erwartet. In den internationalen Medien und von führenden Politikern der internationalen Gemeinschaft ist viel gesagt und geschrieben worden, was die Gewalt des Sommers 2014 zwischen dem Hamas-Terrorgebilde im Gazastreifen und Israel angeht. Verschiedene Medien haben dazu auf sehr explizites Bildmaterial zurückgegriffen. Es gibt angemessene rechtliche Fragestellungen, die in dieser Flut oft selektiver, unzulänglicher und mitunter böswilliger Kommentare und Kritik untergehen. Die folgenden Punkte fassen einige der juristischen Aspekte dieser Situation zusammen.</font>
+  
+  
+Der gegen Israel erhobene Vorwurf, es greife zu unverhältnismäßiger Gewalt, beruht auf einer falschen Lesart der internationalen Bestimmungen zur Verhältnismäßigkeit in bewaffneten Konflikten. Diese regulieren den Einsatz von Gewalt, der im Verhältnis stehen muss zu den militärischen Herausforderungen, die man erwartet. In den internationalen Medien und von führenden Politikern der internationalen Gemeinschaft ist viel gesagt und geschrieben worden, was die Gewalt des Sommers 2014 zwischen dem Hamas-Terrorgebilde im Gazastreifen und Israel angeht. Verschiedene Medien haben dazu auf sehr explizites Bildmaterial zurückgegriffen. Es gibt angemessene rechtliche Fragestellungen, die in dieser Flut oft selektiver, unzulänglicher und mitunter böswilliger Kommentare und Kritik untergehen. Die folgenden Punkte fassen einige der juristischen Aspekte dieser Situation zusammen.
 
-<font color=""#003366"">**Die Hamas ist ihrem Wesen nach eine terroristische Organisation**</font>
+**Die Hamas ist ihrem Wesen nach eine terroristische Organisation**
 
 Die ideologische Basis der Hamas findet sich in ihrer nationalen Charta,(1) die sie zum integralen Teil der Muslimbruderschaft macht und deutlich als Terrororganisation definiert. Ihrer proklamierten Ideologie zufolge hat Israel kein Existenzrecht in der Welt und das erklärte Ziel der Hamas ist die Zerstörung des jüdischen Staates: „Die Islamische Widerstandsbewegung ist eine eigenständige palästinensische Bewegung, \[…\], die dafür kämpft, dass das Banner Allahs über jeden Zentimeter von Palästina aufgepflanzt wird.“ Zusätzlich wirbt die Organisation für eine antisemitische Ideologie, die den Heiligen Krieg und den Mord an Juden glorifiziert.
 
@@ -45,21 +47,21 @@ Zu einer solchen Anerkennung gehört die formale und juristische Klassifikation 
 
 Ihr modus operandi befürwortet und fordert den Terror gegen Israel als Mittel zum Zweck. Israelische Bürger – Männer, Frauen und Kinder – gelten als legitime militärische Ziele, womit Terrorangriffe durch Raketen, Selbstmordanschläge, Mord und Entführungen gerechtfertigt werden. Sie bekennt sich offenkundig zur Strategie der Terrorisierung der israelischen Zivilbevölkerung durch Raketenbeschuss israelischer Städte und Dörfer. Ihre Führung und ihre Sprecher haben öffentlich ihre Verantwortung für diese Terrorangriffe bezeugt. Die unterschiedslosen Angriffe stimmen folglich mit ihrer Ideologie überein, die in jedem ermordeten israelischen Zivilisten einen strategischen und taktischen Erfolg sieht.(4)
 
-**<font color=""#003366"">Terrorismus und Völkerrecht</font>**
+**Terrorismus und Völkerrecht**
 
 Das Völkerrecht untersagt theoretisch wie praktisch die Anwendung von terroristischer Gewalt, aus welchem Grund und mit welcher Rechtfertigung auch immer. Dies wurde in einer ganzen Reihe von Resolutionen bestätigt, die der UN-Sicherheitsrat verabschiedet hat, v.a. nach den Anschlägen des 11. September 2001 gegen die Vereinigten Staaten.(5)
 
 So verurteilt die Sicherheitsratsresolution 1269 von 1999(6) im operativen Paragraphen:
 
-> > <font face=""Arial"" size=""3"">„unmißverständlich alle terroristischen Handlungen, Methoden und Praktiken als kriminell und nicht zu rechtfertigen, ungeachtet ihrer Beweggründe, in allen Formen und Ausprägungen, gleichviel wo und von wem sie begangen werden, insbesondere diejenigen, die den Weltfrieden und die internationale Sicherheit gefährden könnten.“</font>
+> > „unmißverständlich alle terroristischen Handlungen, Methoden und Praktiken als kriminell und nicht zu rechtfertigen, ungeachtet ihrer Beweggründe, in allen Formen und Ausprägungen, gleichviel wo und von wem sie begangen werden, insbesondere diejenigen, die den Weltfrieden und die internationale Sicherheit gefährden könnten.“
 
-<font face=""Arial"" size=""3"">  
-Ausrücklicher noch verurteilte die Sicherheitsratsresolution 1566 vom Oktober 2004, die unter Kapitel VII der UN-Charta verabschiedet wurde, </font>
+  
+Ausrücklicher noch verurteilte die Sicherheitsratsresolution 1566 vom Oktober 2004, die unter Kapitel VII der UN-Charta verabschiedet wurde, 
 
-> > <font face=""Arial"" size=""3"">„auf das entschiedenste alle Akte des Terrorismus, ungeachtet ihrer Beweggründe und gleichviel wann und von wem sie begangen werden, als eine der schwerwiegendsten Bedrohungen des Friedens und der Sicherheit; \[…\] Straftaten, namentlich auch gegen Zivilpersonen, die mit der Absicht begangen werden, den Tod oder schwere Körperverletzungen zu verursachen, oder Geiselnahmen, die mit dem Ziel begangen werden, die ganze Bevölkerung, eine Gruppe von Personen oder einzelne Personen in Angst und Schrecken zu versetzen, eine Bevölkerung einzuschüchtern oder eine Regierung oder eine internationale Organisation zu einem Tun oder Unterlassen zu nötigen, welche Straftaten im Sinne und entsprechend den Begriffsbestimmungen der internationalen Übereinkommen und Protokolle betreffend den Terrorismus darstellen, unter keinen Umständen gerechtfertigt werden können, indem politische, philosophische, weltanschauliche, rassische, ethnische, religiöse oder sonstige Erwägungen ähnlicher Art angeführt werden.“(7) </font>
+> > „auf das entschiedenste alle Akte des Terrorismus, ungeachtet ihrer Beweggründe und gleichviel wann und von wem sie begangen werden, als eine der schwerwiegendsten Bedrohungen des Friedens und der Sicherheit; \[…\] Straftaten, namentlich auch gegen Zivilpersonen, die mit der Absicht begangen werden, den Tod oder schwere Körperverletzungen zu verursachen, oder Geiselnahmen, die mit dem Ziel begangen werden, die ganze Bevölkerung, eine Gruppe von Personen oder einzelne Personen in Angst und Schrecken zu versetzen, eine Bevölkerung einzuschüchtern oder eine Regierung oder eine internationale Organisation zu einem Tun oder Unterlassen zu nötigen, welche Straftaten im Sinne und entsprechend den Begriffsbestimmungen der internationalen Übereinkommen und Protokolle betreffend den Terrorismus darstellen, unter keinen Umständen gerechtfertigt werden können, indem politische, philosophische, weltanschauliche, rassische, ethnische, religiöse oder sonstige Erwägungen ähnlicher Art angeführt werden.“(7) 
 
-<font face=""Arial"" size=""3"">  
-Nicht weniger als 16 internationale Konventionen und Protokolle wurden seit 1963 von den Vereinten Nationen verabschiedet, die alle Aspekte des internationalen Terrorismus kriminalisieren. Dazu gehören einige der wesentlichsten Resolutionen der UN-Vollversammlung. Zusammen stellen sie einen deutlichen Konsens in der internationalen Gemeinschaft dar, alle Formen des Terrorismus zu ächten.(8) </font>
+  
+Nicht weniger als 16 internationale Konventionen und Protokolle wurden seit 1963 von den Vereinten Nationen verabschiedet, die alle Aspekte des internationalen Terrorismus kriminalisieren. Dazu gehören einige der wesentlichsten Resolutionen der UN-Vollversammlung. Zusammen stellen sie einen deutlichen Konsens in der internationalen Gemeinschaft dar, alle Formen des Terrorismus zu ächten.(8) 
 
 Eine dieser UN-Konventionen ist das „Internationale Übereinkommen zur Bekämpfung terroristischer Bombenanschläge“(9) von 1997, in der die Platzierung von Bomben an Regierungsgebäuden und in öffentlichen Verkehrsmitteln kriminalisiert wird.
 
@@ -67,11 +69,13 @@ Eine dieser UN-Konventionen ist das „Internationale Übereinkommen zur Bekämp
 
 Zusätzlich zu den internationalen Vereinbarungen findet sich eine Reihe regionaler Konventionen z.B. von der Afrikanischen Union, OAS, ASEAN, CIS, SHARC, Shanghai Cooperation Organization, dem Europäischen Rat, dem EU-Action-Plan, der Arabischen Liga und der Organisation der Islamischen Konferenz.(11)
 
-<font color=""#003366"">**Internationale Verbrechen und die strafrechtliche Verantwortung der Hamas**</font>
+**Internationale Verbrechen und die strafrechtliche Verantwortung der Hamas**
 
-<div align=""center""><font face=""Arial"" size=""3""> <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/VTArVIHDelg"" width=""420""></iframe></font>> > > > > > > <font face=""Arial"" size=""3""><font size=""2"">Beleg, dass die Hamas das Bemühen der IDF ausnutzt, zivile Schäden im Gazastreifen zu begrenzen. (IDF/YouTube)</font></font>
 
-</div><font face=""Arial"" size=""3""> Der von der Hamas praktizierte Terrorismus – sowohl die unterschiedslosen Angriffe auf israelische Ortschaften und Zivilisten sowie der Missbrauch der eigenen Bevölkerung als menschliche Schutzschilde – sind Verletzungen des Völkerrechts und international akzeptierte humanitärer Normen, v.a. der Regel der Unterscheidung, die verlangt, dass Kriegsparteien ihre Angriffe auf legitime militärische Ziele limitieren.(12) </font>
+ <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/VTArVIHDelg"" width=""420""></iframe>> > > > > > > Beleg, dass die Hamas das Bemühen der IDF ausnutzt, zivile Schäden im Gazastreifen zu begrenzen. (IDF/YouTube)
+
+
+ Der von der Hamas praktizierte Terrorismus – sowohl die unterschiedslosen Angriffe auf israelische Ortschaften und Zivilisten sowie der Missbrauch der eigenen Bevölkerung als menschliche Schutzschilde – sind Verletzungen des Völkerrechts und international akzeptierte humanitärer Normen, v.a. der Regel der Unterscheidung, die verlangt, dass Kriegsparteien ihre Angriffe auf legitime militärische Ziele limitieren.(12) 
 
 Auf diese Weise stellen die Vergehen der Hamas sowohl Verbrechen gegen die Menschlichkeit als auch Kriegsverbrechen dar und können vom Internationalen Strafgerichtshof (ICC) wie auch Gerichten, die dem universellen Strafrecht verpflichtet sind, geahndet werden.
 
@@ -81,48 +85,50 @@ Auch das Rom-Statut, das den Internationalen Strafgerichtshof begründete, erkl�
 
 ---
 
-> > > > <font face=""Arial"" size=""3""> ***Nichtstaatliche Akteure gelten nach allen akzeptierten Kriterien im Rahmen des Humanitären Völkerrechts als haftbar, wenn sie Partei in einem bewaffneten Konflikt werden.***</font>
+> > > >  ***Nichtstaatliche Akteure gelten nach allen akzeptierten Kriterien im Rahmen des Humanitären Völkerrechts als haftbar, wenn sie Partei in einem bewaffneten Konflikt werden.***
 
 ---
 
-<font face=""Arial"" size=""3"">  
-</font><font face=""Arial"" size=""3"">   
-Die Hamas verfügt über ihr eigenes Militär, eigene politische und soziale Institutionen sowie die faktische Kontrolle über ein definiertes Territorium. Sie hat tausende von Raketen auf israelische Städte gefeuert und auf diese Weise das Leben von Millionen Israelis terrorisiert und gefährdet. Auch als nichtstaatliches Gebilde oder Teil eines nichtsstaatlichen Gebildes gilt die Hamas nach allen akzeptierten Kriterien im Rahmen des Humanitären Völkerrechts als haftbar für ihre Terrorangriffe auf israelische Zivilisten und die Verwendung der eigenen Zivilbevölkerung als menschliche Schutzschilde. Folglich sind ihre Führung und ihre Kommandeure und Kämpfer strafbar für Verbrechen gegen die Menschlichkeit und Kriegsverbrechen.</font>
+  
+   
+Die Hamas verfügt über ihr eigenes Militär, eigene politische und soziale Institutionen sowie die faktische Kontrolle über ein definiertes Territorium. Sie hat tausende von Raketen auf israelische Städte gefeuert und auf diese Weise das Leben von Millionen Israelis terrorisiert und gefährdet. Auch als nichtstaatliches Gebilde oder Teil eines nichtsstaatlichen Gebildes gilt die Hamas nach allen akzeptierten Kriterien im Rahmen des Humanitären Völkerrechts als haftbar für ihre Terrorangriffe auf israelische Zivilisten und die Verwendung der eigenen Zivilbevölkerung als menschliche Schutzschilde. Folglich sind ihre Führung und ihre Kommandeure und Kämpfer strafbar für Verbrechen gegen die Menschlichkeit und Kriegsverbrechen.
 
 In ihrem Artikel „Die Verantwortlichkeit der Hamas nach dem humanitären Völkerrecht“ schreibt die Juristin Sigall Horowitz: (16)
 
-> > <font face=""Arial"" size=""3""> „Nach dem Völkerrecht sind nicht-staatliche Akteure an die Normen des humanitären Völkergewohnheitsrechts gebunden, sobald sie Partei in einem bewaffneten Konflikt werden. Entsprechend hat sich die Berufungskammer des Sondergerichtshofs für Sierra Leone geäußert: ‘Es ist wohl entschieden, dass alle an einem bewaffneten Konflikt beteiligten Parteien, unabhängig davon, ob es sich um Staaten oder nicht-staatliche Akteure handelt, an das humanitäre Völkerrecht gebunden sind, auch wenn nur Staaten internationale Verträge eingehen können.’"(17) </font>
+> >  „Nach dem Völkerrecht sind nicht-staatliche Akteure an die Normen des humanitären Völkergewohnheitsrechts gebunden, sobald sie Partei in einem bewaffneten Konflikt werden. Entsprechend hat sich die Berufungskammer des Sondergerichtshofs für Sierra Leone geäußert: ‘Es ist wohl entschieden, dass alle an einem bewaffneten Konflikt beteiligten Parteien, unabhängig davon, ob es sich um Staaten oder nicht-staatliche Akteure handelt, an das humanitäre Völkerrecht gebunden sind, auch wenn nur Staaten internationale Verträge eingehen können.’"(17) 
 
-<font face=""Arial"" size=""3"">   
-Im Hinblick auf die individuelle strafrechtliche Verantwortung von Hamas-Mitgliedern fügt sie hinzu, es sei möglich,</font>
+   
+Im Hinblick auf die individuelle strafrechtliche Verantwortung von Hamas-Mitgliedern fügt sie hinzu, es sei möglich,
 
-> > <font face=""Arial"" size=""3""> „dass der Einsatz von Qassam- und Grad-Raketen durch Hamas-Angehörige ein Kriegsverbrechen im Sinne des Römischen Statuts darstellt. Entsprechend können diejenigen Hamas-Kämpfer zur Rechenschaft gezogen werden, die sie begangen, befohlen oder unterstützt oder anderweitig zu ihrer Begehung beigetragen haben. Ferner kann sich nach dem Grundsatz der Verantwortlichkeit des Vorgesetzten hieraus auch die individuelle strafrechtliche Verantwortlichkeit der militärischen Befehlshaber und politischen Führer der Hamas ergeben.“(18) </font>
+> >  „dass der Einsatz von Qassam- und Grad-Raketen durch Hamas-Angehörige ein Kriegsverbrechen im Sinne des Römischen Statuts darstellt. Entsprechend können diejenigen Hamas-Kämpfer zur Rechenschaft gezogen werden, die sie begangen, befohlen oder unterstützt oder anderweitig zu ihrer Begehung beigetragen haben. Ferner kann sich nach dem Grundsatz der Verantwortlichkeit des Vorgesetzten hieraus auch die individuelle strafrechtliche Verantwortlichkeit der militärischen Befehlshaber und politischen Führer der Hamas ergeben.“(18) 
 > 
-> <font face=""Arial"" size=""3""> </font>
+>  
 
-<font face=""Arial"" size=""3""> Zusätzlich zum Verbrechen der Planung und versuchten Durchführung von Völkermord, stellen auch folgende terroristische Handlung schwere Verbrechen der Hamas dar und fordern die internationale Gemeinschaft heraus:</font>
+ Zusätzlich zum Verbrechen der Planung und versuchten Durchführung von Völkermord, stellen auch folgende terroristische Handlung schwere Verbrechen der Hamas dar und fordern die internationale Gemeinschaft heraus:
 
-<font color=""#003366""> **Unterschiedsloser Beschuss israelischer Städte, Dörfer und Zivilisten durch Raketen**</font>
+ **Unterschiedsloser Beschuss israelischer Städte, Dörfer und Zivilisten durch Raketen**
 
 a. 1907 Haager Landkriegsordnung: (19)
 
-> > <font face=""Arial"" size=""3""> „Artikel 25: Es ist untersagt, unverteidigte Städte, Dörfer, Wohnstätten oder Gebäude, mit welchen Mitteln es auch sei, anzugreifen oder zu beschiessen.“</font>
+> >  „Artikel 25: Es ist untersagt, unverteidigte Städte, Dörfer, Wohnstätten oder Gebäude, mit welchen Mitteln es auch sei, anzugreifen oder zu beschiessen.“
 
-<font face=""Arial"" size=""3"">   
-b. 1977 Erstes Zusatzprotokoll der Genfer Konventionen: (20) </font>
+   
+b. 1977 Erstes Zusatzprotokoll der Genfer Konventionen: (20) 
 
-> > <font face=""Arial"" size=""3""> – Artikel 48: Verbot des Angriffs auf zivile Ziele;</font>  
-> > <font face=""Arial"" size=""3""> – Artikel 51(2): Verbot der Terrorisierung der Zivilbevölkerung;</font>  
-> > <font face=""Arial"" size=""3""> – Artikel 51(4): Verbot der unterschiedslosen Angriffe;</font>  
-> > <font face=""Arial"" size=""3""> – Artikel 57: Pflicht zur Minimierung des unbeabsichtigten Verlust zivilen Lebens oder dessen Schädigung</font>
+> >  – Artikel 48: Verbot des Angriffs auf zivile Ziele;  
+> >  – Artikel 51(2): Verbot der Terrorisierung der Zivilbevölkerung;  
+> >  – Artikel 51(4): Verbot der unterschiedslosen Angriffe;  
+> >  – Artikel 57: Pflicht zur Minimierung des unbeabsichtigten Verlust zivilen Lebens oder dessen Schädigung
 
-<font face=""Arial"" size=""3"">   
-**<font color=""#003366""> Missbrauch von Zivilisten als lebende Schutzschilde</font>**</font>
+   
+** Missbrauch von Zivilisten als lebende Schutzschilde**
 
-<div align=""center""><font face=""Arial"" size=""3""> <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/UXZEzbT0H1s"" width=""560""></iframe></font>> <font face=""Arial"" size=""3""><font size=""2"">Die Hamas weiß, dass die IDF alles Mögliche unternehmen, um zivile Opfer zu vermeiden. (IDF/YouTube)</font></font>
 
-</div><font face=""Arial"" size=""3"">  
-Das vorsätzliche Lagern und Abfeuern von Raketen heraus aus oder in unmittelbarer Nähe von Krankenhäusern, Moscheen, Schulen und Häusern in dicht besiedelten Gebieten und die Tarnung von Raketenstellungen zur vorsätzlichen Provokation von israelischen Militärschlägen gegen diese Stellungen bei gleichzeitiger Gefährdung palästinensischer Zivilisten stellen Kriegsverbrechen dar.(21) </font>
+ <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/UXZEzbT0H1s"" width=""560""></iframe>> Die Hamas weiß, dass die IDF alles Mögliche unternehmen, um zivile Opfer zu vermeiden. (IDF/YouTube)
+
+
+  
+Das vorsätzliche Lagern und Abfeuern von Raketen heraus aus oder in unmittelbarer Nähe von Krankenhäusern, Moscheen, Schulen und Häusern in dicht besiedelten Gebieten und die Tarnung von Raketenstellungen zur vorsätzlichen Provokation von israelischen Militärschlägen gegen diese Stellungen bei gleichzeitiger Gefährdung palästinensischer Zivilisten stellen Kriegsverbrechen dar.(21) 
 
 Die Lagerung von Raketen in einer UNRWA-Schule in Gaza ist ein typisches Beispiel für diese Art Verbrechen, die auch eine Verurteilung durch die UNRWA nach sich zog.(22)
 
@@ -130,11 +136,11 @@ Ein weiteres Beispiel ist die Verwendung einer der zentralsten Moscheen des Gaza
 
 Artikel 51(7) des Ersten Zusatzprotokolls der Genfer Konventionen(24) von 1977 hält fest:
 
-> > <font face=""Arial"" size=""3""> „Die Anwesenheit oder Bewegungen der Zivilbevölkerung oder einzelner Zivilpersonen dürfen nicht dazu benutzt werden, Kriegshandlungen von bestimmten Punkten oder Gebieten fernzuhalten, insbesondere durch Versuche, militärische Ziele vor Angriffen abzuschirmen oder Kriegshandlungen zu decken, zu begünstigen oder zu behindern. Die am Konflikt beteiligten Parteien dürfen Bewegungen der Zivilbevölkerung oder einzelner Zivilpersonen nicht zu dem Zweck lenken, militärische Ziele vor Angriffen abzuschirmen oder Kriegshandlungen zu decken.</font>
+> >  „Die Anwesenheit oder Bewegungen der Zivilbevölkerung oder einzelner Zivilpersonen dürfen nicht dazu benutzt werden, Kriegshandlungen von bestimmten Punkten oder Gebieten fernzuhalten, insbesondere durch Versuche, militärische Ziele vor Angriffen abzuschirmen oder Kriegshandlungen zu decken, zu begünstigen oder zu behindern. Die am Konflikt beteiligten Parteien dürfen Bewegungen der Zivilbevölkerung oder einzelner Zivilpersonen nicht zu dem Zweck lenken, militärische Ziele vor Angriffen abzuschirmen oder Kriegshandlungen zu decken.
 > 
-> <font face=""Arial"" size=""3""> </font>
+>  
 
-<font face=""Arial"" size=""3""> Artikel 58(b) fordert, es zu „vermeiden, innerhalb oder in der Nähe dicht bevölkerter Gebiete militärische Ziele anzulegen.“</font>
+ Artikel 58(b) fordert, es zu „vermeiden, innerhalb oder in der Nähe dicht bevölkerter Gebiete militärische Ziele anzulegen.“
 
 Im Rom-Statut wird wie folgt auf solche Verbrechen eingegangen:
 
@@ -142,10 +148,10 @@ Artikel 7 definiert „Verbrechen gegen die Menschlichkeit“ als: „jede der f
 
 und in Artikel 8 werden „Kriegsverbrechen“ definiert als:
 
-> <font face=""Arial"" size=""3""> „Teil eines Planes oder einer Politik oder als Teil der Begehung solcher Verbrechen in grossem Umfang \[…\] vorsätzliche Angriffe auf die Zivilbevölkerung als solche oder auf einzelne Zivilpersonen \[…\] auf zivile Objekte; \[…\] vorsätzliches Führen eines Angriffs in der Kenntnis, dass dieser auch Verluste an Menschenleben, die Verwundung von Zivilpersonen, die Beschädigung ziviler Objekte \[…\] verursachen wird; der Angriff auf unverteidigte Städte, Dörfer, Wohnstätten oder Gebäude, die nicht militärische Ziele sind; \[…\] die Benutzung der Anwesenheit einer Zivilperson oder einer anderen geschützten Person, um Kampfhandlungen von gewissen Punkten, Gebieten oder Streitkräften fern zu halten; \[…\] die Zwangsverpflichtung oder Eingliederung von Kindern unter fünfzehn Jahren in die nationalen Streitkräfte oder ihre Verwendung zur aktiven Teilnahme an Feindseligkeiten“</font>
+>  „Teil eines Planes oder einer Politik oder als Teil der Begehung solcher Verbrechen in grossem Umfang \[…\] vorsätzliche Angriffe auf die Zivilbevölkerung als solche oder auf einzelne Zivilpersonen \[…\] auf zivile Objekte; \[…\] vorsätzliches Führen eines Angriffs in der Kenntnis, dass dieser auch Verluste an Menschenleben, die Verwundung von Zivilpersonen, die Beschädigung ziviler Objekte \[…\] verursachen wird; der Angriff auf unverteidigte Städte, Dörfer, Wohnstätten oder Gebäude, die nicht militärische Ziele sind; \[…\] die Benutzung der Anwesenheit einer Zivilperson oder einer anderen geschützten Person, um Kampfhandlungen von gewissen Punkten, Gebieten oder Streitkräften fern zu halten; \[…\] die Zwangsverpflichtung oder Eingliederung von Kindern unter fünfzehn Jahren in die nationalen Streitkräfte oder ihre Verwendung zur aktiven Teilnahme an Feindseligkeiten“
 
-<font face=""Arial"" size=""3"">   
-<font color=""#003366""> **Israels Recht auf Selbstverteidigung**</font></font>
+   
+ **Israels Recht auf Selbstverteidigung**
 
 Das Völkerrecht kennt zwei grundlegende Rechte auf Selbstverteidigung. Das konventionelle Völkerrecht hält in Artikel 51 der Charta der Vereinten Nationen fest: „Diese Charta beeinträchtigt im Falle eines bewaffneten Angriffs gegen ein Mitglied der Vereinten Nationen keineswegs das naturgegebene Recht zur individuellen oder kollektiven Selbstverteidigung.“ (25)
 
@@ -159,9 +165,9 @@ Bekräftigt wurde dies z.B. in Resolution 1368 (2001),(27) die nur einen Tag nac
 
 Es muss nicht darauf hingewiesen werden, dass keine der Resolutionen das Selbstverteidigungsrecht nur auf von staatlichen Akteuren ausgehenden Terrorismus beschränkt oder dass eine solche Annahme den Resolutionen zu Grunde lag.(29)
 
-**<font color=""#003366""> Gegen Israel erhobene Vorwürfe</font>**
+** Gegen Israel erhobene Vorwürfe**
 
-<font color=""#003366""> ***Kollektive Bestrafung***</font>
+ ***Kollektive Bestrafung***
 
 Die Behauptung, Israel würde die Bevölkerung des Gazastreifens kollektiv bestrafen, wie sie z.B. vom britischen Vizepremier Nick Clegg erhoben wurde,(30) ist sowohl falsch wie auch auf juristischen Fehlannahmen gegründet. Wie oben dargelegt, dienten die israelischen Militäraktionen einem strategischen und taktischen Zweck – nicht der Bestrafung der Einwohner Gazas, sondern der Beendigung der unterschiedslosen Raketenangriffe und der Verwendung von Terrortunneln für Anschläge auf die israelische Zivilbevölkerung.
 
@@ -169,7 +175,7 @@ Während das Völkerrecht „kollektive Bestrafung“ untersagt,(31) kommt keine
 
 Dass die Hamas hingegen ihre Zivilbevölkerung vorsätzlich und systematisch in die Schusslinie israelischer Kampfhandlungen bringt, anstelle ihr Zuflucht in Bunkern und Schutztunneln zu gestatten, und dass sie israelische Städte systematisch durch unterschiedslose Raketenangriffe auf täglicher Basis bedroht und terrorisiert, stellt in der Tat eine kollektive Bestrafung von Millionen israelischer Bürger und palästinensischer Bewohner des Gazastreifens dar. Dies sind schamlose und willentliche Verletzungen des Humanitären Völkerrechts.
 
-***<font color=""#003366""> Vorsätzliche Angriffe auf Wohngebiete</font>***
+*** Vorsätzliche Angriffe auf Wohngebiete***
 
 Die Vereinten Nationen und andere beschuldigen Israel desweiteren fälschlich, vorsätzlich und willentlich Wohngebiete anzugreifen.(33)
 
@@ -179,27 +185,29 @@ Die Verwendung von Wohnhäusern und anderen Wohnobjekten für militärische Zwec
 
 ---
 
-> > > <font face=""Arial"" size=""3""> ***Die Verwendung von Wohnhäusern und anderen Wohnobjekten für militärische Zwecke gefährdet diese und macht sie laut Völkerrecht zu legitimen militärischen Zielen. Dennoch verwenden die IDF Methoden, die die zivilen Schäden möglichst gering halten.***</font>
+> > >  ***Die Verwendung von Wohnhäusern und anderen Wohnobjekten für militärische Zwecke gefährdet diese und macht sie laut Völkerrecht zu legitimen militärischen Zielen. Dennoch verwenden die IDF Methoden, die die zivilen Schäden möglichst gering halten.***
 
-<font face=""Arial"" size=""3""></font>
+
 
 ---
 
-<font face=""Arial"" size=""3"">Artikel 52(2) der Ersten Genfer Zusatzprotokolls(34) benannte ausdrücklich die Pflicht, Angriffe auf militärische Ziele zu beschränken:</font>
+Artikel 52(2) der Ersten Genfer Zusatzprotokolls(34) benannte ausdrücklich die Pflicht, Angriffe auf militärische Ziele zu beschränken:
 
-> > <font face=""Arial"" size=""3""> „Soweit es sich um Objekte handelt, gelten als militärische Ziele nur solche Objekte, die auf Grund ihrer Beschaffenheit, ihres Standorts, ihrer Zweckbestimmung oder ihrer Verwendung wirksam zu militärischen Handlungen beitragen und deren gänzliche oder teilweise Zerstörung, deren Inbesitznahme oder Neutralisierung unter den in dem betreffenden Zeitpunkt gegebenen Umständen einen eindeutigen militärischen Vorteil darstellt.“</font>
+> >  „Soweit es sich um Objekte handelt, gelten als militärische Ziele nur solche Objekte, die auf Grund ihrer Beschaffenheit, ihres Standorts, ihrer Zweckbestimmung oder ihrer Verwendung wirksam zu militärischen Handlungen beitragen und deren gänzliche oder teilweise Zerstörung, deren Inbesitznahme oder Neutralisierung unter den in dem betreffenden Zeitpunkt gegebenen Umständen einen eindeutigen militärischen Vorteil darstellt.“
 
-<font face=""Arial"" size=""3"">   
-Um ihre militärischen Zielobjekte präzise zu bestimmen, verwenden die IDF hochentwickelte Methoden, zu denen mehrere Ebenen nachrichtendienstlicher Erkenntnis, juristische Beratung der Entscheidungsträger und extensives Training für die Kommandeure der Operation im Vorfeld gehören. Selbst wenn ein Wohnhaus nach allen relevanten Kriterien als legitimes militärisches Ziel definiert wurde, bemühen sich die IDF darum, den Schaden für die umgebende Zivilbevölkerung so gering es geht zu halten, durch visuelle Echtzeitüberwachung, mit deren Hilfe die Anwesenheit von Zivilisten vor Ort bestimmt wird; dem Angriff vorausgehende Vorwarnungen; und eine sorgfältige Auswahl von Waffen und Munition, um die Schädigung von Zivilisten zu minimieren.(35) </font>
+   
+Um ihre militärischen Zielobjekte präzise zu bestimmen, verwenden die IDF hochentwickelte Methoden, zu denen mehrere Ebenen nachrichtendienstlicher Erkenntnis, juristische Beratung der Entscheidungsträger und extensives Training für die Kommandeure der Operation im Vorfeld gehören. Selbst wenn ein Wohnhaus nach allen relevanten Kriterien als legitimes militärisches Ziel definiert wurde, bemühen sich die IDF darum, den Schaden für die umgebende Zivilbevölkerung so gering es geht zu halten, durch visuelle Echtzeitüberwachung, mit deren Hilfe die Anwesenheit von Zivilisten vor Ort bestimmt wird; dem Angriff vorausgehende Vorwarnungen; und eine sorgfältige Auswahl von Waffen und Munition, um die Schädigung von Zivilisten zu minimieren.(35) 
 
 Israel verfügt also keineswegs über eine Politik vorsätzlicher Angriffe auf Zivilisten oder zivilen Eigentums und bemüht sich ausdrücklich, effektive Vorwarnungen vor kommenden Luftschlägen zu geben, in denen möglicherweise Zivilisten zum Schaden kommen könnten.
 
 Doch trotz der vorsätzlichen Politik und Praxis der Hamas, Zivilisten einschließlich von Kindern mit Gewalt dazu zu zwingen, als Schutzschilde der Raketen- und Waffendepots zu fungieren, bemüht sich Israel nach allen Kräften, so auf die Raketenangriffe der Hamas zu reagieren, dass die Schädigung von Zivilisten so gering es geht gehalten wird. Dazu gehört auch, dass man allen Personen, die sich in Häusern aufhalten, die als militärische Ziele ausgewählt wurden, weil in ihnen Terroranschläge geplant werden oder Waffen und Raketen deponiert sind oder in der Nähe dieser Objekte befindlich sind, Vorwarnungen zukommen lässt und alle Nichtkämpfer öffentlich aufruft, sich von solchen Objekten zu entfernen.(36)
 
-<div align=""center""><font face=""Arial"" size=""3""> <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/8O9AHzUKYk8"" width=""420""></iframe></font>> > > > > > <font face=""Arial"" size=""3""><font size=""2"">Die Hamas missbraucht eine Krankenhaus in Gaza, um Israel zu beschießen. Die IDF versicherten sich wiederholt, dass sich keine Zivilisten mehr im Krankenhaus befanden, bevor sie es angriffen.</font></font> <font face=""Arial"" size=""3""><font size=""2"">(IDF/YouTube)</font></font>
 
-</div><font face=""Arial"" size=""3"">  
-***<font color=""#003366""> Unverhältnismäßige Gewalt</font>***</font>
+ <iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/8O9AHzUKYk8"" width=""420""></iframe>> > > > > > Die Hamas missbraucht eine Krankenhaus in Gaza, um Israel zu beschießen. Die IDF versicherten sich wiederholt, dass sich keine Zivilisten mehr im Krankenhaus befanden, bevor sie es angriffen. (IDF/YouTube)
+
+
+  
+*** Unverhältnismäßige Gewalt***
 
 Die in den internationalen Medien und durch internationale Organisationen und einige Regierungsvertreter(37) lancierten Vorwürfe, Israels militärisches Vorgehen sei „unverhältnismäßig“ und daher eine Verletzung des Völkerrechts, ist sowohl faktisch wie juristisch falsch.
 
@@ -211,25 +219,25 @@ Dieses Prinzip wird als Teil des gewohnheitsmäßigen Völkerrechts betrachtet, 
 
 ---
 
-<font face=""Arial"" size=""3"">   
-</font>
+   
 
-> > <font face=""Arial"" size=""3"">***Der tragische Umstand, dass es im Gazastreifen zu mehr zivilen Opfern und Schäden an zivilen Eigentum kam als in Israel, ist nicht Resultat einer unverhältnismäßigen Anwendung von Gewalt durch Israel.*** </font>
 
-<font face=""Arial"" size=""3"">  
-</font>
+> > ***Der tragische Umstand, dass es im Gazastreifen zu mehr zivilen Opfern und Schäden an zivilen Eigentum kam als in Israel, ist nicht Resultat einer unverhältnismäßigen Anwendung von Gewalt durch Israel.*** 
+
+  
+
 
 ---
 
-<font face=""Arial"" size=""3"">  
-</font><font face=""Arial"" size=""3"">  
-Der tragische Umstand, dass es im Gazastreifen zu mehr zivilen Opfern und Schäden an zivilen Eigentum kam als in Israel, ist nicht Resultat einer unverhältnismäßigen Anwendung von Gewalt durch Israel oder unverhältnismäßiger Waffentechnik, sondern – wie oben dargelegt – Konsequenz der Tatsache, dass die Hamas vorsätzlich und unter Zwang Zivilisten und zivile Objekte und Wohnungen als menschliche Schutzschilde missbraucht. Die Häuser dienen als Raketendepots und Kommandozentralen. Ihre Bewohner werden bewusst der Gefahr ausgesetzt, um einerseits israelische Angriffe auf die militärischen Einrichtungen zu verhindern und andererseits die getöteten Zivilisten vor den Fernsehkameras dieser Welt zur Schau zu stellen, damit die grausamen Bilder mit Schuldvorwürfen an Israel um die Welt gehen.</font>
+  
+  
+Der tragische Umstand, dass es im Gazastreifen zu mehr zivilen Opfern und Schäden an zivilen Eigentum kam als in Israel, ist nicht Resultat einer unverhältnismäßigen Anwendung von Gewalt durch Israel oder unverhältnismäßiger Waffentechnik, sondern – wie oben dargelegt – Konsequenz der Tatsache, dass die Hamas vorsätzlich und unter Zwang Zivilisten und zivile Objekte und Wohnungen als menschliche Schutzschilde missbraucht. Die Häuser dienen als Raketendepots und Kommandozentralen. Ihre Bewohner werden bewusst der Gefahr ausgesetzt, um einerseits israelische Angriffe auf die militärischen Einrichtungen zu verhindern und andererseits die getöteten Zivilisten vor den Fernsehkameras dieser Welt zur Schau zu stellen, damit die grausamen Bilder mit Schuldvorwürfen an Israel um die Welt gehen.
 
 Auf diese Weise begeht die Hamas ein doppeltes Kriegsverbrechen, indem sie vorsätzlich israelische Zivilisten angreift und gleichzeitig ihre Waffen, Führung, Kämpfer und Infrastruktur inmitten unbeteiligter palästinensischer Zivilisten einbettet.
 
 Gleiches gilt für den Umstand, dass die Hamas Zivilisten den Zugang zu ihrem Untergrundnetzwerk von Tunneln und Bunkeranlagen verwehrt und nur ihren Militärkommandeuren zur Verfügung stellt oder für ihre Waffen. Auch der Fakt, dass Israel eine umfassende Infrastruktur von Raketenschutzeinrichtungen und das Raketenabfangsystem „Eiserne Kuppel“ entwickelt hat, kann dem Land nicht zum Vorwurf gemacht werden, zu unverältnismäßiger Gewalt zu greifen.
 
-<font color=""#003366""> **Vergleich der Opferzahlen**</font>
+ **Vergleich der Opferzahlen**
 
 Die vielleicht perfideste Praxis des internationalen Mediendiskurses zum Gazakrieg ist das Aufrechnen der Opferzahlen und die falsche Schlussfolgerung, dass die Unverhältnismäßigkeit des israelischen Vorgehens in dem Umstand zum Ausdruck kommt, dass mehr Palästinenser starben als Israelis.(40) Die absurde Annahme, die aus diesem Vergleich erwächst, ist, dass höhere israelische Opferzahlen bis hin zum „Ausgleich“ wünschenswert wären. Das Raketenabwehrsystem „Eiserne Kuppel“, das tausende von potentiellen zivilen Opfern der Hamas-Raketen verhindert hat, wird nun dafür verantwortlich dafür gemacht, dass die Opferzahlen ungleich verteilt sind.
 
@@ -237,7 +245,7 @@ Ganz offensichtlich kann man Israel für dieses Ungleichgewicht nicht verantwort
 
 Israel verfügt aber über eine äußerst strenge Politik, was die Untersuchung solcher Vorfälle angeht und leitet im Fall von mutmaßlichen Kriegsverbrechen oder Fahrlässigkeit die entsprechenden strafrechtlichen und disziplinarischen Untersuchungen ein.
 
-**<font color=""#003366""> Androhung von Strafverfahren gegen israelische Politiker vor dem Internationalen Strafgerichtshof (ICC)</font>**
+** Androhung von Strafverfahren gegen israelische Politiker vor dem Internationalen Strafgerichtshof (ICC)**
 
 Prominent im Mediendiskurs und Verlautbarungen palästinensischer Politiker und Akteuren der internationalen Gemeinschaft findet sich die unablässige Drohung, man werde die israelische Politiker und Militärs wegen mutmaßlicher Kriegsverbrechen vor internationalen und nationalen Tribunalen verklagen.
 
@@ -245,13 +253,13 @@ Wie weiter oben dargelegt, verlangt der israelische Kodex für militärische Ger
 
 Angesichts der offen zugegebenen und für jeden deutlichen langen Liste an Kriegsverbrechen der Hamas, wie sie hier dargelegt wurde, und des mangelnden politischen Willens, fehlender Möglichkeiten, Mittel und ohne den entsprechenden juristischen Rahmen innerhalb der politischen Strukturen der Hamas oder der Palästinenser, was die Untersuchung und Verfolgung solcher Verbrechen angeht, ist es wiederum nötig, dass diese dem ICC vorgelegt werden, um sicher zu stellen, dass die Urheber und Anführer der Hamas-Terrorstruktur strafrechtlich belangt werden.
 
-**<font color=""#003366""> Die „Hannibal-Direktive“ in Rafah, 1. August 2014</font>**
+** Die „Hannibal-Direktive“ in Rafah, 1. August 2014**
 
 Am 1. August 2014, nachdem ein Waffenstillstand vereinbart worden war, griff ein Selbstmordattentäter der Hamas eine IDF-Einheit in Rafah an. Mehrere Soldaten wurden getötet und verwundet. Da die Leiche von Lt. Hadar Goldin nicht auffindbar war, schien deutlich, dass er entführt und durch einen Tunnel tiefer nach Rafah verschleppt worden war. Eine sehr selten eingesetzte Direktive der IDF, die „Hannibal-Direktive“, wurde unmittelbar danach ausgegeben. Laut Ha’aretz-Journalist Anshel Pfeffer wird sie nur „in den ersten Minuten und Stunden nach einer möglichen Entführung“ angewandt, „wenn Kommandeure im Feld glauben, ein Soldat könnte entführt worden sein.“(41) Mit Hilfe von u.a. Luftschläge und Artillerie, werden die möglichen Fluchtwege unter Beschuss genommen.
 
 Genau dies war am 1. August in Rafah der Fall . Nach Berichten einer IDF-Untersuchung des Vorfalls kam „die ‚Hannibal-Direktive‘ in Rafah nicht zum Einsatz.“ Es gab „keinen massiven unterschiedslosen Beschuss von Wohnhäusern in Rafah“, um die Entführung zu verhindern.(42) Dem militärischen Protokoll für „Rettungsoperationen“ folgend, wurden Straßen und bekannte Tunnelöffnungen unter Beschuss genommen, um zu verhindern, dass Goldin von der Front verschleppt wird. Da zu Beginn des Tages ein Waffenstillstand ausgerufen worden war, befand sich zu diesem Zeitpunkt kein israelisches Kampfflugzeug in der Luft. Ein solches hätte sechs Minuten gebraucht, um zum Ort zu fliegen und die Fluchtrouten zu blockieren. Stattdessen kam für drei Minuten die IDF-Artillerie zum Einsatz, die die einprogrammierte Liste von Zielen und Tunneleingängen beschoss.
 
-<font color=""#003366""> ***Die rechtliche Basis der „Hannibal-Direktive“***</font>
+ ***Die rechtliche Basis der „Hannibal-Direktive“***
 
 Trotz der unglücklichen und unheilvollen Namenswahl durch einen Computer, handelt es sich bei der „Hannibal-Direktive“ um ein taktisch-verhältnismäßige Maßnahme, die nur sehr selten und sehr selektiv zum Einsatz kommt in einer ganz spezifischen Konfrontation asymmetrischen Kampfes zwischen Truppen einer regulären Armee und bewaffneten Terrorgruppen. Sie kann nur dann angewendet werden, wenn im Gefecht, Terroristen willentlich und vorsätzlich die akzeptierten Regeln des bewaffneten Konfliktes und des humanitären Völkerrechts brechen, einschließlich, wenn sie sich sich inmitten von Zivilisten verschanzen und sie missbrauchen, um ihre Ziele zu erreichen.
 
@@ -261,11 +269,11 @@ Ziel der Direktive ist es, eine Situation zu verhindern, die zwangsläufig zu ei
 
 Die Direktive sieht den Einsatz militärischer Gewalt vor, die nötig ist, um die mögliche Entführung zum Scheitern zu bringen, indem die Fluchtwege zerstört werden und die Geiselnahme-/Erpressung-/Foltersituation verhindert wird. Angesichts der strengen Vorgaben des Völkerrechts, die den Einsatz von Gewalt in Situationen beschränken, die das unbeabsichtigte Töten oder Verletzen von Zivilisten beinhalten und nur in solchen Momenten gestatten, in denen es einen konkreten und direkten militärischen Vorteil zu erwarten gibt, ist der Einsatz von Gewalt im Rahmen der Direktive streng verhältnismäßig mit dem intendierten militärischen Ziel.
 
-***<font color=""#003366""> Die tatsächlichen Opferzahlen von Rafah</font>***
+*** Die tatsächlichen Opferzahlen von Rafah***
 
 Im Fall der Entführung in Rafah stellte sich später heraus, dass Lt. Goldin beim Angriff der Hamas bereits ums Leben kam und die Gruppe nur seine Leiche mitnahm, um sie in Verhandlungen einzusetzen. Die Hamas behauptete später 130 palästinensische Zivilisten seien bei der israelischen Reaktion gestorben. Eine IDF-Untersuchung kam zu dem Schluss, dass insgesamt 41 Menschen starben, von denen 12 Hamas-Kämpfer gewesen seien.
 
-**<font color=""#003366"">Schlussfolgerungen</font>**
+**Schlussfolgerungen**
 
 Bewaffnete Konflikte beinhalten unter allen Umständen immer Situationen, in denen das Leben von Zivilisten tragischerweise betroffen ist. Das Völkerrecht versucht, die Schädigung von Zivilisten zu begrenzen, indem sicher gestellt wird, dass die Kriegsparteien ihre Kämpfe in Übereinstimmung mit humanitären Normen führen, um die Zahl zivile Opfer so weit es geht zu minimieren. Als souveräner Staat verfügt Israel über eine Armee, die in Übereinstimmung mit diesen Normen handelt und alles daran setzt, sich an sie zu halten, trotz der offenkundigen, willentlichen und unterschiedslosen Verletzung dieser durch die Hamas gegenüber der israelischen Zivilbevölkerung wie auch gegenüber der palästinensischen.
 
@@ -273,17 +281,17 @@ Zu hoffen ist, dass die Verbrechen gegen die Menschlichkeit und die Kriegsverbre
 
 ---
 
-<font face=""Arial"" size=""3"">  
-**Botschafter Alan Baker ist der Direktor des Institute for Contemporary Affairs am Jerusalem Center for Public Affairs. Er war an der Verhandlungen und der Ausarbeitung des Osloer Abkommens mit den Palästinenser beteiligt, wie auch bei den Abkommen und Friedensverträgen mit Ägypten, Jordanien und dem Libanon. Er war Rechtsberater und stellvertretender Generaldirektor des israelischen Außenministeriums sowie israelischer Botschafter in Kanada.**</font>
+  
+**Botschafter Alan Baker ist der Direktor des Institute for Contemporary Affairs am Jerusalem Center for Public Affairs. Er war an der Verhandlungen und der Ausarbeitung des Osloer Abkommens mit den Palästinenser beteiligt, wie auch bei den Abkommen und Friedensverträgen mit Ägypten, Jordanien und dem Libanon. Er war Rechtsberater und stellvertretender Generaldirektor des israelischen Außenministeriums sowie israelischer Botschafter in Kanada.**
 
 ---
 
-**<font face=""Arial"" size=""3""></font>**
+****
 
-**<font face=""Arial"" size=""3""><font face=""Arial""><font size=""3""><font size=""4"">**<font face=""Arial""><font size=""3"">Texte:</font></font>**</font></font></font></font>**
+****Texte:****
 
-*Hirsh Goodman und Dore Gold* <font size=""3"">  
-<font face=""Arial"">**<font face=""Arial"">[Der Gaza-Krieg von 2014: Einleitung]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=237")</font>**</font></font>
+*Hirsh Goodman und Dore Gold*   
+**[Der Gaza-Krieg von 2014: Einleitung]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=237")**
 
 *Hirsh Goodman*  
 [Der Gaza-Krieg von 2014 aus israelischer Perspektive: Ein Überblick]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=231")
@@ -303,31 +311,32 @@ Zu hoffen ist, dass die Verbrechen gegen die Menschlichkeit und die Kriegsverbre
 *Daniel P. Rubenstein*  
 [Das Tunnelnetzwerk der Hamas: Geplanter Massenmord]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")
 
-<div align=""center"">**<font face=""Arial"" size=""3""> </font><font face=""Arial"" size=""3"">\* \* \*  
-</font>**<div align=""left""><font face=""Arial"" size=""2"">1 Hamas Charter, http://www.acpr.org.il/resources/hamascharter.html, Artikel 2:  
-</font>> <font face=""Arial"" size=""2"">„The Islamic Resistance Movement is one of the wings of the Muslim Brothers in Palestine. The Muslim</font>  
-> <font face=""Arial"" size=""2"">Brotherhood Movement is a world organization, the largest Islamic Movement in the modern era. It is</font>  
-> <font face=""Arial"" size=""2"">characterized by a profound understanding, by precise notions and by a complete comprehensiveness</font>  
-> <font face=""Arial"" size=""2"">of all concepts of Islam in all domains of life: views and beliefs, politics and economics, education and</font>  
-> <font face=""Arial"" size=""2"">society, jurisprudence and rule, indoctrination and teaching, the arts and publications, the hidden and the</font>  
-> <font face=""Arial"" size=""2"">evident, and all the other domains of life.“</font>
 
-<font face=""Arial"" size=""2"">Artikel 7:  
-</font>
+** \* \* \*  **
+1 Hamas Charter, http://www.acpr.org.il/resources/hamascharter.html, Artikel 2:  
+> „The Islamic Resistance Movement is one of the wings of the Muslim Brothers in Palestine. The Muslim  
+> Brotherhood Movement is a world organization, the largest Islamic Movement in the modern era. It is  
+> characterized by a profound understanding, by precise notions and by a complete comprehensiveness  
+> of all concepts of Islam in all domains of life: views and beliefs, politics and economics, education and  
+> society, jurisprudence and rule, indoctrination and teaching, the arts and publications, the hidden and the  
+> evident, and all the other domains of life.“
 
-> <font face=""Arial"" size=""2"">„Hamas is one of the links in the Chain of Jihad in the confrontation with the Zionist invasion. It links up with</font>  
-> <font face=""Arial"" size=""2"">the setting out of the Martyr Izz adin alQassam and his brothers in the Muslim Brotherhood who fought the</font>  
-> <font face=""Arial"" size=""2"">Holy War in 1936; it further relates to another link of the Palestinian Jihad and the Jihad and efforts of the Muslim Brothers during the 1948 War, and to the Jihad operations of the Muslim Brothers in 1968 and thereafter.“</font>
+Artikel 7:  
 
-<font face=""Arial"" size=""2"">Artikel 13:  
-</font>
 
-> <font face=""Arial"" size=""2"">„There is no solution to the Palestinian problem except by Jihad. The initiatives, proposals and International</font>  
-> <font face=""Arial"" size=""2"">Conferences are but a waste of time, an exercise in futility. The Palestinian people are too noble to have</font>  
-> <font face=""Arial"" size=""2"">their future, their right and their destiny submitted to a vain game.“</font>
+> „Hamas is one of the links in the Chain of Jihad in the confrontation with the Zionist invasion. It links up with  
+> the setting out of the Martyr Izz adin alQassam and his brothers in the Muslim Brotherhood who fought the  
+> Holy War in 1936; it further relates to another link of the Palestinian Jihad and the Jihad and efforts of the Muslim Brothers during the 1948 War, and to the Jihad operations of the Muslim Brothers in 1968 and thereafter.“
 
-<font face=""Arial"" size=""2"">Deutsch „Dokumentation: Auszüge aus der Charta der Hamas“  
-http://www.matthiaskuentzel.de/contents/sprache-der-vernichtung.</font>
+Artikel 13:  
+
+
+> „There is no solution to the Palestinian problem except by Jihad. The initiatives, proposals and International  
+> Conferences are but a waste of time, an exercise in futility. The Palestinian people are too noble to have  
+> their future, their right and their destiny submitted to a vain game.“
+
+Deutsch „Dokumentation: Auszüge aus der Charta der Hamas“  
+http://www.matthiaskuentzel.de/contents/sprache-der-vernichtung.
 
 2 Yazan alSaadi, “Palestinian Reconciliation: A History of Documents,” Al Akhbar  
 English (Lebanon), 28. April 2014, http://english.alakhbar.  
@@ -353,7 +362,7 @@ Associated Press, 4. März 2014, http://www.foxnews.com/world/2014/03/04/cairoco
 14 78 UNTS 277  
 15 Rome Statute of the International Criminal Court, http://www.admin.ch/opc/de/classified-compilation/20002381/index.html, v.a. Artikel 7(1) und (2)a (Verbrechen gegen die Menschlichkeit) und Artikel 8(2)(b)(i)(ii)(iv) (Kriegsverbrechen) und Artikel 13 (Gerichtsbarkeit).  
 16 Sigall Horowitz, “Die Verantwortlichkeit der Hamas nach dem humanitären Völkerrecht,” Hamas, the Gaza War, and Accountability under International Law (Jerusalem: Jerusalem Center for Public Affairs, 2009), http://jer-zentrum.org/ViewArticle.aspx?ArticleId=197. “ Aus dieser Sicht lässt sich zweifellos argumentieren, dass die Hamas-Kämpfer, die israelische Zivilpersonen täglich mit Qassam- und Grad-Raketen angreifen, gegen die Bestimmungen des gemeinsamen Artikels 3 verstoßen.”  
-17 Zitiert in Horowitz article, Case No. SCSL-2004-14-AR72(E), Decision on Preliminary Motion Based on Lack of Jurisdiction (Child Recruitment), 31. Mai 2004, para. 22. Horowitz, “ Die Verantwortlichkeit der Hamas ” http://jer-zentrum.org/ViewArticle.aspx?ArticleId=197.  
+17 Zitiert in Horowitz article, Case No. SCSL-2004-14-AR72(E), Decision on Preliminary Motion Based on Lack of Jurisdiction (Child Recruitment), 31. Mai 2004, para. 22. Horowitz, “ Die Verantwortlichkeit der Hamas – http://jer-zentrum.org/ViewArticle.aspx?ArticleId=197.  
 18 Ibid. Siehe auch Lisbeth Zegveld, Accountability of Armed Opposition Groups in International Law (Cambridge: Cambridge University Press, 2002).  
 19 “Convention (IV) respecting the Laws and Customs of War on Land and its Annex: Regulations concerning the Laws and Customs of War on Land, The Hague, October 18, 1907 – Article 25,” Deutsch, http://www.admin.ch/opc/de/classified-compilation/19070034/index.html  
 20 “Protocol Additional to the Geneva Conventions of 12 August 1949, and relating to the Protection of Victims of International Armed Conflicts (Protocol I), June 8, 1977 – Article 48,” Deutsch, http://www.admin.ch/opc/de/classified-compilation/19770112/index.html  
@@ -380,4 +389,5 @@ Associated Press, 4. März 2014, http://www.foxnews.com/world/2014/03/04/cairoco
 41 Anshel Pfeffer, “The Hannibal Directive: Why Israel Risks the Life of the Soldier Being Rescued,” Ha’aretz, 3. August 2014, http://www.haaretz.com/news/diplomacy-defense/.premium-1.608693  
 42 Amir Rappaport, “It’s Apparent the ‘Hannibal Directive’ Was Not Ordered in Gaza. No One to Be Charged,” Makor Rishon-NRG (Hebrew), 30. Januar 2015, http://www.nrg.co.il/online/1/ART2/672/957.html
 
-</div></div>
+
+

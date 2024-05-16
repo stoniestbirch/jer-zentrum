@@ -12,13 +12,13 @@ title: Die israelische Sicherheitspolitik in Syrien
 url: /die-israelische-sicherheitspolitik-in-syrien/
 ---
 
-<span small="" style=""font-size:">  
-**Die israelische Sicherheitspolitik in Syrien**</span>
+  
+**Die israelische Sicherheitspolitik in Syrien**
 
 Brig.-Gen. (Res.) Yossi Kuperwasser
 
-<span small="" style=""font-size:">  
-Der am 26. April 2015 auf dem Golan verhinderte Angriff der Hisbollah sowie die laut arabischen Medien am 21. und 24. April gegen syrische Ziele geflogenen Luftschläge der israelischen Luftwaffe stehen in einer Reihe mit ganz ähnlichen Zwischenfällen der letzten drei Jahre. Die israelischen Angriffe richteten sich mutmaßlich gegen hochentwickelte Waffen, die für die Hisbollah im Libanon bestimmt waren. Verschiedene Ziele auf dem Golan wurden ebenfalls angegriffen. Von ein paar Einzelfällen, hat Israel es vermieden, Berichte über derartige Angriffe direkt zu kommentieren und stattdessen Erklärungen zur allgemeinen Politik gegenüber Syrien und der Hisbollah abgegeben. Diese wiederum haben diese Berichte in der Regel ebenfalls unkommentiert gelassen und keine militärischen Operationen als Reaktion auf diese Angriffe begonnen.</span>
+  
+Der am 26. April 2015 auf dem Golan verhinderte Angriff der Hisbollah sowie die laut arabischen Medien am 21. und 24. April gegen syrische Ziele geflogenen Luftschläge der israelischen Luftwaffe stehen in einer Reihe mit ganz ähnlichen Zwischenfällen der letzten drei Jahre. Die israelischen Angriffe richteten sich mutmaßlich gegen hochentwickelte Waffen, die für die Hisbollah im Libanon bestimmt waren. Verschiedene Ziele auf dem Golan wurden ebenfalls angegriffen. Von ein paar Einzelfällen, hat Israel es vermieden, Berichte über derartige Angriffe direkt zu kommentieren und stattdessen Erklärungen zur allgemeinen Politik gegenüber Syrien und der Hisbollah abgegeben. Diese wiederum haben diese Berichte in der Regel ebenfalls unkommentiert gelassen und keine militärischen Operationen als Reaktion auf diese Angriffe begonnen.
 
 Die vermeldeten Angriffe und Luftschläge verweisen auf den anhaltenden Kampf zwischen Israel und der vom Iran geführten radikalen Achse um die Spielregeln auf dem syrischen Territorium. Im Wesentlichen geht es darum, welche Bedrohung Israel von dieser Seite im Rahmen des syrischen Bürgerkrieges her erwächst, v.a. von Syrien und dem Libanon aus.
 

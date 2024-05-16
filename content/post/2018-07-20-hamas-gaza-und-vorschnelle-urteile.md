@@ -21,16 +21,16 @@ title: Hamas, Gaza und vorschnelle Urteile
 url: /hamas-gaza-und-vorschnelle-urteile/
 ---
 
-<span large="" style=""font-size:">Hamas, Gaza und vorschnelle Urteile</span>
+Hamas, Gaza und vorschnelle Urteile
 
-<span medium="" style=""font-size:">Botschafter Dore Gold</span>
+Botschafter Dore Gold
 
 <iframe allow=""autoplay;" allowfullscreen="""" encrypted-media="" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/eLCNOq5KD0c"" width=""560""></iframe>
 
-<span medium="" style=""font-size:"></span>
 
-<span medium="" style=""font-size:">  
-Die im vergangenen Monat gegen die israelischen Streitkräfte vorgebrachten Vorwürfe, sie würden an der Grenze zu Gaza "exzessive Gewalt" gegen die Palästinenser anwenden, bescherten mir ein starkes "déjà-vu"-Erlebnis.</span>
+
+  
+Die im vergangenen Monat gegen die israelischen Streitkräfte vorgebrachten Vorwürfe, sie würden an der Grenze zu Gaza "exzessive Gewalt" gegen die Palästinenser anwenden, bescherten mir ein starkes "déjà-vu"-Erlebnis.
 
 2009 wurde Israel mit Kritik überhäuft, es hätte "unverhältnismäßige Gewalt" eingesetzt, um den Raketenbeschuss israelischer Städte durch die Hamas abzuwehren. Gipfel dieser Anschuldigungen war die Veröffentlichung des berühmten – oder vielmehr berüchtigten – Goldstone-Berichts, den der UN-Menschenrechtsrat in Auftrag gegeben hatte.
 
@@ -61,14 +61,12 @@ Doch viele andere blieben bei ihrer Kritik Israels. Ein bedeutender Vertreter de
 
 Wieso beeilen sich Leute derart schnell, Israel drastisch zu kritisieren, wenn die Gründe sich bald als substanzlos herausstellen? Die Motivation ist mitunter mehr als deutlich. Kurz nach dem Sturm der Palästinenser gegen den israelischen Grenzzaun befahl der syrische Präsident Bashar Assad einen Angriff auf das Flüchtlingslager Yarmouk, in dem auch viele Palästinenser leben. Kein einziger der Israelkritiker verlor ein Wort über das, was die Verbrechen der syrischen Armee gegen die Palästinenser in Damaskus angeht.
 
-<span medium="" style=""font-size:">Denn die Motivation der verbalen Angriffe gegen Israel ist, dass es sich dabei um Israel handelt. Es geht diesen Leuten nicht um die Palästinenser, sondern um den jüdischen Staat.</span>
+Denn die Motivation der verbalen Angriffe gegen Israel ist, dass es sich dabei um Israel handelt. Es geht diesen Leuten nicht um die Palästinenser, sondern um den jüdischen Staat.
 
 Was alle Kritiker Israels in diesen militärischen Konfrontationen in Gaza eint, ist die Geschwindigkeit, mit der ganz schnell das Urteil gefällt wird, Israel sei ganz automatisch für alles verantwortlich zu machen, was passiert – sei es Goldstone 2009, seien es die Kritiker heute, 2018. All diese übereiligen Anschuldigungen haben gemeinsam, dass dem israelischen Rechtsstaat und dem moralischen Anspruch der israelischen Armee nicht vertraut wird. Und genau diese zuverlässigen Verurteilungen Israels ermutigen die Hamas, ihren Krieg gegen Israel fortzusetzen.
 
-<span medium="" style=""font-size:">  
-</span>**<span medium="" style=""font-size:">\* \* \*   
-</span>**
+  
+---
 
-<span medium="" style=""font-size:">  
-Botschafter Dore Gold ist seit 2000 Präsident des Jerusalem Center for Public Affairs. 2015 bis 2016 war er Generaldirektor des israelischen Außenministeriums. Zuvor war er Außenpolitischer Berater von Premierminister Benjamin Netanyahu, Israels Botschafter bei den Vereinten Nationen (1997-1999) und Berater von Premier Ariel Sharon.</span><span small="" style=""font-size:">  
-</span>
+  
+Botschafter Dore Gold ist seit 2000 Präsident des Jerusalem Center for Public Affairs. 2015 bis 2016 war er Generaldirektor des israelischen Außenministeriums. Zuvor war er Außenpolitischer Berater von Premierminister Benjamin Netanyahu, Israels Botschafter bei den Vereinten Nationen (1997-1999) und Berater von Premier Ariel Sharon.  

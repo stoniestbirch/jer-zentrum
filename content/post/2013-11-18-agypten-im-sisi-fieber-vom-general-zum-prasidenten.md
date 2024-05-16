@@ -42,10 +42,14 @@ title: Ägypten im Sisi-Fieber – Vom General zum Präsidenten?
 url: /agypten-im-sisi-fieber-vom-general-zum-prasidenten/
 ---
 
-<div align=""center"">**<font size=""3"">Ägypten im Sisi-Fieber – Vom General zum Präsidenten?</font>**<font size=""3"">Dr. Jacques Neriah</font>
 
-</div><font size=""3"">  
-• General Abd el-Fattah el-Sisi, maßgeblich verantwortlich für den Sturz des ägyptischen Präsidenten Mursi am 3. Juli 2013, ist gegenwärtig sowohl Oberkommandierender der Streitkräfte, erster Vize des Premierministers und Minister für Verteidigung und militärische Produktion. Im Unterschied zu seinen Vorgängern geht er entschieden gegen die dschihadistischen Kämpfer auf dem Sinai vor, um vor Ort die ägyptische Souveränität wiederherzustellen und die Macht der Hamas im Gazastreifen zu reduzieren.</font>
+**Ägypten im Sisi-Fieber – Vom General zum Präsidenten?**
+
+Dr. Jacques Neriah
+
+
+  
+• General Abd el-Fattah el-Sisi, maßgeblich verantwortlich für den Sturz des ägyptischen Präsidenten Mursi am 3. Juli 2013, ist gegenwärtig sowohl Oberkommandierender der Streitkräfte, erster Vize des Premierministers und Minister für Verteidigung und militärische Produktion. Im Unterschied zu seinen Vorgängern geht er entschieden gegen die dschihadistischen Kämpfer auf dem Sinai vor, um vor Ort die ägyptische Souveränität wiederherzustellen und die Macht der Hamas im Gazastreifen zu reduzieren.
 
 • Sisi sieht sich als Retter berufen, um Ägypten vor der Muslimbruderschaft zu bewahren. Talkshows und Leitartikel haben sich für eine mögliche Präsidentschaftskandidatur des Generals ausgesprochen, um – wie sie es nennen – die terroristische Bedrohung des Landes zu bekämpfen. Die meisten anderen Kandidaten haben derweil angedeutet, sie würden im Falle einer Kandidatur Sisis auf ihre verzichten.
 

@@ -37,4 +37,169 @@ title: Israels aktuelles strategisches Umfeld
 url: /israels-aktuelles-strategisches-umfeld/
 ---
 
-<div align=""center"">**<font size=""3"">Israels aktuelles strategisches Umfeld</font>**</div><div align=""center""><font size=""3""> </font></div><div align=""center""><font size=""3"">Gen. Maj. (Res.) Amos Gilad</font></div><div align=""center""><font size=""3""> </font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Hamas hätte vorgeben können, eine politische Lösung zu wollen, und die ganze Welt hätte dies anerkannt. Das Nahost-Quartett stellte Hamas nur drei Bedingungen: die Anerkennung Israels, die Anerkennung der Friedensverträge und ein Abschwören vom Terror. Doch Hamas beharrte darauf, Israel nicht anzuerkennen. Ihr Traum bleibt, mit anderen islamistischen Kräften den Nahen Osten zu revolutionieren.</font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Die Palästinensische Autonomiebehörde ist inzwischen erfolgreicher darin, Recht und Ordnung in ihrem Territorium im Westjordanland aufrechtzuerhalten. Dennoch hat sie bislang einen geringen Leistungsgrad bewiesen bei der Bekämpfung von Terrorismus.</font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Gegenwärtig gibt es eine präzedenzlose militärische und nachrichtendienstliche Zusammenarbeit zwischen Hisbollah, Syrien und dem Iran. Waffen werden vom Iran über Syrien in den Libanon nicht „geschmuggelt“, denn nichts davon findet im Geheimen statt. Waffen jeglicher Art werden der Hisbollah geliefert, einschließlich zehntausender Raketen.</font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Die Hisbollah hat den Libanon in eine „Bananenrepublik“ verwandelt. Der libanesische Präsident, ein General und früherer Kommandeur der libanesischen Armee, verfügt über keine Kenntnis, wenn sein Land in eine Konfrontation mit Israel verwickelt wird. Dies wird von dem Hisbollah-Führer Hassan Nasrallah entschieden, welcher in der libanesischen Regierung keine offizielle Stelle bekleidet.</font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Es gibt indirekte Friedensverhandlungen zwischen Syrien und Israel. Der von Syrien verlangte Preis ist bekannt. Den Preis, den Israel für ein Friedensabkommen verlangt, ist Sicherheit, doch die Definition von Sicherheit ist heute eine andere als noch vor zehn Jahren, aufgrund weitreichender Raketen und Terrorismus. Syrien bietet Zuflucht für verschiedene Terror-Organisationen. Bei einem Friedensabkommen muss Syrien jegliche Unterstützung von Terrorismus einstellen.</font></div><div><font size=""3""> </font></div><div><font size=""3""> </font></div><div>**<font size=""3"">Israel wünscht einen wirklichen Frieden mit den Palästinensern</font>**</div><div>**<font size=""3""> </font>**</div><div><font size=""3"">Gegenwärtig lebt Israel in einem relativ guten strategischen Umfeld. Wir stehen nicht unmittelbar vor einem Krieg und seit den siebziger Jahren nicht mehr vor einer feindlichen Koalition. Zumindest temporär scheint auch der Selbstmordterrorismus besiegt.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Wir sind in Israel entschlossen, ein wirkliches Friedensabkommen mit den Palästinensern zu erreichen. Unser Ziel ist es, zwei Staaten für zwei Völker zu bekommen, welche in Frieden und Sicherheit Seite an Seite leben. Diese Politik ist leicht zu definieren, jedoch sehr schwer umzusetzen. Das Hauptanliegen Israels ist die Sicherheitsfrage.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Palästinensische Autonomiebehörde ist gegenwärtig in zwei Teile gespalten. Israel wäre bereit, einen Friedensvertrag mit den Palästinensern zu unterzeichnen. Dies ist die offizielle Politik Israels. Doch wir müssen diesen Vertrag mit den beiden Einheiten, die jeweils Gaza wie auch das Westjordanland repräsentieren, unterzeichnen können.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Dass wir in der Lage sind, diese Politik überhaupt zu diskutieren, liegt an dem präzedenzlosen Erfolg der israelischen Streitkräfte im Westjordanland. Zwischen 2000 und 2002 war Israel alles andere als erfolgreich darin, palästinensische Selbstmordattentäter daran zu hindern, Israels größte Städte anzugreifen. Der einzige Grund, dass wir heute relativ ruhig leben, sind unsere Erfolge darin, die Terroristen ausfindig zu machen und die Zusammenarbeit zwischen Armee und Nachrichtendienst zu verbessern.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Doch von Gaza aus wird immer noch versucht, Selbstmordattentate in Israel zu verüben, auch wenn sie in der Regel scheitern. Zudem haben wir es noch nicht geschafft, den Raketenbeschuss aus Gaza zu verhindern. Um dies zu erreichen, muss der Hamas klar gemacht werden, dass sich die Angriffe nicht lohnen.</font></div><div><font size=""3""></font></div><div><font size=""3"">Die Palästinensische Autonomiebehörde ist inzwischen erfolgreicher darin, Recht und Ordnung in ihrem Territorium im Westjordanland aufrechtzuerhalten. Dennoch hat sie bislang einen geringen Leistungsgrad bewiesen bei der Bekämpfung von Terrorismus. Dies wäre jedoch die wesentliche Sicherheitsmaßnahme, da Israel über keinerlei Garantien verfügt, dass es in dem Augenblick, da unsere Truppen aus dem Westjordanland abziehen, nicht von Kalkilya aus angegriffen wird – z.B. im zwei Kilometer entfernten Kfar Saba in Israel.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Das „Hamastan“ in Gaza ist ein äußerst gefährliches Phänomen. Zum einen glaubt die Hamas nicht an einen Frieden mit Israel. Sie ist „ehrlich“ genug zu erklären, dass die Zerstörung Israels ein strategisches, historisches Ziel der Hamas darstellt. Die Hamas sagt, dass sie das Westjordanland und die Palästinensische Autonomiebehörde übernehmen möchte, doch das ultimative Ziel bleibt die Vernichtung Israels. Die Hamas betrachtet Israel als einen Teil der Waqf – als heiliges islamisches Land, in dem es keinen Raum für Juden gibt. Soweit mir bekannt, dürfte sich nichts an ihrer Ideologie ändern.</font></div><div><font size=""3""> </font></div><div>**<font size=""3"">Gibt es gemäßigte Kräfte in der Hamas?</font>**</div><div>**<font size=""3""> </font>**</div><div><font size=""3"">Finden sich Hamas-Mitglieder, die als pragmatischer beschrieben werden könnten? Die Hamas ist eine Bewegung mit einer Charta, welche zur Vernichtung Israels aufruft sowie jegliche Friedensverhandlungen ablehnt. Die PLO hatte immerhin erklärt, dass sie Frieden mit Israel wolle und zwei Staaten für zwei Völker, welche in Frieden und Sicherheit Seite an Seite leben. Die Hamas erklärt dahingegen offen wie öffentlich – und bringt dies palästinensischen Kindern vom Kindergarten auf bei – dass Israel illegitim sei, kein Existenzrecht hätte und dass ihr Ziel sei, Israel zu beseitigen. Dies wäre nur eine Frage der Zeit.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Hamas hätte vorgeben können, eine politische Lösung zu wollen, und die ganze Welt hätte dies anerkannt. Das Nahost-Quartett stellte Hamas nur drei Bedingungen: die Anerkennung Israels, die Anerkennung der Friedensverträge und ein Abschwören vom Terror. Doch die Hamas beharrte darauf, Israel nicht anzuerkennen. Ihr Traum bleibt, mit anderen islamistischen Kräften den Nahen Osten zu revolutionieren. Dieser Traum wird nicht verborgen, sondern ist in ihren Schriften zu lesen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Wir haben hier also keine Angelegenheit zwischen Gemäßigten und Terroristen. Stattdessen gibt es eher die Militärisch-Gewalttätigen und Terroristen, sowie die eher politisch Aktiven, welche im Sozialsystem und der Wohlfahrtinfrastruktur der Hamas, der Dawaa, tätig sind. Doch für sie alle gilt: sich der Hamas anzuschließen heißt, ihr Weltbild zu unterschreiben, welches die Vernichtung Israels vorsieht sowie ein Anschluss an die Muslimbruderschaft, um den ganzen Nahen Osten zu revolutionieren. Ansonsten wäre dies nicht die Hamas.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Hamas scheint einige anständige Individuen aufzubieten wie Ahmed Yousef, welcher in der New York Times schreiben durfte. Zu ihr gehören gebildete Leute wie Doktoren und Professoren. Doch dies ist keine Frage der Individuen, sondern der Ideologie. Auch die Nazis verfügten in den dreißiger Jahren über Doktoren und Professoren in ihren Reihen. Diese feindliche Ideologie ist das Wesen der Hamas, der wir gegenüberstehen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Hamas ist bestrebt, die PLO zu übernehmen, denn eine Kontrolle der PLO hieße eine Kontrolle der palästinensischen Nationalbewegung. Die Palästinensische Autonomiebehörde sollte nach Auffassung der Hamas im Januar 2009 Wahlen abhalten. Wann diese Wahlen auch immer stattfinden, die Hamas wird ihren eigenen Kandidaten für die Präsidentschaft der PA aufstellen und so versuchen, die PLO zu kontrollieren.</font></div><div><font size=""3""> </font></div><div>**<font size=""3"">Was ist die Politik Israels</font>**</div><div>**<font size=""3""> </font>**</div><div><font size=""3""> Hamas und ihr Hamastan sind Gegner Israels. Es ist inzwischen für die Hamas sehr schwer geworden, ihre Terrorangriffe durchzuführen und auch Raketen auf Israel zu schießen. Der Preis dafür ist zu hoch. Doch das Ziel bleibt, stärker und mächtiger zu werden – wie die Hisbollah im Libanon – und so folgen sie weiterhin ihren Interessen. Man sollte sich gegenüber der Hamas keinen Illusionen hingeben. Wir bereiten uns daher auf die nötigen militärischen Optionen vor. Gegenwärtig gibt es jedoch ein Ruheabkommen – eine Tahdiyah.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Diese Tahdiyah gibt uns zunächst Ruhe. Zweitens bedeutet sie Zeit, sich vorzubereiten. Drittens hilft sie uns in unseren Beziehungen zu Ägypten. Ohne Ägypten gibt es m.E. keine Aussicht auf Stabilität im Nahen Osten. Ausgehend von meiner nachrichtendienstlichen Erfahrung und meiner Beziehung zu Ägyptern glaube ich, sagen zu können, dass Ägypten immer eine Führungsrolle im arabischen Nahen Osten spielen wird. Ägypten kann den Machtzuwachs der Hamas verhindern. Der ägyptische Präsident Husni Mubarak und die ihn umgebenden durchaus befähigten Leute tragen dazu bei, dass wir in einer relativ stabilen Gegend leben. Dieser Frieden ist vorteilhaft.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Wir können das am Beispiel „Hamastans“ sehen, wo die Ägypter gegen den Willen der Hamas den Grenzübergang Rafah die meiste Zeit geschlossen halten. Ägypten hat seine Verpflichtungen weiterhin respektiert, indem es den Übergang geschlossen hält. Ägypten versucht, den Nahen Osten zu stabilisieren und wir unterstützen dies natürlich. Gleichzeitig bleiben wir sehr sensibel gegenüber dem Waffenschmuggel von Sinai nach Gaza, dem Ausbau der militärischen Fähigkeiten der Hamas, sowie ihrer Beziehung zum Iran.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Israel ist zudem stolz auf seinen Frieden mit Jordanien. Das haschemitische Königtum verfügt über modernste Streitkräfte und einen ausgezeichneten Nachrichtendienst. Ohne Jordanien wäre ein stabiler wie gesunder Naher Osten nicht vorstellbar. Es ist wenig bekannt, da Jordanien sich bescheiden gibt und wenig Aufsehen darüber erregt. Doch in professioneller Hinsicht lässt sich die strategische Bedeutung Jordaniens seit dem verstorbenen König Hussein und nun unter seinem Sohn König Abdullah kaum überbewerten.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Al-Qaida strebt danach, Gaza zu unterwandern. Es erscheint dafür ideal. Al-Qaida verfügt über Basen in Ägypten und im Sinai sowie schickt Agenten nach Gaza um mittels bestimmter Clans eine Infrastruktur aufzubauen. Für die Hamas stellt sie ein Feind dar, folglich versucht die Hamas, sie einzudämmen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Ein ähnliches Phänomen findet sich im Libanon, wo ein Ableger der al-Qaida im Norden von der libanesischen Armee geschlagen wurde. Auch sie waren Feinde der Hisbollah.</font></div><div><font size=""3""> </font></div><div><font size=""3""> </font></div><div>**<font size=""3"">Gefahren im Norden</font>**</div><div>**<font size=""3""> </font>**</div><div><font size=""3"">Im Norden haben wir das Phänomen Syrien unter Bashar Assad. Auf der einen Seite unterstützt Assad alle möglichen Kräfte wie Hisbollah. Gegenwärtig gibt es eine präzedenzlose militärische und nachrichtendienstliche Zusammenarbeit zwischen Hisbollah, Syrien und dem Iran. Waffen werden vom Iran über Syrien in den Libanon nicht „geschmuggelt“, denn nichts davon findet im Geheimen statt. Waffen jeglicher Art werden der Hisbollah geliefert, einschließlich zehntausender Raketen. Es gibt keine wirkliche Grenze zwischen Syrien und dem Libanon, daher lässt sich auch kaum von Schmuggel sprechen. Hisbollahstan, Iran und Syrien präsentieren so gesehen eine operationelle Einheit.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Es hieß, dass Syrien versucht habe, nukleare Fähigkeiten zu erwerbe und dass die Nordkoreaner versucht hätten, einen Reaktor, ähnlich zu einem in Nordkorea zu installieren. Doch zum gegenwärtigen Zeitpunkt verfügt Syrien über keine nuklearen Fähigkeiten mehr.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Es gibt indirekte Friedensverhandlungen zwischen Syrien und Israel. Der von Syrien verlangte Preis ist bekannt. Den Preis, den Israel für ein Friedensabkommen verlangt, ist Sicherheit, doch die Definition von Sicherheit ist heute eine andere als noch vor zehn Jahren, aufgrund weitreichender Raketen und Terrorismus. Syrien bietet Zuflucht für verschiedene Terror-Organisationen. Bei einem Friedensabkommen muss Syrien alle Bedrohung einstellen – nicht nur die gegen Israel. Die Syrer unterstützen die al-Qaida im Irak. Syrien muss seine Politik ändern und die Unterstützung des Terrorismus beenden. Dies wird ein wesentlicher Bestandteil der Politik des kommenden Jahres sein.</font></div><div><font size=""3""> </font></div><div>**<font size=""3"">Iran</font>**</div><div>**<font size=""3""> </font>**</div><div><font size=""3"">Die Islamische Republik Iran ist strategisch Bedrohung Nummer eins, wie eine dunkle Wolke am Horizont. Sie bedroht den ganzen Nahen Osten. Hier finden wir gemeinsame Basis mit der sunnitischen Welt. Das heißt nicht, dass sie uns nun mag, nur, dass sie diese Bedrohung gegenwärtig für die wichtigste hält, wichtiger als Israel.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Der Iran schreitet systematisch darin voran, militärisch-nukleare Optionen zu erreichen. Er wird die Möglichkeit, eine Atombombe zu besitzen, nicht aufgeben. Die Iraner sind entschlossen, diese Fähigkeit zu erwerben, und sie werden darin erfolgreich sein, es sei denn, sie werden daran gehindert.</font></div><div><font size=""3"">Das Bild ist ziemlich deutlich. Sie befassen sich mit Urananreicherung, sie befassen sich mit Trägersystemen. Die Bedrohung ist für die ganze Welt strategisch, für Israel vielleicht sogar existentiell, denn wir wären von der iranischen Einschätzung, wie man die Bombe einsetzen solle, abhängig. Doch die Bedrohung betrifft nicht nur Israel, sondern die ganze sunnitische Welt und all die friedlichen Länder im Nahen Osten.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Doch vom Iran geht nicht nur Gefahr mittels der Bombe aus. Er versucht die Struktur des gesamten Nahen Ostens zu verändern. So hat er bereits erfolgreich ein „Hisbollahstan“ im Libanon aufgebaut. Die Hisbollah konzentriert sich darauf, innerhalb der libanesischen Regierung Legitimität aufzubauen. Sie möchten nicht, dass Premier Fouad Siniora ihre Legitimität in Zukunft in Frage stellt. Aus Hibollahs Perspektive wird dies wohl auch nicht passieren.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Hisbollah hat den Libanon in eine „Bananenrepublik“ verwandelt. Der libanesische Präsident, ein General und früherer Kommandeur der libanesischen Armee, verfügt über keine Kenntnis, wenn sein Land in eine Konfrontation mit Israel verwickelt wird. Dies wird von dem Hisbollah-Führer Hassan Nasrallah entschieden, welcher in der libanesischen Regierung keine offizielle Stelle bekleidet.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Der Iran versucht, einige Staaten im Nahen Osten davon zu überzeugen, dass die Zeit iranischer Dominanz angebrochen ist. Nicht nur Israel ist also in Gefahr. Der Iran hat die globale Ambition, eine Supermacht zu werden, welche von der ganzen Welt anerkannt wird, wie das Reich Kyros des Großen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Und darin besteht die Herausforderung für die ganze Welt und ich hoffe, dass wir gemeinsam dagegen stehen werden. Ich bin nicht sicher, ob die diplomatische Option effektiv genug sein wird, um das zu verhindern. Wir werden ihren Erfolg an den Resultaten messen können. Es gibt auch andere Optionen, doch ich halte nicht viel von lauten Erklärungen. Alle Optionen sind auf dem Tisch. Am Ende des Tages wird Israel seine eigene Entscheidung treffen müssen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Gen. Maj. (Res.) Amos Gilad ist Direktor des Militärpolitischen Büros des israelischen Verteidigungsministeriums. Er diente als Koordinator der Verwalteten Gebiete des Verteidigungsministeriums, als Direktor der Forschungsabteilung des IDF-Nachrichtendienstes sowie als Sprecher der IDF. Dieser Aufsatz basiert auf einem Vortrag gehalten im Institute for Contemporary Affairs des Jerusalem for Public Affairs in Jerusalem am 10. September 2008.</font></div>
+
+**Israels aktuelles strategisches Umfeld**
+
+ 
+
+Gen. Maj. (Res.) Amos Gilad
+
+ 
+
+ 
+
+· Hamas hätte vorgeben können, eine politische Lösung zu wollen, und die ganze Welt hätte dies anerkannt. Das Nahost-Quartett stellte Hamas nur drei Bedingungen: die Anerkennung Israels, die Anerkennung der Friedensverträge und ein Abschwören vom Terror. Doch Hamas beharrte darauf, Israel nicht anzuerkennen. Ihr Traum bleibt, mit anderen islamistischen Kräften den Nahen Osten zu revolutionieren.
+
+ 
+
+· Die Palästinensische Autonomiebehörde ist inzwischen erfolgreicher darin, Recht und Ordnung in ihrem Territorium im Westjordanland aufrechtzuerhalten. Dennoch hat sie bislang einen geringen Leistungsgrad bewiesen bei der Bekämpfung von Terrorismus.
+
+ 
+
+· Gegenwärtig gibt es eine präzedenzlose militärische und nachrichtendienstliche Zusammenarbeit zwischen Hisbollah, Syrien und dem Iran. Waffen werden vom Iran über Syrien in den Libanon nicht „geschmuggelt“, denn nichts davon findet im Geheimen statt. Waffen jeglicher Art werden der Hisbollah geliefert, einschließlich zehntausender Raketen.
+
+ 
+
+· Die Hisbollah hat den Libanon in eine „Bananenrepublik“ verwandelt. Der libanesische Präsident, ein General und früherer Kommandeur der libanesischen Armee, verfügt über keine Kenntnis, wenn sein Land in eine Konfrontation mit Israel verwickelt wird. Dies wird von dem Hisbollah-Führer Hassan Nasrallah entschieden, welcher in der libanesischen Regierung keine offizielle Stelle bekleidet.
+
+ 
+
+· Es gibt indirekte Friedensverhandlungen zwischen Syrien und Israel. Der von Syrien verlangte Preis ist bekannt. Den Preis, den Israel für ein Friedensabkommen verlangt, ist Sicherheit, doch die Definition von Sicherheit ist heute eine andere als noch vor zehn Jahren, aufgrund weitreichender Raketen und Terrorismus. Syrien bietet Zuflucht für verschiedene Terror-Organisationen. Bei einem Friedensabkommen muss Syrien jegliche Unterstützung von Terrorismus einstellen.
+
+ 
+
+ 
+
+**Israel wünscht einen wirklichen Frieden mit den Palästinensern**
+
+
+
+Gegenwärtig lebt Israel in einem relativ guten strategischen Umfeld. Wir stehen nicht unmittelbar vor einem Krieg und seit den siebziger Jahren nicht mehr vor einer feindlichen Koalition. Zumindest temporär scheint auch der Selbstmordterrorismus besiegt.
+
+ 
+
+Wir sind in Israel entschlossen, ein wirkliches Friedensabkommen mit den Palästinensern zu erreichen. Unser Ziel ist es, zwei Staaten für zwei Völker zu bekommen, welche in Frieden und Sicherheit Seite an Seite leben. Diese Politik ist leicht zu definieren, jedoch sehr schwer umzusetzen. Das Hauptanliegen Israels ist die Sicherheitsfrage.
+
+ 
+
+Die Palästinensische Autonomiebehörde ist gegenwärtig in zwei Teile gespalten. Israel wäre bereit, einen Friedensvertrag mit den Palästinensern zu unterzeichnen. Dies ist die offizielle Politik Israels. Doch wir müssen diesen Vertrag mit den beiden Einheiten, die jeweils Gaza wie auch das Westjordanland repräsentieren, unterzeichnen können.
+
+ 
+
+Dass wir in der Lage sind, diese Politik überhaupt zu diskutieren, liegt an dem präzedenzlosen Erfolg der israelischen Streitkräfte im Westjordanland. Zwischen 2000 und 2002 war Israel alles andere als erfolgreich darin, palästinensische Selbstmordattentäter daran zu hindern, Israels größte Städte anzugreifen. Der einzige Grund, dass wir heute relativ ruhig leben, sind unsere Erfolge darin, die Terroristen ausfindig zu machen und die Zusammenarbeit zwischen Armee und Nachrichtendienst zu verbessern.
+
+ 
+
+Doch von Gaza aus wird immer noch versucht, Selbstmordattentate in Israel zu verüben, auch wenn sie in der Regel scheitern. Zudem haben wir es noch nicht geschafft, den Raketenbeschuss aus Gaza zu verhindern. Um dies zu erreichen, muss der Hamas klar gemacht werden, dass sich die Angriffe nicht lohnen.
+
+
+
+Die Palästinensische Autonomiebehörde ist inzwischen erfolgreicher darin, Recht und Ordnung in ihrem Territorium im Westjordanland aufrechtzuerhalten. Dennoch hat sie bislang einen geringen Leistungsgrad bewiesen bei der Bekämpfung von Terrorismus. Dies wäre jedoch die wesentliche Sicherheitsmaßnahme, da Israel über keinerlei Garantien verfügt, dass es in dem Augenblick, da unsere Truppen aus dem Westjordanland abziehen, nicht von Kalkilya aus angegriffen wird – z.B. im zwei Kilometer entfernten Kfar Saba in Israel.
+
+ 
+
+Das „Hamastan“ in Gaza ist ein äußerst gefährliches Phänomen. Zum einen glaubt die Hamas nicht an einen Frieden mit Israel. Sie ist „ehrlich“ genug zu erklären, dass die Zerstörung Israels ein strategisches, historisches Ziel der Hamas darstellt. Die Hamas sagt, dass sie das Westjordanland und die Palästinensische Autonomiebehörde übernehmen möchte, doch das ultimative Ziel bleibt die Vernichtung Israels. Die Hamas betrachtet Israel als einen Teil der Waqf – als heiliges islamisches Land, in dem es keinen Raum für Juden gibt. Soweit mir bekannt, dürfte sich nichts an ihrer Ideologie ändern.
+
+ 
+
+**Gibt es gemäßigte Kräfte in der Hamas?**
+
+
+
+Finden sich Hamas-Mitglieder, die als pragmatischer beschrieben werden könnten? Die Hamas ist eine Bewegung mit einer Charta, welche zur Vernichtung Israels aufruft sowie jegliche Friedensverhandlungen ablehnt. Die PLO hatte immerhin erklärt, dass sie Frieden mit Israel wolle und zwei Staaten für zwei Völker, welche in Frieden und Sicherheit Seite an Seite leben. Die Hamas erklärt dahingegen offen wie öffentlich – und bringt dies palästinensischen Kindern vom Kindergarten auf bei – dass Israel illegitim sei, kein Existenzrecht hätte und dass ihr Ziel sei, Israel zu beseitigen. Dies wäre nur eine Frage der Zeit.
+
+ 
+
+Hamas hätte vorgeben können, eine politische Lösung zu wollen, und die ganze Welt hätte dies anerkannt. Das Nahost-Quartett stellte Hamas nur drei Bedingungen: die Anerkennung Israels, die Anerkennung der Friedensverträge und ein Abschwören vom Terror. Doch die Hamas beharrte darauf, Israel nicht anzuerkennen. Ihr Traum bleibt, mit anderen islamistischen Kräften den Nahen Osten zu revolutionieren. Dieser Traum wird nicht verborgen, sondern ist in ihren Schriften zu lesen.
+
+ 
+
+Wir haben hier also keine Angelegenheit zwischen Gemäßigten und Terroristen. Stattdessen gibt es eher die Militärisch-Gewalttätigen und Terroristen, sowie die eher politisch Aktiven, welche im Sozialsystem und der Wohlfahrtinfrastruktur der Hamas, der Dawaa, tätig sind. Doch für sie alle gilt: sich der Hamas anzuschließen heißt, ihr Weltbild zu unterschreiben, welches die Vernichtung Israels vorsieht sowie ein Anschluss an die Muslimbruderschaft, um den ganzen Nahen Osten zu revolutionieren. Ansonsten wäre dies nicht die Hamas.
+
+ 
+
+Die Hamas scheint einige anständige Individuen aufzubieten wie Ahmed Yousef, welcher in der New York Times schreiben durfte. Zu ihr gehören gebildete Leute wie Doktoren und Professoren. Doch dies ist keine Frage der Individuen, sondern der Ideologie. Auch die Nazis verfügten in den dreißiger Jahren über Doktoren und Professoren in ihren Reihen. Diese feindliche Ideologie ist das Wesen der Hamas, der wir gegenüberstehen.
+
+ 
+
+Die Hamas ist bestrebt, die PLO zu übernehmen, denn eine Kontrolle der PLO hieße eine Kontrolle der palästinensischen Nationalbewegung. Die Palästinensische Autonomiebehörde sollte nach Auffassung der Hamas im Januar 2009 Wahlen abhalten. Wann diese Wahlen auch immer stattfinden, die Hamas wird ihren eigenen Kandidaten für die Präsidentschaft der PA aufstellen und so versuchen, die PLO zu kontrollieren.
+
+ 
+
+**Was ist die Politik Israels**
+
+
+
+ Hamas und ihr Hamastan sind Gegner Israels. Es ist inzwischen für die Hamas sehr schwer geworden, ihre Terrorangriffe durchzuführen und auch Raketen auf Israel zu schießen. Der Preis dafür ist zu hoch. Doch das Ziel bleibt, stärker und mächtiger zu werden – wie die Hisbollah im Libanon – und so folgen sie weiterhin ihren Interessen. Man sollte sich gegenüber der Hamas keinen Illusionen hingeben. Wir bereiten uns daher auf die nötigen militärischen Optionen vor. Gegenwärtig gibt es jedoch ein Ruheabkommen – eine Tahdiyah.
+
+ 
+
+Diese Tahdiyah gibt uns zunächst Ruhe. Zweitens bedeutet sie Zeit, sich vorzubereiten. Drittens hilft sie uns in unseren Beziehungen zu Ägypten. Ohne Ägypten gibt es m.E. keine Aussicht auf Stabilität im Nahen Osten. Ausgehend von meiner nachrichtendienstlichen Erfahrung und meiner Beziehung zu Ägyptern glaube ich, sagen zu können, dass Ägypten immer eine Führungsrolle im arabischen Nahen Osten spielen wird. Ägypten kann den Machtzuwachs der Hamas verhindern. Der ägyptische Präsident Husni Mubarak und die ihn umgebenden durchaus befähigten Leute tragen dazu bei, dass wir in einer relativ stabilen Gegend leben. Dieser Frieden ist vorteilhaft.
+
+ 
+
+Wir können das am Beispiel „Hamastans“ sehen, wo die Ägypter gegen den Willen der Hamas den Grenzübergang Rafah die meiste Zeit geschlossen halten. Ägypten hat seine Verpflichtungen weiterhin respektiert, indem es den Übergang geschlossen hält. Ägypten versucht, den Nahen Osten zu stabilisieren und wir unterstützen dies natürlich. Gleichzeitig bleiben wir sehr sensibel gegenüber dem Waffenschmuggel von Sinai nach Gaza, dem Ausbau der militärischen Fähigkeiten der Hamas, sowie ihrer Beziehung zum Iran.
+
+ 
+
+Israel ist zudem stolz auf seinen Frieden mit Jordanien. Das haschemitische Königtum verfügt über modernste Streitkräfte und einen ausgezeichneten Nachrichtendienst. Ohne Jordanien wäre ein stabiler wie gesunder Naher Osten nicht vorstellbar. Es ist wenig bekannt, da Jordanien sich bescheiden gibt und wenig Aufsehen darüber erregt. Doch in professioneller Hinsicht lässt sich die strategische Bedeutung Jordaniens seit dem verstorbenen König Hussein und nun unter seinem Sohn König Abdullah kaum überbewerten.
+
+ 
+
+Al-Qaida strebt danach, Gaza zu unterwandern. Es erscheint dafür ideal. Al-Qaida verfügt über Basen in Ägypten und im Sinai sowie schickt Agenten nach Gaza um mittels bestimmter Clans eine Infrastruktur aufzubauen. Für die Hamas stellt sie ein Feind dar, folglich versucht die Hamas, sie einzudämmen.
+
+ 
+
+Ein ähnliches Phänomen findet sich im Libanon, wo ein Ableger der al-Qaida im Norden von der libanesischen Armee geschlagen wurde. Auch sie waren Feinde der Hisbollah.
+
+ 
+
+ 
+
+**Gefahren im Norden**
+
+
+
+Im Norden haben wir das Phänomen Syrien unter Bashar Assad. Auf der einen Seite unterstützt Assad alle möglichen Kräfte wie Hisbollah. Gegenwärtig gibt es eine präzedenzlose militärische und nachrichtendienstliche Zusammenarbeit zwischen Hisbollah, Syrien und dem Iran. Waffen werden vom Iran über Syrien in den Libanon nicht „geschmuggelt“, denn nichts davon findet im Geheimen statt. Waffen jeglicher Art werden der Hisbollah geliefert, einschließlich zehntausender Raketen. Es gibt keine wirkliche Grenze zwischen Syrien und dem Libanon, daher lässt sich auch kaum von Schmuggel sprechen. Hisbollahstan, Iran und Syrien präsentieren so gesehen eine operationelle Einheit.
+
+ 
+
+Es hieß, dass Syrien versucht habe, nukleare Fähigkeiten zu erwerbe und dass die Nordkoreaner versucht hätten, einen Reaktor, ähnlich zu einem in Nordkorea zu installieren. Doch zum gegenwärtigen Zeitpunkt verfügt Syrien über keine nuklearen Fähigkeiten mehr.
+
+ 
+
+Es gibt indirekte Friedensverhandlungen zwischen Syrien und Israel. Der von Syrien verlangte Preis ist bekannt. Den Preis, den Israel für ein Friedensabkommen verlangt, ist Sicherheit, doch die Definition von Sicherheit ist heute eine andere als noch vor zehn Jahren, aufgrund weitreichender Raketen und Terrorismus. Syrien bietet Zuflucht für verschiedene Terror-Organisationen. Bei einem Friedensabkommen muss Syrien alle Bedrohung einstellen – nicht nur die gegen Israel. Die Syrer unterstützen die al-Qaida im Irak. Syrien muss seine Politik ändern und die Unterstützung des Terrorismus beenden. Dies wird ein wesentlicher Bestandteil der Politik des kommenden Jahres sein.
+
+ 
+
+**Iran**
+
+
+
+Die Islamische Republik Iran ist strategisch Bedrohung Nummer eins, wie eine dunkle Wolke am Horizont. Sie bedroht den ganzen Nahen Osten. Hier finden wir gemeinsame Basis mit der sunnitischen Welt. Das heißt nicht, dass sie uns nun mag, nur, dass sie diese Bedrohung gegenwärtig für die wichtigste hält, wichtiger als Israel.
+
+ 
+
+Der Iran schreitet systematisch darin voran, militärisch-nukleare Optionen zu erreichen. Er wird die Möglichkeit, eine Atombombe zu besitzen, nicht aufgeben. Die Iraner sind entschlossen, diese Fähigkeit zu erwerben, und sie werden darin erfolgreich sein, es sei denn, sie werden daran gehindert.
+
+Das Bild ist ziemlich deutlich. Sie befassen sich mit Urananreicherung, sie befassen sich mit Trägersystemen. Die Bedrohung ist für die ganze Welt strategisch, für Israel vielleicht sogar existentiell, denn wir wären von der iranischen Einschätzung, wie man die Bombe einsetzen solle, abhängig. Doch die Bedrohung betrifft nicht nur Israel, sondern die ganze sunnitische Welt und all die friedlichen Länder im Nahen Osten.
+
+ 
+
+Doch vom Iran geht nicht nur Gefahr mittels der Bombe aus. Er versucht die Struktur des gesamten Nahen Ostens zu verändern. So hat er bereits erfolgreich ein „Hisbollahstan“ im Libanon aufgebaut. Die Hisbollah konzentriert sich darauf, innerhalb der libanesischen Regierung Legitimität aufzubauen. Sie möchten nicht, dass Premier Fouad Siniora ihre Legitimität in Zukunft in Frage stellt. Aus Hibollahs Perspektive wird dies wohl auch nicht passieren.
+
+ 
+
+Die Hisbollah hat den Libanon in eine „Bananenrepublik“ verwandelt. Der libanesische Präsident, ein General und früherer Kommandeur der libanesischen Armee, verfügt über keine Kenntnis, wenn sein Land in eine Konfrontation mit Israel verwickelt wird. Dies wird von dem Hisbollah-Führer Hassan Nasrallah entschieden, welcher in der libanesischen Regierung keine offizielle Stelle bekleidet.
+
+ 
+
+Der Iran versucht, einige Staaten im Nahen Osten davon zu überzeugen, dass die Zeit iranischer Dominanz angebrochen ist. Nicht nur Israel ist also in Gefahr. Der Iran hat die globale Ambition, eine Supermacht zu werden, welche von der ganzen Welt anerkannt wird, wie das Reich Kyros des Großen.
+
+ 
+
+Und darin besteht die Herausforderung für die ganze Welt und ich hoffe, dass wir gemeinsam dagegen stehen werden. Ich bin nicht sicher, ob die diplomatische Option effektiv genug sein wird, um das zu verhindern. Wir werden ihren Erfolg an den Resultaten messen können. Es gibt auch andere Optionen, doch ich halte nicht viel von lauten Erklärungen. Alle Optionen sind auf dem Tisch. Am Ende des Tages wird Israel seine eigene Entscheidung treffen müssen.
+
+ 
+
+Gen. Maj. (Res.) Amos Gilad ist Direktor des Militärpolitischen Büros des israelischen Verteidigungsministeriums. Er diente als Koordinator der Verwalteten Gebiete des Verteidigungsministeriums, als Direktor der Forschungsabteilung des IDF-Nachrichtendienstes sowie als Sprecher der IDF. Dieser Aufsatz basiert auf einem Vortrag gehalten im Institute for Contemporary Affairs des Jerusalem for Public Affairs in Jerusalem am 10. September 2008.

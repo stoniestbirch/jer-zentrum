@@ -13,15 +13,15 @@ title: Teilung Jerusalems bleibt Illusion
 url: /teilung-jerusalems-bleibt-illusion/
 ---
 
-<span small="" style=""font-size:">**Teilung Jerusalems bleibt Illusion**  
-</span>
+**Teilung Jerusalems bleibt Illusion**  
+
 
 Nadav Sharagai
 
-<span small="" style=""font-size:">  
+  
 **Einleitung**  
-</span><span small="" style=""font-size:">  
-Diese Studie hat die Zukunft Jerusalems zum Gegenstand. Die vor sieben Jahren erschienene Erstausgabe trug den Titel: "Die Gefahr einer Teilung der Stadt". Im Zuge einer neuen Welle extremistischer Gewalt von Seiten der Palästinenser, die sich auf Jerusalem konzentrierte, wurde die Studie 2015 umfassend erweitert und die Daten, Fakten, Analysen und Schlussfolgerungen auf den neuesten Stand gebracht. Die von manchen als "Jerusalem Intifada" bezeichnete Gewaltwelle ereignete sich vorwiegend an den Nahtstellen zwischen jüdischen und arabischen Vierteln, in gemischten Wohngebieten und auf dem Gelände des Tempelbergs, der zum wiederholten Mal zum Brennpunkt von Aufstachelung und Verleumdung wurde. (1) Sie begann am 2. Juli 2014 und verzeichnet inzwischen tausende Vorfälle von Unruhestiftung und Angriffen auf Juden in der Stadt, mit einem Höhepunkt beim Massaker der Besucher einer Synagoge im Viertel Har Nof. Zahlreiche Israelis wurden ermordet und verwundet. Viele palästinensische Terroristen wurden bei den Angriffen getötet. Jüdische Terroristen entführten in Reaktion auf Kidnapping und Ermordung von drei jüdischen Teenagern in Gush Etzion den arabischen Jugendlichen Muhammad Abu Khdeir aus Shuafat und ermordeten ihn, wurden aber gefasst und stehen vor Gericht.</span>
+  
+Diese Studie hat die Zukunft Jerusalems zum Gegenstand. Die vor sieben Jahren erschienene Erstausgabe trug den Titel: "Die Gefahr einer Teilung der Stadt". Im Zuge einer neuen Welle extremistischer Gewalt von Seiten der Palästinenser, die sich auf Jerusalem konzentrierte, wurde die Studie 2015 umfassend erweitert und die Daten, Fakten, Analysen und Schlussfolgerungen auf den neuesten Stand gebracht. Die von manchen als "Jerusalem Intifada" bezeichnete Gewaltwelle ereignete sich vorwiegend an den Nahtstellen zwischen jüdischen und arabischen Vierteln, in gemischten Wohngebieten und auf dem Gelände des Tempelbergs, der zum wiederholten Mal zum Brennpunkt von Aufstachelung und Verleumdung wurde. (1) Sie begann am 2. Juli 2014 und verzeichnet inzwischen tausende Vorfälle von Unruhestiftung und Angriffen auf Juden in der Stadt, mit einem Höhepunkt beim Massaker der Besucher einer Synagoge im Viertel Har Nof. Zahlreiche Israelis wurden ermordet und verwundet. Viele palästinensische Terroristen wurden bei den Angriffen getötet. Jüdische Terroristen entführten in Reaktion auf Kidnapping und Ermordung von drei jüdischen Teenagern in Gush Etzion den arabischen Jugendlichen Muhammad Abu Khdeir aus Shuafat und ermordeten ihn, wurden aber gefasst und stehen vor Gericht.
 
 Die Rolle Jerusalems in diesem Konflikt hat die Diskussion um den Status der im Ostteil der Stadt lebenden Araber und die Zukunft der vereinten Stadt wieder angefacht. Dabei ist gerade von linken Bewegungen wie Ir Amim und Peace Now die Forderung erhoben worden, eine Teilung der Stadt zu einem politischen Ziel zu erheben. Hinter den Kulissen beschäftigen sich Forschungsinstitute und politische Akteure beständig mit dem Thema.
 

@@ -22,4 +22,93 @@ title: Offener Brief an UN-Generalsekretär Ban Ki-Moon über die Illegalität e
 url: /offener-brief-an-un-generalsekretar-ban-ki-moon-uber-die-illegalitat-einer-anerkennung-eines-palastinenserstaates-in-den-grenzen-von-1967/
 ---
 
-<div align=""center"">**<font size=""3"">Offener Brief an UN-Generalsekretär Ban Ki-Moon über die Illegalität einer Anerkennung eines Palästinenserstaates „in den Grenzen von 1967“</font>**</div><div align=""center"">**<font size=""3""> </font>**</div><div><font size=""3""> </font></div><div><font size=""3"">His Excellency Ban Ki-Moon,</font></div><div><font size=""3"">Secretary-General of the United Nations,</font></div><div><font size=""3"">1st Avenue &amp; 44th St.</font></div><div><font size=""3""> </font></div><div><font size=""3"">New York, NY 10017</font></div><div><font size=""3""> </font></div><div><font size=""3""> </font></div><div><font size=""3"">Exzellenz,</font></div><div><font size=""3""> </font></div><div><font size=""3"">Wir, die Unterzeichnenden, sind eine Gruppe von Juristen aus der ganzen Welt mit Schwerpunkt auf völkerrechtliche Fragen. Wir sind mit dem israelisch-palästinensischen Konflikt eng vertraut. Wir appellieren an Sie, Ihren Einfluss und Ihre Autorität unter den Mitgliedsstaaten der Vereinten Nationen geltend zu machen, um die Annahme einer Resolution zu verhindern, welche die Palästinensische Delegation beabsichtigt, in der kommenden Sitzung der UN-Vollversammlung vorzulegen und die die Anerkennung eines palästinensischen Staates „in den Grenzen von 1967“ zum Gegenstand hat.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Nach allen rechtlichen Kriterien wäre eine solche Resolution im Falle einer Annahme eine grobe Verletzung aller zwischen Israel und den Palästinensern geschlossenen Abkommen und widerspräche den UN-Sicherheitsratsresolutionen 242 (1967) und 338 (1973) sowie allen anderen Resolutionen, die sich auf diese beziehen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Gestatten Sie uns, Ihnen unsere Gründe darzulegen:</font></div><div><font size=""3""> </font></div><div><font size=""3"">1. Die rechtliche Grundlage für die Gründung des Staates Israel war eine 1922 einstimmig vom Völkerbund angenommene Resolution, die die Errichtung einer Heimstätte für das jüdische Volk in dem Gebiet des historischen Land Israel bestätigte. Dies beinhaltete die Gebiete des Westjordanlandes, Jerusalem und geschlossene jüdische Siedlungen im ganzen Territorium. Diese Resolution wurde in Folge von beiden Kammern des amerikanischen Kongresses bestätigt.</font></div><div><font size=""3""> </font></div><div><font size=""3"">2. Artikel 80 der UN-Charta bestimmt die fortgesetzte Gültigkeit der Rechte, die allen Staaten oder Völkern gewährt wurden, und der bereits bestehenden internationalen Instrumentarien (einschließlich jener, die vom Völkerbund angenommen wurden). Daher bleibt die oben erwähnte Völkerbundresolution gültig und die 650 000 jüdischen Bewohner des Westjordanlands und Ostjerusalems leben dort rechtmäßig.</font></div><div><font size=""3""> </font></div><div><font size=""3"">3. „Die Grenzen von 1967“ existieren nicht und haben nie existiert. Die Waffenstillstandsabkommen von 1949, auf die sich Israel und seine arabischen Nachbarn einigten, etablierten eine Demarkationslinie und hielten ausdrücklich fest, dass diese Linien „ohne Vorwegnahme zukünftiger territorialer Einigungen oder Grenzlinien oder Ansprüche der hier beteiligten Parteien bestimmt \[werden\].“ Entsprechend können sie nicht zu den internationalen Grenzen eines Palästinenserstaates erklärt oder als solche akzeptiert werden.</font></div><div><font size=""3""> </font></div><div><font size=""3"">4. Die UN-Sicherheitsratsresolutionen 242 (1967) und 338 (1973) riefen die Parteien dazu auf, einen gerechten und dauerhaften Frieden anzustreben und betonten ausdrücklich die Notwendigkeit von Verhandlungen zur Erreichung „sicherer und anerkannter Grenzen“.</font></div><div><font size=""3""> </font></div><div><font size=""3"">5. Der palästinensische Vorschlag wäre in seinem Versuch, den Status des Territoriums unilateral zu verändern und „1967er Grenzen“ zu bestimmen, sowie in seinem Verstoß gegen die Resolutionen 242 und 338 ein fundamentaler Bruch des israelisch-palästinensischen Interimsabkommens von 1995 über das Westjordanland und den Gazastreifen, in dem beide Parteien die Grenzfrage verhandelten und es unterließen, den Status der Territorien zu verändern, solange der Abschluss dauerhafter Statusverhandlungen in der Schwebe ist.</font></div><div><font size=""3""> </font></div><div><font size=""3"">6. Die Palästinenser sind verschiedene als „Osloer Abkommen“ bekannte Vereinbarungen eingegangen im vollen Wissen, dass Israels Siedlungen in dem Gebiet existieren und dass diese Siedlungen Gegenstand der Verhandlungen über den dauerhaften Status sein würden. Die Osloer Abkommen legen zudem der israelischen Siedlungsaktivität in jenen Gebieten keinerlei Beschränkungen auf, die mit Einverständnis der Palästinenser unter israelischer Rechtsprechung und Kontrolle bleiben sollten, solange der Abschluss dauerhafter Statusverhandlungen in der Schwebe ist.</font></div><div><font size=""3""> </font></div><div><font size=""3"">7. Bei der Unterzeichnung des Interimsabkommen zwischen Israel und der PLO traten die Vereinten Nationen, die EU, die Russische Föderation, die Vereinigten Staaten, Ägypten und Norwegen als Zeugen auf. Es ist daher nicht nachvollziehbar, dass diese Zeugen, zu denen an erster Stelle die UN gehört, einer solchen Maßnahme, die das Abkommen verletzt und wesentliche Resolutionen des UN-Sicherheitsrates untergräbt, ihre Zustimmung geben würden.</font></div><div><font size=""3""> </font></div><div><font size=""3"">8. Da die UN unabhängig von Israels historischen Rechten an Jerusalem ihre Politik der Nichtanerkennung israelischer Souveränität über die Stadt vor Abschluss dauerhafter Statusverhandlungen aufrecht erhalten hat, ist nicht nachvollziehbar, dass die UN einen einseitig erklärten Palästinenserstaat nun anerkennen würde, dessen Grenzen Ostjerusalem beinhalten. Dies wäre ein Akt ultimativer Heuchelei, der Doppelstandards und der Diskriminierung sowie eine absolute Missachtung der Rechte Israels und des jüdischen Volkes.</font></div><div><font size=""3""> </font></div><div><font size=""3"">9. Eine solche unilaterale Aktion der Palästinenser würde im israelischen Parlament zu reziproken Maßnahmen führen, zu denen eine Gesetzgebung gehört, die Israels Souveränität über weite Teile des Westjordanlands erklären würde, sollten die Palästinenser diesen unilateralen Schritt gehen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Eure Exzellenz,</font></div><div><font size=""3""> </font></div><div><font size=""3"">Es erscheint also deutlich, dass der palästinensische Vorstoß darauf abzielt, die politischen Ansprüche der Palästinenser voranzutreiben und einen zynischen Missbrauch der UNO und der Mitglieder der Vollversammlung darstellt. Ziel ist, den vom Sicherheitsrat eingeforderten Verhandlungsprozess zu umgehen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Dieser Missbrauch der UN und ihrer Integrität untergräbt nicht nur das Völkerrecht, sondern hat bedauerlicherweise das Potential, den Friedensprozess in Nahost zum entgleisen zu bringen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Wir vertrauen darauf, dass Sie Ihre Autorität einsetzen, um die UN und ihre Integrität vor diesem Missbrauch zu schützen, und solcherart zu handeln, dass eine Bestätigung oder Anerkennung dieser gefährlichen palästinensischen Initiative verhindert wird.</font></div><div><font size=""3""> </font></div><div></div>
+
+**Offener Brief an UN-Generalsekretär Ban Ki-Moon über die Illegalität einer Anerkennung eines Palästinenserstaates „in den Grenzen von 1967“**
+
+
+
+ 
+
+His Excellency Ban Ki-Moon,
+
+Secretary-General of the United Nations,
+
+1st Avenue &amp; 44th St.
+
+ 
+
+New York, NY 10017
+
+ 
+
+ 
+
+Exzellenz,
+
+ 
+
+Wir, die Unterzeichnenden, sind eine Gruppe von Juristen aus der ganzen Welt mit Schwerpunkt auf völkerrechtliche Fragen. Wir sind mit dem israelisch-palästinensischen Konflikt eng vertraut. Wir appellieren an Sie, Ihren Einfluss und Ihre Autorität unter den Mitgliedsstaaten der Vereinten Nationen geltend zu machen, um die Annahme einer Resolution zu verhindern, welche die Palästinensische Delegation beabsichtigt, in der kommenden Sitzung der UN-Vollversammlung vorzulegen und die die Anerkennung eines palästinensischen Staates „in den Grenzen von 1967“ zum Gegenstand hat.
+
+ 
+
+Nach allen rechtlichen Kriterien wäre eine solche Resolution im Falle einer Annahme eine grobe Verletzung aller zwischen Israel und den Palästinensern geschlossenen Abkommen und widerspräche den UN-Sicherheitsratsresolutionen 242 (1967) und 338 (1973) sowie allen anderen Resolutionen, die sich auf diese beziehen.
+
+ 
+
+Gestatten Sie uns, Ihnen unsere Gründe darzulegen:
+
+ 
+
+1. Die rechtliche Grundlage für die Gründung des Staates Israel war eine 1922 einstimmig vom Völkerbund angenommene Resolution, die die Errichtung einer Heimstätte für das jüdische Volk in dem Gebiet des historischen Land Israel bestätigte. Dies beinhaltete die Gebiete des Westjordanlandes, Jerusalem und geschlossene jüdische Siedlungen im ganzen Territorium. Diese Resolution wurde in Folge von beiden Kammern des amerikanischen Kongresses bestätigt.
+
+ 
+
+2. Artikel 80 der UN-Charta bestimmt die fortgesetzte Gültigkeit der Rechte, die allen Staaten oder Völkern gewährt wurden, und der bereits bestehenden internationalen Instrumentarien (einschließlich jener, die vom Völkerbund angenommen wurden). Daher bleibt die oben erwähnte Völkerbundresolution gültig und die 650 000 jüdischen Bewohner des Westjordanlands und Ostjerusalems leben dort rechtmäßig.
+
+ 
+
+3. „Die Grenzen von 1967“ existieren nicht und haben nie existiert. Die Waffenstillstandsabkommen von 1949, auf die sich Israel und seine arabischen Nachbarn einigten, etablierten eine Demarkationslinie und hielten ausdrücklich fest, dass diese Linien „ohne Vorwegnahme zukünftiger territorialer Einigungen oder Grenzlinien oder Ansprüche der hier beteiligten Parteien bestimmt \[werden\].“ Entsprechend können sie nicht zu den internationalen Grenzen eines Palästinenserstaates erklärt oder als solche akzeptiert werden.
+
+ 
+
+4. Die UN-Sicherheitsratsresolutionen 242 (1967) und 338 (1973) riefen die Parteien dazu auf, einen gerechten und dauerhaften Frieden anzustreben und betonten ausdrücklich die Notwendigkeit von Verhandlungen zur Erreichung „sicherer und anerkannter Grenzen“.
+
+ 
+
+5. Der palästinensische Vorschlag wäre in seinem Versuch, den Status des Territoriums unilateral zu verändern und „1967er Grenzen“ zu bestimmen, sowie in seinem Verstoß gegen die Resolutionen 242 und 338 ein fundamentaler Bruch des israelisch-palästinensischen Interimsabkommens von 1995 über das Westjordanland und den Gazastreifen, in dem beide Parteien die Grenzfrage verhandelten und es unterließen, den Status der Territorien zu verändern, solange der Abschluss dauerhafter Statusverhandlungen in der Schwebe ist.
+
+ 
+
+6. Die Palästinenser sind verschiedene als „Osloer Abkommen“ bekannte Vereinbarungen eingegangen im vollen Wissen, dass Israels Siedlungen in dem Gebiet existieren und dass diese Siedlungen Gegenstand der Verhandlungen über den dauerhaften Status sein würden. Die Osloer Abkommen legen zudem der israelischen Siedlungsaktivität in jenen Gebieten keinerlei Beschränkungen auf, die mit Einverständnis der Palästinenser unter israelischer Rechtsprechung und Kontrolle bleiben sollten, solange der Abschluss dauerhafter Statusverhandlungen in der Schwebe ist.
+
+ 
+
+7. Bei der Unterzeichnung des Interimsabkommen zwischen Israel und der PLO traten die Vereinten Nationen, die EU, die Russische Föderation, die Vereinigten Staaten, Ägypten und Norwegen als Zeugen auf. Es ist daher nicht nachvollziehbar, dass diese Zeugen, zu denen an erster Stelle die UN gehört, einer solchen Maßnahme, die das Abkommen verletzt und wesentliche Resolutionen des UN-Sicherheitsrates untergräbt, ihre Zustimmung geben würden.
+
+ 
+
+8. Da die UN unabhängig von Israels historischen Rechten an Jerusalem ihre Politik der Nichtanerkennung israelischer Souveränität über die Stadt vor Abschluss dauerhafter Statusverhandlungen aufrecht erhalten hat, ist nicht nachvollziehbar, dass die UN einen einseitig erklärten Palästinenserstaat nun anerkennen würde, dessen Grenzen Ostjerusalem beinhalten. Dies wäre ein Akt ultimativer Heuchelei, der Doppelstandards und der Diskriminierung sowie eine absolute Missachtung der Rechte Israels und des jüdischen Volkes.
+
+ 
+
+9. Eine solche unilaterale Aktion der Palästinenser würde im israelischen Parlament zu reziproken Maßnahmen führen, zu denen eine Gesetzgebung gehört, die Israels Souveränität über weite Teile des Westjordanlands erklären würde, sollten die Palästinenser diesen unilateralen Schritt gehen.
+
+ 
+
+Eure Exzellenz,
+
+ 
+
+Es erscheint also deutlich, dass der palästinensische Vorstoß darauf abzielt, die politischen Ansprüche der Palästinenser voranzutreiben und einen zynischen Missbrauch der UNO und der Mitglieder der Vollversammlung darstellt. Ziel ist, den vom Sicherheitsrat eingeforderten Verhandlungsprozess zu umgehen.
+
+ 
+
+Dieser Missbrauch der UN und ihrer Integrität untergräbt nicht nur das Völkerrecht, sondern hat bedauerlicherweise das Potential, den Friedensprozess in Nahost zum entgleisen zu bringen.
+
+ 
+
+Wir vertrauen darauf, dass Sie Ihre Autorität einsetzen, um die UN und ihre Integrität vor diesem Missbrauch zu schützen, und solcherart zu handeln, dass eine Bestätigung oder Anerkennung dieser gefährlichen palästinensischen Initiative verhindert wird.
+
+ 
+
+

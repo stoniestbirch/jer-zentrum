@@ -17,9 +17,13 @@ title: Obamas Richtungswechsel und die westliche Strategie in der Syrienfrage
 url: /obamas-richtungswechsel-und-die-westliche-strategie-in-der-syrienfrage/
 ---
 
-<div align=""center"">**<font size=""3"">Obamas Richtungswechsel und die westliche Strategie in der Syrienfrage</font>**<font size=""3"">Jonathan D. Halevi</font>
 
-</div><font size=""3""></font>
+**Obamas Richtungswechsel und die westliche Strategie in der Syrienfrage**
+
+Jonathan D. Halevi
+
+
+
 
 • Das syrische Regime ist weit schwächer als den meisten Beobachtern bewusst ist. In allen Regionen gelingt es den Rebellen, das Moment für sich zu gewinnen. Die desperate Situation des Regimes zeigt sich in seiner zunehmenden Abhängigkeit von irregulären und Freiwilligenverbänden aus dem Iran, dem Irak und dem Libanon.
 

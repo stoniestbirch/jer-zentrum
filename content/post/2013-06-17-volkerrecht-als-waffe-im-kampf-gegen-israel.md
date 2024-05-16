@@ -19,11 +19,13 @@ title: Völkerrecht als Waffe im Kampf gegen Israel
 url: /volkerrecht-als-waffe-im-kampf-gegen-israel/
 ---
 
-<div align=""center"">**<font size=""3"">Völkerrecht als Waffe im Kampf gegen Israel</font>**<font size=""3""> </font>
 
-<font size=""3"">Robbie Sabel</font>
+**Völkerrecht als Waffe im Kampf gegen Israel** 
 
-</div><font size=""3""> </font>
+Robbie Sabel
+
+
+ 
 
 Es gehört inzwischen zum Standard des antiisraelischen Kampfes, Israel als Staat zu stigmatisieren, der das Völkerrecht bricht. Obgleich es keinen Staat gibt, der dahingehend völlig fehlerfrei ist, erweist sich Israels Bilanz bei der Einhaltung des Völkerrechts als auffallend stark. Israelische Gerichte setzen das Völkergewohnheitsrecht als Teil des Landesrechts durch. In einer langen Reihe von Entscheidungen hat der Oberste Gerichtshof Israels die israelische Regierung, Armee und die Sicherheitsdienste angewiesen, ihre Politik zu verändern, wenn sie nach Meinung des Gerichts im Konflikt mit dem Völkergewohnheitsrecht stand. Vermutlich ist es im internationalen Vergleich sogar einmalig, dass sich dieses Gericht in tatsächliche Kampfhandlungen eingemischt hat. Und die israelische Regierung kann ein nahezu vorbildliches Zeugnis vorweisen, wenn es darum geht, ob sie den Anordnungen des Gerichtshofes Folge geleistet hat.
 
@@ -219,6 +221,10 @@ Israel hält sich nachweislich sehr wohl an das Völkerrecht und seine Judikativ
 
 \[50\] Separate opinions of Judges Higgins, Buergenthal, and Owada, ICJ Advisory Opinion, Legal Consequences of the Construction of a Wall in the Occupied Palestinian Territory, 9. Juli 2004.
 
-\[51\] Kimberly N. Trapp, “Back to Basics: Necessity, Proportionality and the Right of Self-Defence Against Non-State Terrorist Actors,”56 International and Comparative Law Quarterly, pp. 141, 156 (2007).<span lang=""DE"" style=""font-size:8.0pt""><span style=""mso-ansi-language:DE-CH""></span></span>
+\[51\] Kimberly N. Trapp, “Back to Basics: Necessity, Proportionality and the Right of Self-Defence Against Non-State Terrorist Actors,”56 International and Comparative Law Quarterly, pp. 141, 156 (2007).
 
-<div style=""mso-element:endnote-list""><div id=""edn51"" style=""mso-element:endnote""> </div></div><font size=""3""> </font>
+
+
+ 
+
+ 

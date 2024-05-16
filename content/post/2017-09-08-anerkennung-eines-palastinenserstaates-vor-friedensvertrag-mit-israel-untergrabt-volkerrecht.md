@@ -41,10 +41,10 @@ title: Anerkennung eines Palästinenserstaates vor Friedensvertrag mit Israel un
 url: /anerkennung-eines-palastinenserstaates-vor-friedensvertrag-mit-israel-untergrabt-volkerrecht/
 ---
 
-<span small="" style=""font-size:"><span medium="" style=""font-size:">**Anerkennung eines Palästinenserstaates vor Friedensvertrag mit Israel untergräbt Völkerrecht** </span>  
-Peter Wertheim</span>
+**Anerkennung eines Palästinenserstaates vor Friedensvertrag mit Israel untergräbt Völkerrecht**   
+Peter Wertheim
 
-<span small="" style=""font-size:"></span>
+
 
 Glaubt man der Palästinensischen Autonomiebehörde, dann haben bereits 136 (70.5 Prozent) der 193 UN-Mitglieder und zwei Nichtmitgliedsstaaten einen Palästinenserstaat offiziell anerkannt. (1) An dieser Stelle soll es um die völkerrechtlichen Vorkehrungen gehen, die die Schaffung eines neuen Staates und dessen Anerkennung durch die existierenden Staaten regeln und um die Frage, ob in dieser Hinsicht der Palästinenserstaat tatsächlich bereits gegründet und zur Anerkennung bereit ist.
 
@@ -185,8 +185,8 @@ Das Bemühen der Palästinenser, Stimmen zur Anerkennung eines Palästinensersta
 
 Fälschlicherweise ist der Vorschlag einen Palästinenserstaat solcherart ohne Friedensvertrag zwischen beiden Seiten anzuerkennen verglichen worden mit der Anerkennung des jüdischen Staates durch die Annahme von Resolution 181 durch die UN-Vollversammlung am 29. November 1947. Die Resolution empfahl die Teilung des Gebietes des ehemaligen Palästinamandats in einen jüdischen und einen arabischen Staat. Sie gab aber nicht vor, einen der beiden Staaten anzuerkennen, da beide zu dem Zeitpunkt nicht existierten. Die Resolution wurde auch nie umgesetzt, da die arabischen Staaten sie ablehnten und ihre Umsetzung durch die Kriegserklärung gegen die jüdische Bevölkerung auf dem Gebiet erklärten und schließlich gegen den neuen israelischen Staat.
 
-<span small="" style=""font-size:">  
-\* \* \*</span>
+  
+\* \* \*
 
 1 “Diplomatic Relations”, Permanent Observer of the State of Palestine to the United Nations: http://palestineun.org/about-palestine/diplomatic-relations/
 

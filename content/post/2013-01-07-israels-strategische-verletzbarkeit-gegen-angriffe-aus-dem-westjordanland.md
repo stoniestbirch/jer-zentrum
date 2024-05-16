@@ -12,4 +12,13 @@ title: Israels strategische Verletzbarkeit gegen Angriffe aus dem Westjordanland
 url: /israels-strategische-verletzbarkeit-gegen-angriffe-aus-dem-westjordanland/
 ---
 
-<div align=""center"">**<font size=""3""><div align=""center"">**<a></a>Israels strategische Verletzbarkeit gegen Angriffe aus dem Westjordanland**</div><div align=""center""> </div><div align=""center""> </div><div align=""center""> **[![""]("/UserFiles/Map1.jpg")]("http://jer-zentrum.org/UploadFiles/AttachedFiles/Israels%20Sicherheitsbed%C3%BCrfnisse.pdf")**</div></font>**</div>
+
+
+**<a></a>Israels strategische Verletzbarkeit gegen Angriffe aus dem Westjordanland**
+
+ 
+
+ 
+
+ **[![""]("/UserFiles/Map1.jpg")]("http://jer-zentrum.org/UploadFiles/AttachedFiles/Israels%20Sicherheitsbed%C3%BCrfnisse.pdf")**
+

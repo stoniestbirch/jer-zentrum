@@ -25,15 +25,15 @@ title: 'IS-Anschläge in Teheran: Schlag für Rouhani, Chance für die Revolutio
 url: /is-anschlage-in-teheran-schlag-fur-rouhani-chance-fur-die-revolutionsgarden/
 ---
 
-<span small="" style=""font-size:">  
-<span medium="" style=""font-size:">**IS-Anschläge in Teheran: Schlag für Rouhani, Chance für die Revolutionsgarden**</span></span>
+  
+**IS-Anschläge in Teheran: Schlag für Rouhani, Chance für die Revolutionsgarden**
 
-<span small="" style=""font-size:">  
+  
 Michael Segall  
-</span>
 
-<span small="" style=""font-size:">  
-Der Islamische Staat (IS) hat die Verantwortung für die gleichzeitig koordinierten Terrorangriffe vom 7. Juni 2017 auf das iranische Parlamentsgebäude Madschlis und das Grabmahl des iranischen Revolutionsführers Ayatollah Khomeini übernommen. Die Organisation veröffentlichte dazu eine Erklärung durch ihre Medienabteilung sowie ein kurzes Video, das von einem der Angreifer auf das Parlament aufgenommen wurde. Dies geschah, noch bevor der Angriff auf die Madschlis beendet war. Insgesamt wurden 13 Menschen ermordet und mehr als 40 verwundet. </span>
+
+  
+Der Islamische Staat (IS) hat die Verantwortung für die gleichzeitig koordinierten Terrorangriffe vom 7. Juni 2017 auf das iranische Parlamentsgebäude Madschlis und das Grabmahl des iranischen Revolutionsführers Ayatollah Khomeini übernommen. Die Organisation veröffentlichte dazu eine Erklärung durch ihre Medienabteilung sowie ein kurzes Video, das von einem der Angreifer auf das Parlament aufgenommen wurde. Dies geschah, noch bevor der Angriff auf die Madschlis beendet war. Insgesamt wurden 13 Menschen ermordet und mehr als 40 verwundet. 
 
 Die Nachrichtenagentur des IS – Amaq News Agency – verkündete den ersten großen Anschlag im Iran mit verschiedenen arabischen Botschaften:
 
@@ -41,10 +41,10 @@ Sicherheitskräfte an Amaq Agentur: Kämpfer des IS haben Schrein des Khomeini u
 
 Dies war der bislang größte Terroranschlag des IS im Herzen der iranischen Hauptstadt. Er zielte auf Zivilisten und prominente Symbole des Regimes. Organisationen, die mit dem IS verbündet sind, hatten in der Vergangenheit Anschläge auf die iranischen Grenztruppen und Revolutionsgarden (IRGC) verübt, v.a. in den stark von Sunniten bewohnten Provinzen Sistan und Baluchistan im Südosten des Iran, doch bislang noch keine auf Zivilisten. Im Laufe des vergangenen Jahres griffen arabische Separatisten auch in der westiranische Provinz Khuzestan an, wo Araber die Bevölkerungsmehrheit stellen und sich zahlreiche ölindustrielle Projekte finden.
 
-**<span small="" style=""font-size:">"Tod Amerika, Tod Israel, Tod Saudi Arabien"</span>**
+**"Tod Amerika, Tod Israel, Tod Saudi Arabien"**
 
-<span small="" style=""font-size:">  
-Die iranische Führung und hochrangige Vertreter der Revolutionsgarden verloren keine Sekunde, um Saudi Arabien der Urheberschaft zu bezichtigen. Behauptet wurde, dass die Saudis durch den Besuch von US-Präsident Donald Trump zu einer antiiranischen Allianz ermutigt worden wären. Der stellvertretende IRGC-Chef Hossein Salami drohte unverhohlen, das "Blut der Märtyrer, die im Terror starben durch einen Schlag gegen die Terroristen und die, die sie gesandt haben" zu rächen. (2) Der stellvertretende Chef des IRGC-Nachrichtendienstes beschuldigte die Vereinigten Staaten und Saudi Arabien, zu Söldner-Angriffen in Iran "eingeladen" zu haben. (3) In Anspielung an eine Erklärung des saudischen Kronprinzen und Verteidigungsministers Mohammed Bin Salman, der geäußert hatte, dass Saudi Arabien nicht warten werde, bis der Iran den Jemen übernimmt, sondern den Krieg in den Iran tragen würde, tweetete der iranische Außenminister Mohammad Zarif:</span>
+  
+Die iranische Führung und hochrangige Vertreter der Revolutionsgarden verloren keine Sekunde, um Saudi Arabien der Urheberschaft zu bezichtigen. Behauptet wurde, dass die Saudis durch den Besuch von US-Präsident Donald Trump zu einer antiiranischen Allianz ermutigt worden wären. Der stellvertretende IRGC-Chef Hossein Salami drohte unverhohlen, das "Blut der Märtyrer, die im Terror starben durch einen Schlag gegen die Terroristen und die, die sie gesandt haben" zu rächen. (2) Der stellvertretende Chef des IRGC-Nachrichtendienstes beschuldigte die Vereinigten Staaten und Saudi Arabien, zu Söldner-Angriffen in Iran "eingeladen" zu haben. (3) In Anspielung an eine Erklärung des saudischen Kronprinzen und Verteidigungsministers Mohammed Bin Salman, der geäußert hatte, dass Saudi Arabien nicht warten werde, bis der Iran den Jemen übernimmt, sondern den Krieg in den Iran tragen würde, tweetete der iranische Außenminister Mohammad Zarif:
 
 Despoten, die Terroristen unterstützen, drohen damit, den Kampf in unser Land zu tragen. Die Schergen greifen an, was ihre Herren am meisten fürchten: den Sitz der Demokratie. (4)
 
@@ -72,11 +72,10 @@ Seit Anfang des Jahres scheint der IS seine Politik des Terrors gegen den Iran v
 
 Sunnitische Organisationen die den Iran in der südöstlichen Grenzregion zu Pakistan und Afghanistan bekämpfen – Gruppen, die bereits vom IS inspiriert wurden – dürften sich von dem doppelten Angriff in Teheran ermutigt fühlen und ihrerseits ihre Bemühungen verstärken. Separatistische Bewegungen und andere ethnische Gruppen sind unter den Arabern des Iran sehr aktiv, v.a. in Khuzestan, wo Angriffe aus Öl- und Gaseinrichtungen eskalieren können. (10) Je mehr der IS also an Territorium verliert, desto mehr dürfte Teheran mit der Gruppe an seinen und innerhalb seiner Grenzen konfrontiert werden, was die iranischen Beziehungen zu den Vereinigten Staaten und den Golfmonarchien – allen voran Saudi Arabien – verschärfen dürfte.
 
-<span small="" style=""font-size:">  
-</span>**<span small="" style=""font-size:">\* \* \*  
-</span>**
+  
+---
 
-<span small="" style=""font-size:">  
+  
 1 https://twitter.com/IranTalks/status/872381258281693186  
 2 http://www.mashreghnews.ir/news/734528/%D8%B9%D9%85%D9%84%DB%8C%D8%A7%D8%AA-%D8%A7%D9%85%D8%B1%D9%88%D8%B2-%D8%B3%D9%BE%D8%A7%D9%87-%D8%A7%D9%81%D8%AA%D8%AE%D8%A7%D8%B1%D8%A2%D9%85%DB%8C%D8%B2-%D8%A8%D9%88%D8%AF-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%85-%D8%AE%D9%88%D9%86-%D8%B4%D9%87%D8%AF%D8%A7-%D8%B1%D8%A7-%D9%85%DB%8C-%DA%AF%DB%8C%D8%B1%DB%8C%D9%85  
 3 http://www.farsnews.com/newstext.php?nn=13960317001482  
@@ -86,4 +85,4 @@ Sunnitische Organisationen die den Iran in der südöstlichen Grenzregion zu Pak
 7 http://jihadology.net/2017/03/26/new-video-message-from-the-islamic-state-persia-between-yesterday-and-today-wilayat-diyala%e2%80%8e/ (warning – contains graphic images!)  
 8 http://farsi.khamenei.ir/speech-content?id=36775  
 9 http://tinyurl.com/yd82p4pz  
-10 http://jcpa.org/article/ethnic-opposition-to-irans-regime-is-on-the-rise/</span>
+10 http://jcpa.org/article/ethnic-opposition-to-irans-regime-is-on-the-rise/

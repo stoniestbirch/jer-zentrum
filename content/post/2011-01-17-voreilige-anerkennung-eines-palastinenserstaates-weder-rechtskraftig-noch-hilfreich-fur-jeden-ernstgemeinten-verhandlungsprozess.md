@@ -26,4 +26,137 @@ title: 'Voreilige Anerkennung eines Palästinenserstaates : Weder rechtskräftig
 url: /voreilige-anerkennung-eines-palastinenserstaates-weder-rechtskraftig-noch-hilfreich-fur-jeden-ernstgemeinten-verhandlungsprozess/
 ---
 
-<div align=""center"">**<font size=""3"">Voreilige Anerkennung eines Palästinenserstaates : Weder rechtskräftig noch hilfreich für jeden ernstgemeinten Verhandlungsprozess</font>**</div><div align=""center"">**<font size=""3""> </font>**</div><div align=""center""><font size=""3"">Alan Baker</font></div><div><font size=""3""> </font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Dass Brasilien, Argentinien und möglicherweise andere lateinamerikanische Staaten einen Palästinenserstaat in den Grenzen von 1967 anerkannt haben, bedeutet zunächst wenig mehr als eine politische Meinungsäußerung.</font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Diese Anerkennungen widersprechen den 1967 vor dem UN-Sicherheitsrat von Brasilien als auch Argentinien bezogenen Positionen, die sich für frei verhandelte Grenzen zwischen den Konfliktparteien sowie einen international unterstützten Friedensverhandlungsprozess aussprachen, wie er in Resolution 242 beschlossen wurde.</font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Das unermüdliche Bemühen der Palästinensischen Autonomiebehörde in der Staatengemeinschaft die Anerkennung einer unilateralen Staatlichkeit in den Grenzen von 1967 zu erlangen und auf diese Weise den akzeptierten Verhandlungsprozess zu umgehen, widerspricht ihren Verpflichtungen durch die Abkommen mit Israel, die von Mitgliedern der internationalen Gemeinschaft bezeugt und garantiert wurden.</font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>Das aggressive Vorgehen und die Verlautbarungen der Palästinensischen Autonomiebehörde entbehren Treu und Glauben und präjudizieren jeglichen vernünftigen Verhandlungsraum zwischen den Parteien, die sich um Errichtung friedlicher Beziehungen zwischen ihnen bemühen, und deuten auf einen mangelnden Willen hin, eine friedliche Einigung zu erreichen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die bekannt gewordenen formalen Anerkennung eines „freien und unabhängigen Palästinenserstaates in den Grenzen von 1967“ durch Brasilien, Argentinien, Uruguay und möglicherweise weitere lateinamerikanische Staaten wirft eine Reihe schwerwiegender Fragen auf – sowohl politisch als auch rechtlich, sei es für die bilateralen politischen Beziehungen zwischen Israel und diesen Staaten oder die zwischen Israel und der Palästinensischen Autonomiebehörde.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Anerkennung eines politischen Gebildes als Staat schafft noch nicht, in und durch sich selbst, einen Staat, da eine solche Anerkennung der bestandskräftigen und substanziellen Bedeutung entbehrt. Allerhöchsten ist sie ein Gradmesser für die politische Haltung der anerkennenden Staaten.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Die Errichtung eines Staates verlangt stattdessen eine Reihe international akzeptierter und gewohnheitsrechtlicher Kriterien, wie sie in der 1933 verabschiedeten Konvention von Montevideo zur Regelung der Rechte und Pflichten von Staaten im Hinblick auf ihre Fähigkeit zur Regierungsgewalt, ständigen Bevölkerung, ihr definiertes Staatsgebiet und die Fähigkeit, in Beziehung mit anderen Staaten zu treten, bestimmt wurden.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Tatsächlich legt die Konvention ausdrücklich fest, dass die „politische Existenz eines Staates unabhängig von seiner Anerkennung durch die anderen Staaten ist.“</font></div><div><font size=""3""> </font></div><div><font size=""3"">Im palästinensischen Kontext müssen diese Kriterien für Staatlichkeit jedoch auch im Rahmen der substanziellen, maßgeschneiderten Bedingungen gelesen werden, die aus den verschiedenen Resolutionen der Vereinten Nationen zur Lösung des Nahostkonflikts hervorgehen, sowie der palästinensischen Verpflichtungen gegenüber den über die Jahre mit Israel beschlossenen und nach wie vor gültigen Vereinbarungen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Dieser Umstand wurde möglicherweise dadurch verstärkt, dass 1988 nach der versuchten Erklärung palästinensischer Staatlichkeit über hundert Staaten ihre Anerkennung verliehen. Doch ganz sicher wurde dieser unilaterale Versuch der Palästinenser, die Lösung des israelisch-palästinensischen Konfliktes außerhalb des international akzeptierten und unterstützten Friedensverhandlungsprozesses zu diktieren, wie ihn die UN-Sicherheitsresolutionen 242 (1967) und 338 (1993) festgelegen, zu keiner Zeit als ernst zu nehmende Möglichkeit einer Klärung verstanden.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Folglich kommt keinem Akt der Anerkennung, sei es durch Brasilien, Argentinien, Uruguay oder irgendjemandem sonst, mehr Wert zu außer dem einer politischen Meinungsbekundung. Im Gegenteil unterlaufen derartige Anerkennungserklärungen jene Resolutionen, die von diesen Staaten mit unterzeichnet wurden, und die Abkommen, die sie über Jahre unterstützt haben.</font></div><div><font size=""3""> </font></div><div><font size=""3"">So widerspricht Brasilien sich in seiner Anerkennungserklärung eines Palästinenserstaates „in den Grenzen von 1967“ interessanterweise selbst, hatte Brasilien doch in seiner Erklärung der Akzeptanz und Unterstützung der Resolution 242 vom November 1967 durch seine Vertreter erklärt:</font></div><div><font size=""3""> </font></div><div><font size=""3"">„Diese Anerkennung bedeutet nicht, dass Grenzlinien nicht als Resultat eines frei geschlossenen Abkommens zwischen den daran beteiligten Parteien beschlossen werden können. Wir möchten wiederholt daran erinnern, dass ein gerechter und dauerhafter Frieden im Nahen Osten notwendigerweise auf sicheren Grenzen beruhen muss, die von den benachbarten Staaten frei beschlossen und verhandelt wurden.“ (S/PV.1382(OR), 22. November 1967)</font></div><div><font size=""3""> </font></div><div><font size=""3"">Und auch der Resolutionsentwurf, den achtzehn lateinamerikanische Staaten (einschließlich Brasiliens und Argentiniens) am 30. Juni 1967 in der Krisensitzung der Vereinten Nationen einbrachten, rief alle Beteiligten auf:</font></div><div><font size=""3""> </font></div><div><font size=""3"">„den Kriegszustand zu beenden und die Bedingungen für einen Koexistenz auf Grundlage guter Nachbarschaft anzustreben und sich in allen Fällen auf die von der Charta der Vereinten Nationen vorgelegten Verfahren für friedliche Lösungen zu beziehen.“ (A/L. 523/Rev.1 para 1(b)). </font></div><div><font size=""3""> </font></div><div><font size=""3"">D.h., die entscheidenden und übergeordneten Prinzipien, die Brasilien, Argentinien und andere Staaten 1967 befürworteten – Anerkennung in freimütiger Einigung erzielter Grenzen, gute Nachbarschaft und friedliche Schlichtung nach der UN-Charta – erscheinen in den jüngsten Entscheidungen der brasilianischen und argentinischen Regierungen übersehen worden zu sein, als sie sich auf Geheiß der palästinensischen Führung für das unilaterale palästinensische Diktat von Grenzen ohne Abkommen, Verletzung jeglicher Vorstellung von guter Nachbarschaft und die Untergrabung von der UN sanktionierter, friedlicher Schlichtungsverfahren einsetzten.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Dabei untergräbt auch die Palästinenserführung ebenso wie Brasilien, Argentinien und Uruguay ihre eigenen Prinzipien, wenn sie aktive Lobbyarbeit betreibt für eine globale Anerkennung als Teil ihres erklärten Zieles, die Bestätigung eines unilateral ausgerufenen Palästinenserstaates in den Grenzen von 1967 durch die Vereinten Nationen zu erreichen. Denn auf diese Weise wird der ganze Friedensverhandlungsprozess sabotiert und werden Treu und Glauben der internationalen Gemeinschaft missbraucht.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Juristisch gesprochen verletzen die Aktivitäten von Palästinenserführer Mahmoud Abbas und seines Stabsmitarbeiters Sa’eb Erekat, das israelisch-palästinensische Interimsabkommen von 1995, Artikel IX, § 5(a), in dem es heißt:</font></div><div><font size=""3""> </font></div><div><font size=""3"">„der \[Palästinenser-\]Rat verfügt über keinerlei Macht und Verantwortung im Bereich auswärtiger Beziehungen, wozu die Einrichtung von Botschaften, Konsulaten oder andere Formen diplomatischer Vertretungen im Ausland gehört sowie die Genehmigung der Einrichtung solcher im Westjordanland oder dem Gazastreifen, die Ernennung oder Zulassung eines diplomatischen und konsularischen Stabes sowie die Ausübung diplomatischer Funktionen.“</font></div><div><font size=""3""> </font></div><div><font size=""3"">Nicht weniger wichtig ist die Verpflichtung der Palästinenserführung in Artikel XXXI, § 7, „keine Schritt zu unternehmen oder einzuleiten, der den Status der Westbank und des Gazastreifens ändert, solange der Abschluss der Verhandlungen für einen dauerhaften Status in der Schwebe ist.“</font></div><div><font size=""3""> </font></div><div><font size=""3"">Jedwede Aktivität der Palästinenserführung, einschließlich des Lobbyismus bei anderen Regierungen zur Erlangung individueller Anerkennung und Einleitung von Resolutionen in Organen der Vereinten Nationen zur unilateralen Errichtung eines Staates außerhalb des Verhandlungsprozesses, stellt somit eine schwerwiegende Verletzung der palästinensischen Verpflichtungen gegenüber Israel dar. Es kommt einer Umgehung des international akzeptierten Verhandlungsprozess gleich und untergräbt somit genau jene Resolutionen und Vereinbarungen, die als Grundlage des Friedensverhandlungsprozesses dienen.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Da die palästinensischen Verpflichtungen gegenüber Israel von wesentlichen Mitgliedern der internationalen Gemeinschaft wie den Vereinigten Staaten, den Vereinten Nationen, der EU, Russland, Ägypten und Jordanien bezeugt und garantiert sowie von den meisten anderen Staaten, einschließlich Brasiliens und Argentiniens, bekräftigt wurden, sollte der palästinensische Lobbyismus von jenen Parteien deutlich verurteilt und nicht ermutigt werden.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Das Problem gewinnt an Komplexität vor dem Hintergrund des anhaltenden Bemühens der Palästinenserführung jedweden Fortschritt im Verhandlungsprozess mittels der irreführenden Forderung nach einem vollständigen israelischen Baustopp zu blockieren – einer Forderung, die im Rahmen der Vereinbarungen zwischen Israel und den Palästinensern über keinerlei Grundlage verfügt.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Zusätzlich dazu scheint es, dass die Palästinenserführung eigenmächtig aggressive Schritte unternimmt, um den Verhandlungsraum sowie Treu und Glauben zwischen beiden Seiten zu untergraben und zu präjudizieren, so z.B. durch:</font></div><div><font size=""3""> </font></div><div><font size=""3""><span>·<span> </span></span>feindselige Stellungnahmen ihrer Verhandlungsführer vor palästinensischem Publikum sowie der internationalen Gemeinschaft,</font></div><div><font size=""3""><span>·<span> </span></span>offene Ermutigung zu und Einleitung von rechtlichen Schritten vor internationalen wie ausländischen Gerichten gegen führende israelische Politiker und andere Aktivitäten, die auf eine Untergrabung des israelischen Ansehens abzielen,</font></div><div><font size=""3""><span>·<span> </span></span>Versuche, die internationale Gemeinschaft zu missbrauchen, um das nationale und historische Erbe des jüdischen Volkes in Frage zu stellen,</font></div><div><font size=""3""><span>·<span> </span></span>tägliche offizielle Aufstachelung an Schulen, Universitäten und in den palästinensischen Medien.</font></div><div><font size=""3""> </font></div><div><font size=""3""> </font></div><div><font size=""3"">Es sollte deutlich sein, dass diese Aktivitäten, die offen, offiziell sowie auch mit Stolz von dem Palästinenserführer Mahmoud Abbas und dem Chef des Verhandlungsteam der Behörde, Sa’eb Erekat finanziert wie unterstützt werden, das Verhandlungsklima massiv belasten.</font></div><div><font size=""3""> </font></div><div><font size=""3"">Es bleibt die Frage, wie die Palästinenserführung beabsichtigt, das Vertrauen der israelischen Regierung und Öffentlichkeit zu erlangen, wenn sie gleichzeitig eine Politik der Diffamierung Israels und seiner Führung verfolgt, Israel zu delegitimieren sucht und den beschlossenen Verhandlungsprozess, der einen Frieden zwischen beiden Völkern beabsichtigt, untergräbt?</font></div><div><font size=""3""> </font></div><div><font size=""3""> </font></div><div align=""center""><font size=""3"">\*<span> \* \*</span></font></div><div><font size=""3""> </font></div><div><font size=""3"">Botschafter Alan Baker ist der Direktor des Institute for Contemporary Affairs am Jerusalem Center for Public Affairs. Er war zuvor rechtlicher Berater des israelischen Außenministers und Botschafter Israels in Kanada. Er ist Teilhaber der Rechtsfirma „Moshe, Bloomfield, Kobu, Baker &amp; Co.“ und war an den Verhandlungsentwürfen zum Osloer Abkommen beteiligt.</font></div>
+
+**Voreilige Anerkennung eines Palästinenserstaates : Weder rechtskräftig noch hilfreich für jeden ernstgemeinten Verhandlungsprozess**
+
+
+
+Alan Baker
+
+ 
+
+ 
+
+· Dass Brasilien, Argentinien und möglicherweise andere lateinamerikanische Staaten einen Palästinenserstaat in den Grenzen von 1967 anerkannt haben, bedeutet zunächst wenig mehr als eine politische Meinungsäußerung.
+
+ 
+
+· Diese Anerkennungen widersprechen den 1967 vor dem UN-Sicherheitsrat von Brasilien als auch Argentinien bezogenen Positionen, die sich für frei verhandelte Grenzen zwischen den Konfliktparteien sowie einen international unterstützten Friedensverhandlungsprozess aussprachen, wie er in Resolution 242 beschlossen wurde.
+
+ 
+
+· Das unermüdliche Bemühen der Palästinensischen Autonomiebehörde in der Staatengemeinschaft die Anerkennung einer unilateralen Staatlichkeit in den Grenzen von 1967 zu erlangen und auf diese Weise den akzeptierten Verhandlungsprozess zu umgehen, widerspricht ihren Verpflichtungen durch die Abkommen mit Israel, die von Mitgliedern der internationalen Gemeinschaft bezeugt und garantiert wurden.
+
+ 
+
+· Das aggressive Vorgehen und die Verlautbarungen der Palästinensischen Autonomiebehörde entbehren Treu und Glauben und präjudizieren jeglichen vernünftigen Verhandlungsraum zwischen den Parteien, die sich um Errichtung friedlicher Beziehungen zwischen ihnen bemühen, und deuten auf einen mangelnden Willen hin, eine friedliche Einigung zu erreichen.
+
+ 
+
+Die bekannt gewordenen formalen Anerkennung eines „freien und unabhängigen Palästinenserstaates in den Grenzen von 1967“ durch Brasilien, Argentinien, Uruguay und möglicherweise weitere lateinamerikanische Staaten wirft eine Reihe schwerwiegender Fragen auf – sowohl politisch als auch rechtlich, sei es für die bilateralen politischen Beziehungen zwischen Israel und diesen Staaten oder die zwischen Israel und der Palästinensischen Autonomiebehörde.
+
+ 
+
+Die Anerkennung eines politischen Gebildes als Staat schafft noch nicht, in und durch sich selbst, einen Staat, da eine solche Anerkennung der bestandskräftigen und substanziellen Bedeutung entbehrt. Allerhöchsten ist sie ein Gradmesser für die politische Haltung der anerkennenden Staaten.
+
+ 
+
+Die Errichtung eines Staates verlangt stattdessen eine Reihe international akzeptierter und gewohnheitsrechtlicher Kriterien, wie sie in der 1933 verabschiedeten Konvention von Montevideo zur Regelung der Rechte und Pflichten von Staaten im Hinblick auf ihre Fähigkeit zur Regierungsgewalt, ständigen Bevölkerung, ihr definiertes Staatsgebiet und die Fähigkeit, in Beziehung mit anderen Staaten zu treten, bestimmt wurden.
+
+ 
+
+Tatsächlich legt die Konvention ausdrücklich fest, dass die „politische Existenz eines Staates unabhängig von seiner Anerkennung durch die anderen Staaten ist.“
+
+ 
+
+Im palästinensischen Kontext müssen diese Kriterien für Staatlichkeit jedoch auch im Rahmen der substanziellen, maßgeschneiderten Bedingungen gelesen werden, die aus den verschiedenen Resolutionen der Vereinten Nationen zur Lösung des Nahostkonflikts hervorgehen, sowie der palästinensischen Verpflichtungen gegenüber den über die Jahre mit Israel beschlossenen und nach wie vor gültigen Vereinbarungen.
+
+ 
+
+Dieser Umstand wurde möglicherweise dadurch verstärkt, dass 1988 nach der versuchten Erklärung palästinensischer Staatlichkeit über hundert Staaten ihre Anerkennung verliehen. Doch ganz sicher wurde dieser unilaterale Versuch der Palästinenser, die Lösung des israelisch-palästinensischen Konfliktes außerhalb des international akzeptierten und unterstützten Friedensverhandlungsprozesses zu diktieren, wie ihn die UN-Sicherheitsresolutionen 242 (1967) und 338 (1993) festgelegen, zu keiner Zeit als ernst zu nehmende Möglichkeit einer Klärung verstanden.
+
+ 
+
+Folglich kommt keinem Akt der Anerkennung, sei es durch Brasilien, Argentinien, Uruguay oder irgendjemandem sonst, mehr Wert zu außer dem einer politischen Meinungsbekundung. Im Gegenteil unterlaufen derartige Anerkennungserklärungen jene Resolutionen, die von diesen Staaten mit unterzeichnet wurden, und die Abkommen, die sie über Jahre unterstützt haben.
+
+ 
+
+So widerspricht Brasilien sich in seiner Anerkennungserklärung eines Palästinenserstaates „in den Grenzen von 1967“ interessanterweise selbst, hatte Brasilien doch in seiner Erklärung der Akzeptanz und Unterstützung der Resolution 242 vom November 1967 durch seine Vertreter erklärt:
+
+ 
+
+„Diese Anerkennung bedeutet nicht, dass Grenzlinien nicht als Resultat eines frei geschlossenen Abkommens zwischen den daran beteiligten Parteien beschlossen werden können. Wir möchten wiederholt daran erinnern, dass ein gerechter und dauerhafter Frieden im Nahen Osten notwendigerweise auf sicheren Grenzen beruhen muss, die von den benachbarten Staaten frei beschlossen und verhandelt wurden.“ (S/PV.1382(OR), 22. November 1967)
+
+ 
+
+Und auch der Resolutionsentwurf, den achtzehn lateinamerikanische Staaten (einschließlich Brasiliens und Argentiniens) am 30. Juni 1967 in der Krisensitzung der Vereinten Nationen einbrachten, rief alle Beteiligten auf:
+
+ 
+
+„den Kriegszustand zu beenden und die Bedingungen für einen Koexistenz auf Grundlage guter Nachbarschaft anzustreben und sich in allen Fällen auf die von der Charta der Vereinten Nationen vorgelegten Verfahren für friedliche Lösungen zu beziehen.“ (A/L. 523/Rev.1 para 1(b)). 
+
+ 
+
+D.h., die entscheidenden und übergeordneten Prinzipien, die Brasilien, Argentinien und andere Staaten 1967 befürworteten – Anerkennung in freimütiger Einigung erzielter Grenzen, gute Nachbarschaft und friedliche Schlichtung nach der UN-Charta – erscheinen in den jüngsten Entscheidungen der brasilianischen und argentinischen Regierungen übersehen worden zu sein, als sie sich auf Geheiß der palästinensischen Führung für das unilaterale palästinensische Diktat von Grenzen ohne Abkommen, Verletzung jeglicher Vorstellung von guter Nachbarschaft und die Untergrabung von der UN sanktionierter, friedlicher Schlichtungsverfahren einsetzten.
+
+ 
+
+Dabei untergräbt auch die Palästinenserführung ebenso wie Brasilien, Argentinien und Uruguay ihre eigenen Prinzipien, wenn sie aktive Lobbyarbeit betreibt für eine globale Anerkennung als Teil ihres erklärten Zieles, die Bestätigung eines unilateral ausgerufenen Palästinenserstaates in den Grenzen von 1967 durch die Vereinten Nationen zu erreichen. Denn auf diese Weise wird der ganze Friedensverhandlungsprozess sabotiert und werden Treu und Glauben der internationalen Gemeinschaft missbraucht.
+
+ 
+
+Juristisch gesprochen verletzen die Aktivitäten von Palästinenserführer Mahmoud Abbas und seines Stabsmitarbeiters Sa’eb Erekat, das israelisch-palästinensische Interimsabkommen von 1995, Artikel IX, § 5(a), in dem es heißt:
+
+ 
+
+„der \[Palästinenser-\]Rat verfügt über keinerlei Macht und Verantwortung im Bereich auswärtiger Beziehungen, wozu die Einrichtung von Botschaften, Konsulaten oder andere Formen diplomatischer Vertretungen im Ausland gehört sowie die Genehmigung der Einrichtung solcher im Westjordanland oder dem Gazastreifen, die Ernennung oder Zulassung eines diplomatischen und konsularischen Stabes sowie die Ausübung diplomatischer Funktionen.“
+
+ 
+
+Nicht weniger wichtig ist die Verpflichtung der Palästinenserführung in Artikel XXXI, § 7, „keine Schritt zu unternehmen oder einzuleiten, der den Status der Westbank und des Gazastreifens ändert, solange der Abschluss der Verhandlungen für einen dauerhaften Status in der Schwebe ist.“
+
+ 
+
+Jedwede Aktivität der Palästinenserführung, einschließlich des Lobbyismus bei anderen Regierungen zur Erlangung individueller Anerkennung und Einleitung von Resolutionen in Organen der Vereinten Nationen zur unilateralen Errichtung eines Staates außerhalb des Verhandlungsprozesses, stellt somit eine schwerwiegende Verletzung der palästinensischen Verpflichtungen gegenüber Israel dar. Es kommt einer Umgehung des international akzeptierten Verhandlungsprozess gleich und untergräbt somit genau jene Resolutionen und Vereinbarungen, die als Grundlage des Friedensverhandlungsprozesses dienen.
+
+ 
+
+Da die palästinensischen Verpflichtungen gegenüber Israel von wesentlichen Mitgliedern der internationalen Gemeinschaft wie den Vereinigten Staaten, den Vereinten Nationen, der EU, Russland, Ägypten und Jordanien bezeugt und garantiert sowie von den meisten anderen Staaten, einschließlich Brasiliens und Argentiniens, bekräftigt wurden, sollte der palästinensische Lobbyismus von jenen Parteien deutlich verurteilt und nicht ermutigt werden.
+
+ 
+
+Das Problem gewinnt an Komplexität vor dem Hintergrund des anhaltenden Bemühens der Palästinenserführung jedweden Fortschritt im Verhandlungsprozess mittels der irreführenden Forderung nach einem vollständigen israelischen Baustopp zu blockieren – einer Forderung, die im Rahmen der Vereinbarungen zwischen Israel und den Palästinensern über keinerlei Grundlage verfügt.
+
+ 
+
+Zusätzlich dazu scheint es, dass die Palästinenserführung eigenmächtig aggressive Schritte unternimmt, um den Verhandlungsraum sowie Treu und Glauben zwischen beiden Seiten zu untergraben und zu präjudizieren, so z.B. durch:
+
+ 
+
+· feindselige Stellungnahmen ihrer Verhandlungsführer vor palästinensischem Publikum sowie der internationalen Gemeinschaft,
+
+· offene Ermutigung zu und Einleitung von rechtlichen Schritten vor internationalen wie ausländischen Gerichten gegen führende israelische Politiker und andere Aktivitäten, die auf eine Untergrabung des israelischen Ansehens abzielen,
+
+· Versuche, die internationale Gemeinschaft zu missbrauchen, um das nationale und historische Erbe des jüdischen Volkes in Frage zu stellen,
+
+· tägliche offizielle Aufstachelung an Schulen, Universitäten und in den palästinensischen Medien.
+
+ 
+
+ 
+
+Es sollte deutlich sein, dass diese Aktivitäten, die offen, offiziell sowie auch mit Stolz von dem Palästinenserführer Mahmoud Abbas und dem Chef des Verhandlungsteam der Behörde, Sa’eb Erekat finanziert wie unterstützt werden, das Verhandlungsklima massiv belasten.
+
+ 
+
+Es bleibt die Frage, wie die Palästinenserführung beabsichtigt, das Vertrauen der israelischen Regierung und Öffentlichkeit zu erlangen, wenn sie gleichzeitig eine Politik der Diffamierung Israels und seiner Führung verfolgt, Israel zu delegitimieren sucht und den beschlossenen Verhandlungsprozess, der einen Frieden zwischen beiden Völkern beabsichtigt, untergräbt?
+
+ 
+
+ 
+
+\* \* \*
+
+ 
+
+Botschafter Alan Baker ist der Direktor des Institute for Contemporary Affairs am Jerusalem Center for Public Affairs. Er war zuvor rechtlicher Berater des israelischen Außenministers und Botschafter Israels in Kanada. Er ist Teilhaber der Rechtsfirma „Moshe, Bloomfield, Kobu, Baker &amp; Co.“ und war an den Verhandlungsentwürfen zum Osloer Abkommen beteiligt.

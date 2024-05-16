@@ -14,4 +14,11 @@ title: Israels geografische und topografische Verwundbarkeit gegen Angriffe aus 
 url: /israels-geografische-und-topografische-verwundbarkeit-gegen-angriffe-aus-einem-zukunftigen-palastinensischen-staat/
 ---
 
-<div align=""center"">**<font size=""3"">Israels geografische und topografische Verwundbarkeit gegen Angriffe aus einem zukünftigen palästinensischen Staat</font>**</div><div align=""center"">**<font size=""3""> </font>**</div><div align=""center"">**<font size=""3""> </font>**</div><div align=""center"">**<font size=""3""> [![""]("/UserFiles/Map2.jpg")]("http://jer-zentrum.org/UploadFiles/AttachedFiles/Israels%20Sicherheitsbed%C3%BCrfnisse.pdf")</font>**</div>
+
+**Israels geografische und topografische Verwundbarkeit gegen Angriffe aus einem zukünftigen palästinensischen Staat**
+
+
+
+
+
+** [![""]("/UserFiles/Map2.jpg")]("http://jer-zentrum.org/UploadFiles/AttachedFiles/Israels%20Sicherheitsbed%C3%BCrfnisse.pdf")**

@@ -15,10 +15,14 @@ title: Die UN-Untersuchungskommission für Gaza und der Missbrauch des Völkerre
 url: /die-un-untersuchungskommission-fur-gaza-und-der-missbrauch-des-volkerrechts/
 ---
 
-<div align=""center"">**<font size=""3"">Die UN-Untersuchungskommission für Gaza und der Missbrauch des Völkerrechts</font>**<font size=""3"">Alan Baker</font>
 
-</div><font size=""3"">  
-Der Rücktritt des kanadischen Professors William Schabas vom Vorsitz der UN-Untersuchungskommission für Gaza hat eine Reihe von interessanten Fragestellungen aufgeworfen, was UN-Prozeduren dieser Art angeht. Schabas’ unverhohlen antiisraelischen Vorurteile waren aufgrund seiner Verlautbarungen im Laufe der Jahre kein Geheimnis und wurden nun durch die Enthüllung bestätigt, dass er für seine beratende Arbeit bei der PLO im klaren Interessenskonflikt zu seiner Aufgabe als Vorsitzender stand – etwas, dass er vor der UN und ihrem Menschenrechtsrat verheimlicht hatte.</font>
+**Die UN-Untersuchungskommission für Gaza und der Missbrauch des Völkerrechts**
+
+Alan Baker
+
+
+  
+Der Rücktritt des kanadischen Professors William Schabas vom Vorsitz der UN-Untersuchungskommission für Gaza hat eine Reihe von interessanten Fragestellungen aufgeworfen, was UN-Prozeduren dieser Art angeht. Schabas’ unverhohlen antiisraelischen Vorurteile waren aufgrund seiner Verlautbarungen im Laufe der Jahre kein Geheimnis und wurden nun durch die Enthüllung bestätigt, dass er für seine beratende Arbeit bei der PLO im klaren Interessenskonflikt zu seiner Aufgabe als Vorsitzender stand – etwas, dass er vor der UN und ihrem Menschenrechtsrat verheimlicht hatte.
 
 Das Prozedere der Tatsachenfeststellung im Rahmen der UN wurde im Laufe der Jahr in einer Reihe von Erklärungen und Studien bedeutender internationaler Organisationen und juristischer Autoritäten geformt und hätte die UN augenscheinlich darin anleiten sollten, wie man das Mandat für eine solche Untersuchungskommission erstellt und ihren Vorsitzenden bestimmt.
 
@@ -32,7 +36,7 @@ Zu den Regeln gehörte u.a., dass die Mitglieder der Kommission geloben mussten,
 
 In Belgrad wurden auf der 59. Tagung der International Law Association vom 18.-23. August 1980 die "Minimalen Verfahrensregeln für Tatsachenfeststellungmissionen zur Menschenrechtsfrage" verabschiedet (2):
 
-<font size=""2"">"Artikel 1 (Richtlinien): Das Organ einer Organisation, die die Tatsachenfeststellungsmission einrichtet, sollte objektive Richtlinien festlegen, die die zu untersuchenden Fragen nicht vorab beurteilen. \[…\]</font>
+"Artikel 1 (Richtlinien): Das Organ einer Organisation, die die Tatsachenfeststellungsmission einrichtet, sollte objektive Richtlinien festlegen, die die zu untersuchenden Fragen nicht vorab beurteilen. \[…\]
 
 Artikel 2: Die die Mission autorisierende Resolution darf die Arbeit und die Ergebnisse der Mission nicht vorwegnehmen.
 
@@ -44,7 +48,7 @@ Artikel 7: Der Vorsitzende und Berichterstatter der Tatsachenfeststellungsmissio
 
 Die am 9. Dezember 1991 von den Vereinten Nationen verabschiedete "Erklärung über die Tatsachenermittlung durch die Vereinten Nationen auf dem Gebiet der Wahrung des Weltfriedens und der internationalen Sicherheit" (UN-Vollversammlungsresolution 46/59) hielt dann fest (3):
 
-<font size=""2"">"3. Die Tatsachenermittlung soll umfassend, objektiv und unparteilich sein und rechtzeitig erfolgen.</font>
+"3. Die Tatsachenermittlung soll umfassend, objektiv und unparteilich sein und rechtzeitig erfolgen.
 
 \[…\]
 
@@ -53,7 +57,7 @@ Ihre Mitglieder sind verpflichtet, von einer Regierung oder von einer anderen Au
 
 Die „Richtlinien für Tatsachenfeststellungsmissionen und -berichte zur Menschenrechtslage“ (The Lund-London-Guidelines), die am 1. Juni 2009 nach mehrjähriger Zusammenarbeit des Menschenrechtsinstituts der International Bar Association und des Raoul-Wallenberg-Instituts vorgelegt wurden, "um einen Beitrag zur Verfahrensoptimierung bei Tatsachenfeststellungsmissionen und -berichten zu leisten", halten fest:
 
-<font size=""2"">"5. Die Richtlinien dürfen keine vorab gefassten Schlussfolgerungen zum Untersuchungsgegenstand widerspiegeln.</font>
+"5. Die Richtlinien dürfen keine vorab gefassten Schlussfolgerungen zum Untersuchungsgegenstand widerspiegeln.
 
 \[…\]
 
@@ -79,9 +83,11 @@ Angesichts dieser Dokumente, die die verlangten Normen und Prozeduren für Unter
 
 Angesichts dieser offenkundigen und wissentlichen Verletzung des Unparteilichkeitstandards der UN durch Prof. Schabas und die UN selbst, muss alle Arbeit dieser Kommission und unter seinem Vorsitz und seiner Leitung als mangelhaft und verdächtig gelten.
 
-<div align=""center""><font size=""3"">**\* \* \***</font></div><font size=""3""></font>
 
-<font size=""2"">1.http://www1.umn.edu/humanrts/monitoring/chapter18.html</font>
+**\* \* \***
+
+
+1.http://www1.umn.edu/humanrts/monitoring/chapter18.html
 
 2\. 75 Am. J. Int’l L. 163 (1981) http://www3.nd.edu/~sobrien2/the\_belgrade\_minimum\_rules\_o.pdf
 

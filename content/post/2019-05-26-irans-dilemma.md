@@ -13,12 +13,12 @@ title: Irans Dilemma
 url: /irans-dilemma/
 ---
 
-<span medium="" style=""font-size:">**<span large="" style=""font-size:">Irans Dilemma  
-</span>**  
-Yossi Kuperwasser</span>
+**Irans Dilemma  
+**  
+Yossi Kuperwasser
 
-<span medium="" style=""font-size:">  
-Der Kampf um die Zukunft des Iran hat sich in den vergangenen Tagen zugespitzt. Die Vereinigten Staaten haben ihre Sanktionen gegen das Islamische Regime verschärft, in dem sie die verbliebenen Ausnahmeregelungen für diverse Länder, die iranisches Öl kaufen, aufhoben. Sie haben die Iranischen Revolutionsgarden zur Terrororganisation erklärt, die Einfuhr von im Iran geförderten Schwermetallen verboten und dem Iran untersagt, überschüssiges schwach angereichertes Uran und Schweres Wasser zu exportieren, was ihm im Rahmen des Atomabkommens gestattet worden war. Ursprünglich war dem Iran diese Lizenz ausgestellt worden, um sicher zu stellen, dass der Iran diese Materialien produzieren kann, ohne sie in größeren Vorräten zu horten. Die USA haben zudem begonnen, Kräfte in Richtung Persischen Golf und Iran zu verlegen.</span>
+  
+Der Kampf um die Zukunft des Iran hat sich in den vergangenen Tagen zugespitzt. Die Vereinigten Staaten haben ihre Sanktionen gegen das Islamische Regime verschärft, in dem sie die verbliebenen Ausnahmeregelungen für diverse Länder, die iranisches Öl kaufen, aufhoben. Sie haben die Iranischen Revolutionsgarden zur Terrororganisation erklärt, die Einfuhr von im Iran geförderten Schwermetallen verboten und dem Iran untersagt, überschüssiges schwach angereichertes Uran und Schweres Wasser zu exportieren, was ihm im Rahmen des Atomabkommens gestattet worden war. Ursprünglich war dem Iran diese Lizenz ausgestellt worden, um sicher zu stellen, dass der Iran diese Materialien produzieren kann, ohne sie in größeren Vorräten zu horten. Die USA haben zudem begonnen, Kräfte in Richtung Persischen Golf und Iran zu verlegen.
 
 Teheran hat unterdessen verkündet, dass sich der Iran bei einem Scheitern der europäischen Bemühungen, die Konsequenzen der amerikanischen Sanktionen abzumildern, schrittweise aus dem Atomabkommen zurückziehen werde. Außerdem droht seine Führung mit Angriffen auf die Amerikaner und ihre Alliierten. Als Antwort darauf haben die Europäer betont, dass sie trotz ihrer Verpflichtung zur Einhaltung des Abkommens bei einem iranischen Ausstieg zu den Sanktionen zurückkehren werden. Russland und China beziehen, wie zu erwarten war, Stellung für den Iran.
 

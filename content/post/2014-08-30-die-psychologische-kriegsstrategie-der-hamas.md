@@ -13,10 +13,14 @@ title: Die psychologische Kriegsstrategie der Hamas
 url: /die-psychologische-kriegsstrategie-der-hamas/
 ---
 
-<div align=""center"">**<font size=""3"">Die psychologische Kriegsstrategie der Hamas</font>**<font size=""3"">Irwin J. Mansdorf</font>
 
-</div><font size=""3"">  
-Jedes Verhalten erweist sich im Wesentlichen als funktionell konsistent, d.h. dass es sich zu einem guten Teil vom projezierten Ziel bestimmen lässt. (1) Das Verhalten der Hamas zeigt sich in der Konfrontation mit Israel entsprechend stimmig, auch wenn es für all jene irrational erscheinen muss, die ihre islamistische Ideologie nicht teilen.</font>
+**Die psychologische Kriegsstrategie der Hamas**
+
+Irwin J. Mansdorf
+
+
+  
+Jedes Verhalten erweist sich im Wesentlichen als funktionell konsistent, d.h. dass es sich zu einem guten Teil vom projezierten Ziel bestimmen lässt. (1) Das Verhalten der Hamas zeigt sich in der Konfrontation mit Israel entsprechend stimmig, auch wenn es für all jene irrational erscheinen muss, die ihre islamistische Ideologie nicht teilen.
 
 Obwohl sich die Hamas als islamistische Widerstandsbewegung versteht und die Zerstörung Israels offen anstrebt (2), ist ihr bewusst, dass sie nicht über die militärische Kapazität verfügt, dieses Ziel zu erreichen, das sich in ihrer Charta findet und immer wieder von ihren Führern, Predigern und Anhängern beschworen wird. (3) Trotz dieser Einsicht greift die Hamas bewusst zu militärischer Gewalt, wenn sie davon überzeugt ist, dass der politische Vorteil größer ist als das Risiko, als Bewegung und Souverän von Gaza zu scheitern.(4) Solange die Hamas daran glaubt, sie könne ihr Ziel anstreben und überleben, wird sie Israel angreifen und die palästinensische Öffentlichkeit dafür missbrauchen. Teil ihrer psychologischen Strategie ist es daher – wie viele andere Islamistenbewegungen – Zivilisten als Opfer der „israelischen Agression“ hervorzuheben (5) und die Zahl getöteter Hamas-Kämpfer zu verschweigen. (6) Auf diese Weise werden alle palästinensischen Kriegsopfer zu „unschuldigen Zivilisten“. Bilder der aus Wohngebieten abgefeuerten Raketen werden zensiert.(7)  
    
@@ -46,8 +50,10 @@ Die „letzten“ Raketen vor einem Waffenstillstandsabkommen (18) verraten das 
 
 Doch auch jener Teil der internationalen Gemeinschaft trägt Verantwortung, der durch seine „Helferrolle“ dazu beiträgt, dass die Hamas auf diese gefährliche Strategie setzt und nun mehr unter humanitären Vorwänden wieder aufrüstet. Denn auch in Zukunft wird sie so Israels Bevölkerung unter Beschuss nehmen und die nächste Runde an Kämpfen mit den unvermeidlichen zivilen Opfern und all der Zerstörung in Kauf nehmen.
 
-<div align=""center""><font size=""3"">**\* \* \***</font></div><font size=""3"">  
-<font size=""2"">1 http://www.sciencedirect.com/science/article/pii/S1077722908000837</font></font>
+
+**\* \* \***
+  
+1 http://www.sciencedirect.com/science/article/pii/S1077722908000837
 
 2 Siehe Präambel der Hamas-Charta.
 
@@ -84,4 +90,3 @@ Doch auch jener Teil der internationalen Gemeinschaft trägt Verantwortung, der 
 18 http://www.jpost.com/Operation-Protective-Edge/IDF-completes-withdrawal-from-Gaza-keeps-forces-massed-on-border-370092
 
 19 http://www.ynetnews.com/articles/0,7340,L-4555418,00.html  
-<font size=""2""></font>

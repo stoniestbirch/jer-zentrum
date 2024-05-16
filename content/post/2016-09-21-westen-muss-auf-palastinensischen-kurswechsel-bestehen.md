@@ -21,14 +21,14 @@ title: Westen muss auf palästinensischen Kurswechsel bestehen
 url: /westen-muss-auf-palastinensischen-kurswechsel-bestehen/
 ---
 
-<span small="" style=""font-size:">**Westen muss auf palästinensischen Kurswechsel bestehen**</span>
+**Westen muss auf palästinensischen Kurswechsel bestehen**
 
 BrigGen. Yossi Kuperwasser
 
-<span small="" style=""font-size:">  
-</span>
+  
 
-**<span small="" style=""font-size:">Das nationale Narrativ der Palästinenser</span>**<span small="" style=""font-size:"></span>
+
+**Das nationale Narrativ der Palästinenser**
 
 Die Palästinenserführung gibt alles, damit die Palästinenser dem nationalen Narrativ treu bleiben, mit dem sie indoktriniert werden.
 
@@ -52,11 +52,17 @@ Schließlich wird ihnen immer wieder eingeschärft, niemals zu vergessen, dass d
 
 Diese Ideen werden täglich von der Palästinenserführung – der Fatah, der PLO und der Hamas – verbreitet. Auf Grund dieser Indoktrination ist garantiert, dass im Moment der Aufstachelung, wenn die Aufforderung ertönt, "Juden abzustechen", genügend Leute zum Messer greifen werden.
 
-<div align=""center"">## Das Messer und seine Botschaft: Der neue Aufstand der Palästinenser
 
-</div><div align=""center""><iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/RIz0cyltKF8"" width=""560""></iframe><div font-size:="" style=""text-align:left!important;"><span style=""font-size:" x-small=""><span background-color:="" display:="" float:="" font-family:="" font-style:="" font-variant-caps:="" font-variant-ligatures:="" font-weight:="" important="" inline="" letter-spacing:="" line-height:="" none="" normal="" rgb="" roboto="" start="" style=""color:" text-align:="" text-indent:="" text-transform:="" white-space:="" word-spacing:="">Handelt es sich bei der aktuellen Terrorwelle gegen Juden in Israel tatsächlich um zusammenhangslose Einzeltäter? </span>
+## Das Messer und seine Botschaft: Der neue Aufstand der Palästinenser
 
-</span></div></div><span small="" style=""font-size:"></span>
+
+
+<iframe allowfullscreen="""" frameborder=""0"" height=""315"" src=""https://www.youtube.com/embed/RIz0cyltKF8"" width=""560""></iframe>
+Handelt es sich bei der aktuellen Terrorwelle gegen Juden in Israel tatsächlich um zusammenhangslose Einzeltäter? 
+
+
+
+
 
 **Westliche Reaktionen**   
 Der Westen lehnt die Aufstachelung zum Terrorismus entschieden ab. Dies ist auch aus der letzten Erklärung des Nahostquartetts ersichtlich. Doch gegen die Indoktrination, die die Aufstachelung erst möglich macht, wird nicht weiter vorgegangen. Der Westen akzeptiert Israel als Nationalstaat des jüdischen Volkes, verlangt den Palästinensern jedoch nicht ab, dass sie ihr Narrativ ändern und Israel als solchen anerkennen. Nur die USA stellen eine Ausnahme. Ohne konkrete Maßnahmen wird sich nichts ändern, solange der Westen den Palästinensern Geld gibt, als sei alles in Ordnung.
@@ -85,5 +91,4 @@ Innerhalb der arabischen Welt hält sich der Glaube, sie hätten sich für die p
 
 Ich bin recht zuversichtlich, dass die arabische Welt einen Weg finden wird, diese Spannung zu überwinden. Sobald dies geschehen ist, sollte ein Fortschritt möglich sein. Sehr gut möglich, dass die anderen Araber die Friedensbereitschaft der Palästinenser beschleunigen, wenn jene erkennen, dass sie auf sich gestellt sind. Spätestens dann werden sie ihr Narrativ überdenken müssen.
 
-<span small="" style=""font-size:">  
-</span>
+  

@@ -17,13 +17,19 @@ title: 'ISIS im Irak: Werden durch den Fall von Mossul die Karten neu gemischt?'
 url: /isis-im-irak-werden-durch-den-fall-von-mossul-die-karten-neu-gemischt/
 ---
 
-<div align=""center"">**<font size=""3"">ISIS im Irak: Werden durch den Fall von Mossul die Karten neu gemischt?</font>**<font size=""3"">Jaques Neriah</font>
 
-</div><font size=""3""></font>
+**ISIS im Irak: Werden durch den Fall von Mossul die Karten neu gemischt?**
+
+Jaques Neriah
+
+
+
 
 Mit der Eroberung Mossuls konnte die radikalislamistische Gruppe „Islamischer Staat im Irak und in Syrien“ (ISIS) ein wesentlichen Erfolg verbuchen. 1,5 Mio. Menschen leben in der zweitgrößten Stadt des Landes. Auf diese Weise ist es ISIS gelungen, ein zusammenhängendes Herrschaftsgebiet zu schaffen, das sich von Ramadi und Falludscha nördlich von Bagdad bis zu den irakisch-kurdischen Gebieten westlich von Arbil, die Kurdengebiete Syriens und vorbei an den Städten al-Raqqa und Aleppo bis zur türkischen Grenze nahe Qamishli erstreckt.
 
-<div align=""center""><font size=""3""> ![""]("/UserFiles/Iraq_Physiography(1).jpg")</font></div><font size=""3""> Folgt ISIS dem bereits in den von ihr in Syrien eroberten Gebieten etablierten Muster, dann wird sie versuchen, ein islamistisches Kalifat auf Grundlage der Sharia zu errichten, geführt vom ISIS-Chef Abu Bakr al-Baghdadi – einem Dschihadisten, der sich 2003 Al-Qaida anschloss. Es kam zum Bruch mit Al-Qaida-Führer Ayman Al-Zawahiri, als jener verlangte, dass Baghdadi sich in den syrischen Kämpfen der Nusra-Front unterordne.</font>
+
+ ![""]("/UserFiles/Iraq_Physiography(1).jpg")
+ Folgt ISIS dem bereits in den von ihr in Syrien eroberten Gebieten etablierten Muster, dann wird sie versuchen, ein islamistisches Kalifat auf Grundlage der Sharia zu errichten, geführt vom ISIS-Chef Abu Bakr al-Baghdadi – einem Dschihadisten, der sich 2003 Al-Qaida anschloss. Es kam zum Bruch mit Al-Qaida-Führer Ayman Al-Zawahiri, als jener verlangte, dass Baghdadi sich in den syrischen Kämpfen der Nusra-Front unterordne.
 
 Die von ihr beherrschten nichtislamischen Bevölkerung stellt ISIS vor die „Wahl“ zwischen Konvertierung zum Islam, einer Sondersteuer pro Kopf oder Vertreibung. Erstes Anzeichen dieser Entwicklung ist die Massenflucht von 500,000 Einwohnern Mossuls, vorwiegend Assyrern christlichen Glaubens, welche historisch die Mehrheit der Bevölkerung der Provinz Ninawa stellen.
 

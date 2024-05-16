@@ -16,11 +16,11 @@ title: Antisemitische Motive in arabischen Karikaturen
 url: /antisemitische-motive-in-arabischen-karikaturen/
 ---
 
-<font face=""Arial"" size=""3""><font face=""Arial"" size=""3""> \* Das in arabischen Karikaturen am häufigsten wiederkehrende Motiv über Israel ist das des „teuflischen Juden.“ Dieses vermittelt die Vorstellung, dass Juden sich wie Nazis verhalten, Kinder töten und Blut lieben. Die Ähnlichkeit zu den von den Nazis verwendeten Themen ist offensichtlich. Viele arabische Karikaturen verherrlichen Selbstmordattentate oder den Aufruf zum Mord. Das derart projezierte kollektive Bild der Juden leistet die Vorarbeit für einen möglichen Völkermord.  
+ \* Das in arabischen Karikaturen am häufigsten wiederkehrende Motiv über Israel ist das des „teuflischen Juden.“ Dieses vermittelt die Vorstellung, dass Juden sich wie Nazis verhalten, Kinder töten und Blut lieben. Die Ähnlichkeit zu den von den Nazis verwendeten Themen ist offensichtlich. Viele arabische Karikaturen verherrlichen Selbstmordattentate oder den Aufruf zum Mord. Das derart projezierte kollektive Bild der Juden leistet die Vorarbeit für einen möglichen Völkermord.  
  \* Eine Karikatur vermag soviel Einfluss auf die öffentliche Meinung zu haben, wie ein Leitartikel.  
  \* Palästinensische Karikaturisten legen häufig besondere Betonung auf den antisemitischen Vorwurf des „Ritualmordes“ an Kindern. Dies wird unterstrichen von der Behauptung, dass Israelis auf palästinensische Kinder zielen. Um Juden zu entmenschlichen, werden sie von arabischen Karikaturisten of als bösartige Kreaturen dargestellt: Spinnen, Vampire oder Kraken.  
  \* Verschiedene arabische Hassmotive sind auch in die westliche Gesellschaft eingedrungen, wo sie sich mit lange existierenden antisemitischen Vorurteilen der christlichen Welt überlagern.  
- </font></font>
+ 
 
 **Vorarbeit für Völkermord**
 

@@ -16,7 +16,7 @@ theme = 'mainroad'
   highlightColor = "#5e707a" # Override highlight color
 
 [Params.logo]
-  image = "wp-content/uploads/2020/02/jcpa_logo_white_on_blue-150x150.png" # Logo image. Path relative to "static"
+  image = "wp-content/uploads/2020/02/jcpa_logo_white_on_blue-100.png" # Logo image. Path relative to "static"
   title = "Jerusalem Zentrum" # Logo title, otherwise will use site title
   subtitle = "Strategische Informationen zur Außen – und Sicherheitspolitik Israels" # Logo subtitle
 

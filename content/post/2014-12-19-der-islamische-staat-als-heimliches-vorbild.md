@@ -15,15 +15,21 @@ title: Der Islamische Staat als heimliches Vorbild
 url: /der-islamische-staat-als-heimliches-vorbild/
 ---
 
-<div align=""center"">**<font size=""3"">Der Islamische Staat als heimliches Vorbild</font>**<font size=""3"">Jonathan D. Halevi</font>
 
-</div><font size=""3"">  
-Der von seinem selbst ernannten Kalifen Abu Bakr al-Baghdadi ausgerufene "Staat des Islamischen Kalifats" (auch bekannt als Islamischer Staat, IS, ISIS, ISIL oder Daesh) hat die Realität des Nahen Ostens fundamental verändert und droht nun, die geopolitischen Karten neu zu mischen, die existierenden Staatsgrenzen zu verwischen sowie alle islamischen Nationalstaaten zu unterwandern.</font>
+**Der Islamische Staat als heimliches Vorbild**
 
-<div align=""center""><font size=""3"">  
+Jonathan D. Halevi
+
+
+  
+Der von seinem selbst ernannten Kalifen Abu Bakr al-Baghdadi ausgerufene "Staat des Islamischen Kalifats" (auch bekannt als Islamischer Staat, IS, ISIS, ISIL oder Daesh) hat die Realität des Nahen Ostens fundamental verändert und droht nun, die geopolitischen Karten neu zu mischen, die existierenden Staatsgrenzen zu verwischen sowie alle islamischen Nationalstaaten zu unterwandern.
+
+
+  
 ![""]("/UserFiles/isis-leader.jpg")  
-Der selbst ernannte "Kalif" Abu Bakr al-Baghdadi</font></div><font size=""3"">  
-Das Ziel einer Wiedererrichtung des Kalifats hatte im Ägypten der 1920ern zur Entstehung der globalen Bewegung der Muslimbrüder geführt sowie in den fünfziger Jahren zur Gründung der Hisb ut-Tahrir und anderer islamistischer Organisationen, deren Programmatik eine solche Vision beinhaltet. Sie alle – einschließlich der Hamas (dem palästinensischen Arm der Muslimbruderschaft) und der Islamischen Bewegung in Israel – betrachten die Neugründung des Kalifats als religiöse Pflicht. Im Rahmen der Prophezeiung Mohammeds ist die Herstellung des Kalifats das Mittel zur Vereinigung aller Muslime unter dem islamischen Recht Sharia, bevor Europa erobert und die Welt zum Islam bekehrt wird.</font>
+Der selbst ernannte "Kalif" Abu Bakr al-Baghdadi
+  
+Das Ziel einer Wiedererrichtung des Kalifats hatte im Ägypten der 1920ern zur Entstehung der globalen Bewegung der Muslimbrüder geführt sowie in den fünfziger Jahren zur Gründung der Hisb ut-Tahrir und anderer islamistischer Organisationen, deren Programmatik eine solche Vision beinhaltet. Sie alle – einschließlich der Hamas (dem palästinensischen Arm der Muslimbruderschaft) und der Islamischen Bewegung in Israel – betrachten die Neugründung des Kalifats als religiöse Pflicht. Im Rahmen der Prophezeiung Mohammeds ist die Herstellung des Kalifats das Mittel zur Vereinigung aller Muslime unter dem islamischen Recht Sharia, bevor Europa erobert und die Welt zum Islam bekehrt wird.
 
 Der Islamische Staat stellt die regionalen Akteure vor eine gewaltige Herausforderung. Nicht nur wird eine islamische Vision im Irak und Syrien realisiert, der in der Tradition eine besondere Bedeutung zukommt. Dem Islamischen Staat gelingt es zudem, seine Herrschaft auszubauen, den Vereinigten Staaten und dem Westen furchtlos die Stirn zu bieten, tausende Muslime aus aller Welt anzuziehen und Millionen mehr zu inspirieren.
 
@@ -71,15 +77,21 @@ In der Felesteen-Ausgabe vom 20. November erklärte der palästinensische Journa
 
 Am Tag nach dem Massaker veröffentlichte Felesteen eine Karikatur, die den enthaupteten Leichnam eines jungen Juden zeigte mit der Bildunterschrift: "Dies ist Al-Quds." (14) Ähnliche Cartoons, die die Messer- und Autoattacken priesen, erschienen auf sozialen Netzwerkseiten verschiedener palästinensischer Organisationen. Damit wurde die "Daes"-Kampagne fortgesetzt – einem Wortspiel mit dem arabischen Wort "daes" (überfahren) und dem arabischen Akronym für den Islamischen Staat – Daesh. Das "Überfahr die Juden"-Thema wurde zudem in Liedern und Videos verbreitet, die die Mörder hochleben lassen.
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/PalIncitement-300x206.png")</font></div><font size=""3""></font>
+
+![""]("/UserFiles/PalIncitement-300x206.png")
+
 
 So ruft in ein gewisser Ismail Nasser Farahat aus Gaza, der offensichtlich in der Türkei lebt und für Life Lens for Media Production arbeitet in einem professionellen Video mit dem Titel "Revolution der Messer" die Palästinenser auf, jeden Tag einen israelischen Soldaten zu ermorden. (15) In dem Video werden Palästinenser ermutigt, alle Hindernisse zu überwinden und die Waffen vorzubereiten, die für die blutigen Angriffe benötigt werden. Am Anfang des Clips ist ein maskierter Palästinenser zu sehen, der ein Messer sorgsam vorbereitet. Er wetzt es ausgiebig mit einer Schleifmaschine und fuchtelt im Anschluss stolz damit rum. Eine Botschaft auf Arabisch verkündet: "Erhebt und rächt euch, bereitet eure Waffen der Rache vor, schlachtet die jüdischen Soldatenaffen, schlachtet sie jeden Tag aufs neue, denn ihr seid der Tod, die Zerstörung, die Märtyrer."
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/screenshoot-300x149.png")</font></div><font size=""3"">  
-</font>
 
-<div align=""center""><font size=""3"">Screenshot [https://www.youtube.com/watch?feature=player\_embedded&amp;v=HMm62qtA13c]("javascript:void(0);/*1419007184326*/")</font></div><font size=""3"">  
-Danach wird der Palästinenser dabei gezeigt, wie er einen israelischen Soldaten von hinten angreift und niedersticht. Der Leichnam des Soldaten wird in einer großen Blutlache am Boden liegend eingeblendet.</font>
+![""]("/UserFiles/screenshoot-300x149.png")
+  
+
+
+
+Screenshot [https://www.youtube.com/watch?feature=player\_embedded&amp;v=HMm62qtA13c]("javascript:void(0);/*1419007184326*/")
+  
+Danach wird der Palästinenser dabei gezeigt, wie er einen israelischen Soldaten von hinten angreift und niedersticht. Der Leichnam des Soldaten wird in einer großen Blutlache am Boden liegend eingeblendet.
 
 Der maskierte Palästinenser schwenkt die Mordwaffe und spricht in die Kamera, nur dass die Stimme nicht zu hören ist. Stattdessen wird die Botschaft in Arabisch und fehlerhaftem Hebräisch eingeblendet: "Verlasst unser Land. Wir sind das Versprechen des Himmels für euch. Wir werden euch vernichten. Verlasst unser Land. Wir sind seine Geschichte. Wir sind die Botschafter der Hölle für euch Söhne Zions."
 
@@ -99,8 +111,10 @@ Angesichts dieser Herausforderung, die die Unterstützung der Hamas zu untergrab
 
 Auf diese Weise hat die Hamas die Terrormethoden des IS übernommen, ohne die Quelle zu nennen. Je mehr sich der stillschweigende Konkurrenzkampf mit dem IS an der palästinensischen Basis verschärft, desto wahrscheinlicher ist es, dass die Hamas auf diese Methoden zurückgreifen wird. Auf diese Weise – und dadurch, dass sie wiederholt eine "dritte Intifada" beschwört – will die Hamas als ausdauernde dschihadistische Widerstandskraft gegen Israel gesehen werden. Sie ist dabei zuversichtlich, dass Israel aufgrund der Feuerpause keine Hamas-Stellungen in Gaza angreifen wird in Reaktion auf Terrorangriffe vom Westjordanland.
 
-<div align=""center""><font size=""3"">**\* \* \***</font></div><font size=""3"">  
-<font size=""2"">1 http://assafir.com/Article/372011/Archive   
+
+**\* \* \***
+  
+1 http://assafir.com/Article/372011/Archive   
 2 http://www.allofjo.net/index.php?page=article&amp;id=77222#sthash.Pu29BCnK.dpuf   
 3 http://www.pal-tahrir.info/hizb-publications/7489-2014-09-11-21-39-40.html   
 4 https://www.facebook.com/permalink.php?story\_fbid=539320639533467&amp;id=173493772782824   
@@ -119,4 +133,3 @@ Auf diese Weise hat die Hamas die Terrormethoden des IS übernommen, ohne die Qu
 17 http://www.tahaaluf.com/%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%BA%D8%B2%D8%A9-%D8%AA%D9%85%D9%83%D9%86%D8%AA-%D9%85%D9%86-%D8%AA%D8%B1%D9%83%D9%8A%D8%B9-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%88-%D8%A7%D9%84/   
 18 http://www.faceiraq.com/inews.php?id=2888529   
 19 http://www.elnnews.com/archives/924 – See more at: http://jcpa.org/article/hamas-embraces-path-of-islamic-state/#sthash.Rqjh9ndT.dpuf  
-</font></font><font size=""2""></font>

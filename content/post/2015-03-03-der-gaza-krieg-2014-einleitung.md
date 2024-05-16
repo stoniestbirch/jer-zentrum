@@ -15,11 +15,15 @@ title: 'Der Gaza-Krieg 2014: Einleitung'
 url: /der-gaza-krieg-2014-einleitung/
 ---
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/BannerGazaOption1German(2).jpg")</font><font size=""3""> </font>
 
-</div><div align=""center""><font color=""#003366"" face=""Arial"" size=""3""><font size=""4"">**Der Gaza-Krieg 2014: Einleitung**</font></font><font face=""Arial"">  
-</font> </div><font face=""Arial""> <font size=""3"">  
-Bei dieser Studie handelt es sich um umfassend recherchierte und dokumentierte Darstellung des Gaza-Krieges von 2014. Zwar liegt ihr die israelische Perspektive zu Grunde, doch es gehört dezidiert nicht zu ihrer Absicht, Israels Verhalten während des Krieges von Kritik frei zu sprechen oder das Bild Israels in der Welt aufzuwerten.</font></font>
+![""]("/UserFiles/BannerGazaOption1German(2).jpg") 
+
+
+
+**Der Gaza-Krieg 2014: Einleitung**  
+ 
+   
+Bei dieser Studie handelt es sich um umfassend recherchierte und dokumentierte Darstellung des Gaza-Krieges von 2014. Zwar liegt ihr die israelische Perspektive zu Grunde, doch es gehört dezidiert nicht zu ihrer Absicht, Israels Verhalten während des Krieges von Kritik frei zu sprechen oder das Bild Israels in der Welt aufzuwerten.
 
 Sie verfolgt hingegen ein Ziel: das der Wahrheitsfindung. Die Wahrheit ging im Lärm der Waffen unter und verloren im Zwang, Nachrichten unmittelbar vom Schlachtfeld zu liefern. Sie wurde auch verzerrt von jenen, die ein Interesse daran haben, und dann ein weiteres Mal missbraucht, als der UN-Menschenrechtsrat am 23. Juli 2014 eine einseitige Untersuchung der Geschehnisse des Krieges „in den besetzten palästinensischen Gebieten, einschließlich Ostjerusalem, und besonders im besetzten Gazastreifen“ anordnete, blind gegenüber der Tatsache, dass Israel Ziel von tausenden Raketen und Mörsergranaten war, die sich gegen die Zivilbevölkerung richteten und einige Wohngebiete angriffen, in denen eine dreimal so hohe Bevölkerungsdichte zu verzeichnen ist wie in Gaza.
 
@@ -32,10 +36,10 @@ Dies sind die wesentlichen Wahrheiten über den Gaza-Krieg von 2014. Sie wurden 
 **Hirsh Goodman Dore Gold**  
 Jerusalem 2015
 
-<font face=""Arial"" size=""4"">**<font face=""Arial"">Texte:</font>**</font>
+**Texte:**
 
-*Hirsh Goodman und Dore Gold* <font size=""4"">  
-<font face=""Arial"">**<font face=""Arial"">[Der Gaza-Krieg von 2014: Einleitung]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=237")</font>**</font></font>
+*Hirsh Goodman und Dore Gold*   
+**[Der Gaza-Krieg von 2014: Einleitung]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=237")**
 
 *Hirsh Goodman*  
 [Der Gaza-Krieg von 2014 aus israelischer Perspektive: Ein Überblick]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=231")
@@ -54,4 +58,4 @@ Jerusalem 2015
 
 *Daniel P. Rubenstein*  
 [Das Tunnelnetzwerk der Hamas: Geplanter Massenmord]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")  
-**<font face=""Arial"">[]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")</font>[  ]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")**
+**[]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")[  ]("http://www.jer-zentrum.org/ViewArticle.aspx?ArticleId=236")**

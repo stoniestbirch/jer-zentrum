@@ -19,9 +19,13 @@ title: 'Arafat und der Jüdische Staat: Einige Worte zur Aufklärung'
 url: /arafat-und-der-judische-staat-einige-worte-zur-aufklarung/
 ---
 
-<div align=""center"">**<font size=""3"">Arafat und der Jüdische Staat: Einige Worte zur Aufklärung</font>**<font size=""3"">Alan Baker</font>
 
-</div><font size=""3"">• Am 13. März 2014 äußerte der amerikanische Außenminister John Kerry gegenüber dem amerikanischen Kongress, dass er die prinzipielle israelische Forderung, Israel sei als jüdischer Staat anzuerkennen für einen Fehler halte. Er begründete das u.a. damit, dass der verstorbene Palästinenserführer Yasser Arafat bereits 1988 und 2004 bestätigt habe, dass „es \[Israel\] ein jüdischer Staat“ sein werde.</font>
+**Arafat und der Jüdische Staat: Einige Worte zur Aufklärung**
+
+Alan Baker
+
+
+• Am 13. März 2014 äußerte der amerikanische Außenminister John Kerry gegenüber dem amerikanischen Kongress, dass er die prinzipielle israelische Forderung, Israel sei als jüdischer Staat anzuerkennen für einen Fehler halte. Er begründete das u.a. damit, dass der verstorbene Palästinenserführer Yasser Arafat bereits 1988 und 2004 bestätigt habe, dass „es \[Israel\] ein jüdischer Staat“ sein werde.
 
 • Tatsächlich glaubte auch die amerikanische Regierung zu den jeweiligen Zeitpunkten nicht daran, dass Arafats Worte für eine faktische Anerkennung des Existenzrechts des jüdischen Staates hinreichend wären. Die Äußerungen Arafats von 1988 kommen dieser geforderten Anerkennung nicht einmal nah.
 
@@ -60,8 +64,9 @@ Tatsächlich wurde aber dieses Thema bereits in der offiziellen Stellungnahme Is
 
 Es war der aktuellen israelischen Friedensunterhändlerin Justizministerin Tzipi Livni – der Partnerin vom Kerry und Abbas in den Verhandlungen – zu verdanken, die diese Stellungnahme verfasste. US-Außenminister Kerry wäre also beraten, zunächst Frau Ministerinn Livni zu konsultieren, bevor er sich zu weiteren Behauptungen in dieser Frage hinreißen lässt.
 
-<div align=""center"">**<font size=""3"">\* \* \*</font>**</div><font size=""2"">  
+
+**\* \* \***
+  
 1\. http://www.mfa.gov.il/MFA/ForeignPolicy/Peace/Guide/Pages/UN%20General%20Assembly%20Resolution% 20181.aspx  
 2\. http://www.israelhayom.com/site/newsletter\_opinion.php?id=7715  
 3\. http://www.knesset.gov.il/process/docs/roadmap\_response\_eng.htm  
-</font>

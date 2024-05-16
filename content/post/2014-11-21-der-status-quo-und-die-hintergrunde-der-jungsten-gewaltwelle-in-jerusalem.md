@@ -31,13 +31,17 @@ title: Der Status Quo und die Hintergründe der jüngsten Gewaltwelle in Jerusal
 url: /der-status-quo-und-die-hintergrunde-der-jungsten-gewaltwelle-in-jerusalem/
 ---
 
-<font size=""3"">  
-</font>
+  
 
-<div align=""center"">**<font size=""3"">Der Status Quo und die Hintergründe der jüngsten Gewaltwelle in Jerusalem</font>**<font size=""3"">Nadav Shragai</font>
 
-</div><font size=""3"">  
-Die Frage des Tempelbergs und seines aktuellen Status Quo ist in den vergangenen Monaten in den Mittelpunkt des religiös-politischen Diskurses in Israel gerückt. Dieser findet weder diplomatisch noch öffentlich im luftleerem Raum statt: seit dem 2. Juli 2014 kam es zu einem rapiden Anstieg an Gewalt in Jerusalem und die Zusammenstöße zwischen gewalttätigen palästinensischen Demonstranten und der israelischen Polizei haben sich verschärft. (1)</font>
+
+**Der Status Quo und die Hintergründe der jüngsten Gewaltwelle in Jerusalem**
+
+Nadav Shragai
+
+
+  
+Die Frage des Tempelbergs und seines aktuellen Status Quo ist in den vergangenen Monaten in den Mittelpunkt des religiös-politischen Diskurses in Israel gerückt. Dieser findet weder diplomatisch noch öffentlich im luftleerem Raum statt: seit dem 2. Juli 2014 kam es zu einem rapiden Anstieg an Gewalt in Jerusalem und die Zusammenstöße zwischen gewalttätigen palästinensischen Demonstranten und der israelischen Polizei haben sich verschärft. (1)
 
 Dabei ist der Tempelberg ein Brennpunkt der Gewalt, sowohl im wortwörtlichen als auch im ideologischen Sinn. Was dort geschieht, hat Konsequenzen für die Region.
 
@@ -45,7 +49,9 @@ V.a. kam es dabei zwischen den jüdischen und arabischen Vierteln Jerusalems zu 
 
 Tausende von Araber – viele von ihnen Jugendliche – haben an den Unruhen teilgenommen. Innerhalb der letzten vier Monate wurden 1,000 Gewalttäter festgenommen und 300 Anklagen erhoben. Sechs Juden wurden in "hit-and-run"-Angriffen mit Autos und durch Messer getötet, zwei weitere wurden durch Schusswaffen schwer verletzt. Vier Palästinenser wurden bei der Ausführung der Terroranschläge getötet und ein fünfter in den Unruhen. Fanatische jüdische Extremisten entführten im Juni den arabischen Teenager Muhammad Abu Khdeir aus Shuafat und ermordeten ihn in Reaktion auf die Entführung und Ermordung von drei jüdischen Jugendlichen.(2) Die Mörder Abu Khdeirs wurden verhaftet und angeklagt.
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/clip_image003.jpg")</font></div><font size=""3""></font>
+
+![""]("/UserFiles/clip_image003.jpg")
+
 
 **Der Tempelberg**
 
@@ -55,8 +61,10 @@ Für Juden ist der Tempelberg – auch Moriah genannt – deswegen so heilig, we
 
 Seit den Tagen des Großmuftis von Jerusalem Haj Amin al-Husseini in der ersten Hälfte des 20. Jahrhunderts, v.a. aber seit der Zeit des Sechstagekrieges und der Vereinigung Jerusalems ist der Berg für viele Moslems jedoch weit mehr als ein Ort der Anbetung Gottes. Er ist zu einem panislamischen Symbol des nationalreligiösen Konfliktes zwischen dem Staat Israel auf der einen Seite und der islamischen Welt, den arabischen Staaten und den Palästinensern auf der anderen geworden.
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/domewall.jpg")</font></div><font size=""3"">  
-</font>
+
+![""]("/UserFiles/domewall.jpg")
+  
+
 
 Die Bedeutung des Tempelbergs in den jüngsten Unruhen
 
@@ -151,8 +159,10 @@ Ursache dieser Veränderung sind Aufstachelung, Drohungen und Gewalt, die von is
 
 In der Vergangenheit war es Juden nicht nur gestattet, das Areal unter der Woche zu besuchen, sondern auch an Sabbat-Tagen und sogar innerhalb der Moscheen. Dies ist nicht mehr möglich. Auch ist der Besuch des Tempelbergs für Juden im religiösen Outfit nur noch auf Gruppen beschränkt, deren Anwesenheit sorgsam vom Wachpersonal der Waqf und der Polizei beobachtet wird. Besuchszeiten für Juden und Touristen wurden auf Sonntag bis Montag für vier Stunden täglich (drei am Morgen, eine am frühen Nachmittag) begrenzt.
 
-<div align=""center""><font size=""3"">![""]("/UserFiles/book2.jpg")</font></div><font size=""3"">  
-**Gründe für den Wandel**</font>
+
+![""]("/UserFiles/book2.jpg")
+  
+**Gründe für den Wandel**
 
 Die Zahl der Juden, die den Berg betraten stieg beträchtlich an, da die halachischen Vorschriften einem allmählichen, aber umfassenden Wandel unterworfen sind. Die nationalreligiösen Strömungen gestatten – an einige halachischen Bedingungen geknüpft (z.B. durch rituelle Reinigung in der Mikvah) – Juden heutzutage, den Tempelberg zu besuchen. (18) Dies hat die Muslime alarmiert und ihr Verhalten radikalisiert.
 
@@ -206,9 +216,11 @@ Der alte Status Quo auf dem Tempelberg existiert nicht mehr. Die Situation hat s
 
 Gleichzeitig wurde aber eines der Hauptelemente des alten Status Quo – das Verbot jüdischen Gebets auf dem Tempelberg – mit aller Kraft aufrechterhalten.
 
-<div align=""center""><font size=""3"">**\* \* \***</font></div><font size=""3""></font>
 
-<font size=""2"">1 Für eine Zusammenfassung der Ereignisse der "Jerusalem Intifada" siehe z.B.: Freitagsausgaben der Yediot Yerushalayim vom Juli bis November 2014, die Berichterstattung in Ha’aretz sowie eine Reihe von Überblicksartikeln zur Systematik der Gewalt in Jerusalem, verfasst vom Auto in der Israel Ha’Shavua Beilage der Zeitung Israel HaYom vom 18. Juli, 12. September, 19. September, 24. Oktober und 7. November 2014.</font>
+**\* \* \***
+
+
+1 Für eine Zusammenfassung der Ereignisse der "Jerusalem Intifada" siehe z.B.: Freitagsausgaben der Yediot Yerushalayim vom Juli bis November 2014, die Berichterstattung in Ha’aretz sowie eine Reihe von Überblicksartikeln zur Systematik der Gewalt in Jerusalem, verfasst vom Auto in der Israel Ha’Shavua Beilage der Zeitung Israel HaYom vom 18. Juli, 12. September, 19. September, 24. Oktober und 7. November 2014.
 
 2 Am 12. Juni 2014 entführten Terroristen der Hamas drei israelische Jugendliche in Gush Etzion und ermordeten sie in der selben Nacht. Die Leichen der drei – Gilad Sher, Naftali Frenkel und Eyal Ifrach – wurden am 30. Juni westlich von Halhoul gefunden, 18 Tage nach der Entführung und nach extensiver Suche.
 
@@ -260,4 +272,3 @@ Access Bridge,” 24. Oktober 2011.
 24 Siehe dazu: http://www.nrg.co.il/online/1/ART2/555/194.html)
 
 25 Zu Hamas-Flaggen auf dem Tempelberg siehe auch: http://www.news1.co.il/Archive/001-D-347383-00.html  
-<font size=""2""></font>

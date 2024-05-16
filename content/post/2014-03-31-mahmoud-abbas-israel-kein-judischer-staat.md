@@ -17,10 +17,14 @@ title: 'Mahmoud Abbas: Israel kein jüdischer Staat'
 url: /mahmoud-abbas-israel-kein-judischer-staat/
 ---
 
-<div align=""center"">**<font size=""3"">Mahmoud Abbas: Israel kein jüdischer Staat</font>**<font size=""3"">Pinhas Inbari</font>
 
-</div><font size=""3"">  
-Seit seiner Rückkehr aus Washington, wo er mit Präsident Barack Obama zusammentraf, hat Mahmoud Abbas nichts unversucht gelassen, eine immer härtere Haltung gegenüber Israel zu demonstrieren. Am 22. März 2014 sprach Abbas vor dem Zentralkomitee der Fatah. Dem Sprecher des Palästinenserpräsidenten zufolge unterstützte dieses dabei die „Nichtanerkennung Israels als jüdischer Staat.“ Der vollständige Redetext von Abbas wurde nicht veröffentlicht.</font>
+**Mahmoud Abbas: Israel kein jüdischer Staat**
+
+Pinhas Inbari
+
+
+  
+Seit seiner Rückkehr aus Washington, wo er mit Präsident Barack Obama zusammentraf, hat Mahmoud Abbas nichts unversucht gelassen, eine immer härtere Haltung gegenüber Israel zu demonstrieren. Am 22. März 2014 sprach Abbas vor dem Zentralkomitee der Fatah. Dem Sprecher des Palästinenserpräsidenten zufolge unterstützte dieses dabei die „Nichtanerkennung Israels als jüdischer Staat.“ Der vollständige Redetext von Abbas wurde nicht veröffentlicht.
 
 Auf dem Gipfel der Arabischen Liga in Kuwait vom 25. März ging Abbas noch einen Schritt weiter. Das offizielle arabische Transkript seiner Rede verrät, dass sich Abbas einer kompromissloseren diplomatischen Haltung angenähert hat und die Anerkennung Israels als Nationalstaat des jüdischen Volkes verweigert:
 

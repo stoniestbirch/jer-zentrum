@@ -24,12 +24,12 @@ title: US-Angriff auf Syrien – Droht ein Regionalkrieg?
 url: /us-angriff-auf-syrien-droht-ein-regionalkrieg/
 ---
 
-**<span small="" style=""font-size:">US-Angriff auf Syrien – Droht ein Regionalkrieg?  
-</span>** <span small="" style=""font-size:">Yoni Ben Menachem  
-</span>
+**US-Angriff auf Syrien – Droht ein Regionalkrieg?  
+** Yoni Ben Menachem  
 
-<span small="" style=""font-size:">  
-Arabische Kommentatoren fällt es schwer, eine logische Erklärung für das Verhalten des syrischen Präsidenten Bashar Assad zu finden und dessen Entschluss, chemische Waffen gegen die Rebellen der Idlib-Region einzusetzen.</span>
+
+  
+Arabische Kommentatoren fällt es schwer, eine logische Erklärung für das Verhalten des syrischen Präsidenten Bashar Assad zu finden und dessen Entschluss, chemische Waffen gegen die Rebellen der Idlib-Region einzusetzen.
 
 Folgt man ihnen, dann war es eine massive Fehleinschätzung: Assads Truppen stehen in der Region nicht unter Druck und das Gebiet von Khan Sheikhoun ist strategisch unbedeutend. Es scheint, als habe es sich um ein unnötiges militärisches Abenteuer gehandelt. Es hätte klar sein müssen, dass eine solche Aktion die Empörung der internationalen Gemeinschaft und damit eine eventuelle militärische Reaktion nach sich ziehen würde. Dennoch ließ sich Assad dazu hinreißen.
 

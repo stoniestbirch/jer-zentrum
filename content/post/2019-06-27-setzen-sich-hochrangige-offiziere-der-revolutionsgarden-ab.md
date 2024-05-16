@@ -15,51 +15,40 @@ title: Setzen sich hochrangige Offiziere der Revolutionsgarden ab?
 url: /setzen-sich-hochrangige-offiziere-der-revolutionsgarden-ab/
 ---
 
-**<span style=""font-size:18.0pt"">Setzen sich hochrangige Offiziere der Revolutionsgarden ab?</span>**
+**Setzen sich hochrangige Offiziere der Revolutionsgarden ab?**
 
-<span style=""font-size:13.5pt"">Jerusalem Center Iran Desk</span>
+Jerusalem Center Iran Desk
 
-<span lang=""EN-US"" new="" roman="" style=""font-size:11.0pt;font-family:"Calibri",sans-serif;mso-ascii-theme-font:
-minor-latin;mso-fareast-font-family:Calibri;mso-fareast-theme-font:minor-latin;
-mso-hansi-theme-font:minor-latin;mso-bidi-font-family:"Times">![""]("/userfiles/irgc_defectors.jpg")</span><span style=""font-size:13.5pt""></span>
+![""]("/userfiles/irgc_defectors.jpg")
 
 "Desertierende" Generale von rechts nach links: Alin Nasiri, ehem. Kommandeur der Ansar-al-Mahdi-Schutzeinheit der Spionageabwehr des IRGC; Mustafa Rabiei, ehem. Kommandeur der IRGC-Überwachungseinheit; Mohammad Tawallaii, ehem. Kommandeur der IRGC-Division für strategische Angelegenheiten.
 
-<span style=""font-size:13.5pt"">Seitdem das Iranische Revolutionsgardencorps (IRGC) zur Terrororganisation erklärt wurde, mehren sich im Ausland Berichte über Fahnenflucht sowie die Verhaftung hochrangiger Vertreter der Garden. Gleichzeitig scheinen diverse strukturelle wie personelle Veränderungen darauf hinzuweisen, dass die Revolutionsgarden mit inneren Schwierigkeiten zu ringen haben. In einigen dieser Berichte wird dabei der Staat Israel erwähnt. Der Sprecher des IRGC Ramazan Sharif hat bislang alle Berichte bestritten.</span>
+Seitdem das Iranische Revolutionsgardencorps (IRGC) zur Terrororganisation erklärt wurde, mehren sich im Ausland Berichte über Fahnenflucht sowie die Verhaftung hochrangiger Vertreter der Garden. Gleichzeitig scheinen diverse strukturelle wie personelle Veränderungen darauf hinzuweisen, dass die Revolutionsgarden mit inneren Schwierigkeiten zu ringen haben. In einigen dieser Berichte wird dabei der Staat Israel erwähnt. Der Sprecher des IRGC Ramazan Sharif hat bislang alle Berichte bestritten.
 
-<span lang=""EN-US"" new="" roman="" style=""font-size:
-11.0pt;font-family:"Calibri",sans-serif;mso-ascii-theme-font:minor-latin;
-mso-fareast-font-family:Calibri;mso-fareast-theme-font:minor-latin;mso-hansi-theme-font:
-minor-latin;mso-bidi-font-family:"Times">![""]("/userfiles/irgc_spokesman_fars.jpg")</span>
+![""]("/userfiles/irgc_spokesman_fars.jpg")
 
 IRGC-Sprecher: "grundlose Berichte" (1)
 
-<span style=""font-size:13.5pt"">Über soziale Netzwerke verbreitete Berichte aus Oppositionskreisen auf Farsi behaupten, dass der stellvertretende Kommandeur der IRGC-Abteilung für strategische Angelegenheiten und Überwachung Mohammad Tawallaii im Iran verhaftet wurde, nachdem eine einjährige Untersuchung ergeben habe, er hätte dem israelischen Mossad beim Schmuggel des iranischen Atomarchivs nach Israel geholfen.</span>
+Über soziale Netzwerke verbreitete Berichte aus Oppositionskreisen auf Farsi behaupten, dass der stellvertretende Kommandeur der IRGC-Abteilung für strategische Angelegenheiten und Überwachung Mohammad Tawallaii im Iran verhaftet wurde, nachdem eine einjährige Untersuchung ergeben habe, er hätte dem israelischen Mossad beim Schmuggel des iranischen Atomarchivs nach Israel geholfen.
 
 Ali Javanmardi, Gründer der Webseite Avatoday.net, lebt in den kurdischen Regionen des nördlichen Irak und ist langjähriger Reporter für das farsische Programm von Voice of America. "Exklusiven" Informationen zufolge, die ihn mutmaßlich von hochrangigen Vertretern aus Irakisch-Kurdistan erreichten, hätte der Schmuggel des Atomarchivs nach Israel zu panischen Untersuchungen geführt und innerhalb der iranischen Geheimdienste zu der Schlussfolgerung, dass Tawallaii die Person gewesen sein müsse, die mit Israel kooperiert hätte. Nach längerer Überwachung sei Tawallaii kürzlich verhaftet worden. Exiliraner wiederum hätten berichtet, dass er die Gefahr gespürt und während seiner Fluchtvorbereitung aus dem Iran verhaftet worden sei.
 
 Schon einige Wochen zuvor hatten Oppositionsgruppen berichtet, dass General Ali Nasiri, bis dahin Chef der Ansar-al-Mahdi-Schutzeinheit des IRGC, mit geheimen Informationen über die Garden aus dem Iran geflohen sei, und diese "ausländischen Mächten" im Gegenzug für politisches Asyl anbiete. Die Revolutionsgarden dementierten diesen Bericht wenige Tage später und veröffentlichten wie zum Beweis ein Foto von Nasiris Anwesenheit bei der Zeremonie zur Ernennung Hossein Salamis zum Kommandeur des IRGC. Einen Tag zuvor war Nasiris Posten jedoch einem anderen Kommandeur mit Namen Fathallah Jamari verliehen wurden, der zuvor die IRGC-Einheit der Yazd-Provinz im Zentraliran kommandiert hatte.
 
-<span lang=""EN-US"" new="" roman="" style=""font-size:
-11.0pt;font-family:"Calibri",sans-serif;mso-ascii-theme-font:minor-latin;
-mso-fareast-font-family:Calibri;mso-fareast-theme-font:minor-latin;mso-hansi-theme-font:
-minor-latin;mso-bidi-font-family:"Times">![""]("/userfiles/fars_nasri.jpg")</span>
+![""]("/userfiles/fars_nasri.jpg")
 
 Nach einer ganzen Reihe von Berichten über das Desertieren von Gen. Ali Nasiri (hier sitzend hinter dem Geistlichen und Kommandeur Hossein Taib und nicht weit von Gen. Qasem Soleimani) mit "geheimen" Informtationen, wurde dieses Foto veröffentlicht, um sein Verbleiben im Iran zu "beweisen".
 
-<span style=""font-size:13.5pt""></span>
+
 
 Die iranischen Oppositionskräfte bleiben derweil bei ihrer Behauptung, Nasiri sei mit den Informationen in ein Nachbarland geflohen. Das iranische Regime sei sich der Gefahr bewusst, halte seine Familie in Geiselhaft und bedrohe deren Leben, sollte Nasiri nicht unmittelbar zurückkehren. Anscheinend kam er nun zurück und war daher bei der Zeremonie zum Amtsübergabe der IRGC-Kommandeure zugegen.
 
-<span lang=""EN-US"" new="" roman="" style=""font-size:
-11.0pt;font-family:"Calibri",sans-serif;mso-ascii-theme-font:minor-latin;
-mso-fareast-font-family:Calibri;mso-fareast-theme-font:minor-latin;mso-hansi-theme-font:
-minor-latin;mso-bidi-font-family:"Times">![""]("/userfiles/fars_twitter_denial.jpg")</span>
+![""]("/userfiles/fars_twitter_denial.jpg")
 
 Fars News dementiert Gerüchte über Nasiris Fahnenflucht
 
-<span style=""font-size:13.5pt"">  
-Seitdem ist jedoch Nasiri wieder spurlos verschwunden, trotz der Behauptung des Regimes, er diene dem IRGC nun an anderer Stelle. Im April veröffentlichte die den Garden nahe stehende Agentur Fars News eine Tonaufnahme, in der mutmaßlich Nasiris Stimme zu hören ist, wie er die Flucht aus dem Iran dementiert und seine Versetzung als Teil einer Routineprozedur bezeichnet und nicht aufgrund eines Konflikts zwischen ihm und dem ehemaligen IRGC-Kommandeur Ali Jafari. (2)</span>
+  
+Seitdem ist jedoch Nasiri wieder spurlos verschwunden, trotz der Behauptung des Regimes, er diene dem IRGC nun an anderer Stelle. Im April veröffentlichte die den Garden nahe stehende Agentur Fars News eine Tonaufnahme, in der mutmaßlich Nasiris Stimme zu hören ist, wie er die Flucht aus dem Iran dementiert und seine Versetzung als Teil einer Routineprozedur bezeichnet und nicht aufgrund eines Konflikts zwischen ihm und dem ehemaligen IRGC-Kommandeur Ali Jafari. (2)
 
 Exiliranische Quellen behaupten weiter, dass Mustafa Rabiei, Chef der nachrichtendienstliche Abwehrorganisation, ebenfalls geflohen sei. Auch in diesem Fall verkündeten offizielle iranische Nachrichten, dass Rabiei auf einen anderen Posten versetzt worden und seine Stelle an Reza Soleimani vergeben worden sei.
 
@@ -73,10 +62,10 @@ Angesichts der eskalierenden iranisch-amerikanischen Spannungen am Persischen Go
 
 Die Berichte über das Desertieren wichtiger IRGC-Kommandeure sowie die Anstrengungen der IRGC-Vertreter, diese zu dementieren, können wie die jüngsten Restrukturierungen als Zeichen interner Spannungen und Meinungsverschiedenheiten gelesen werden. Möglich ist, dass dies Hinweis auf innere Streitigkeiten über den Umgang mit dem wachsenden Druck durch die Vereinigten Staaten gibt sowie die anhaltende Unruhe der unter der Wirkung der Sanktionen leidenden iranischen Bevölkerung.
 
-<span style=""font-size:13.5pt"">  
-**\* \* \***</span>
+  
+**\* \* \***
 
-<span style=""font-size:13.5pt""></span>
+
 
 \[1\] https://twitter.com/shirjian356/status/1138830705729908737
 
@@ -88,4 +77,4 @@ Die Berichte über das Desertieren wichtiger IRGC-Kommandeure sowie die Anstreng
 
 \[5\] http://jcpa.org.il/article/%d7%90%d7%99%d7%a8%d7%90%d7%9f-%d7%9b%d7%9c-%d7%94%d7%9e%d7%99%d7%a0%d7%95%d7%99%d7%99%d7%9d-%d7%94%d7%97%d7%93%d7%a9%d7%99%d7%9d-%d7%95%d7%9e%d7%a9%d7%9e%d7%a2%d7%95%d7%aa%d7%9d/
 
-<span lang=""EN-US""> </span>
+ 

@@ -30,13 +30,17 @@ title: Die syrischen Kräfteverhältnisse vor den Genfer Friedensgesprächen
 url: /die-syrischen-krafteverhaltnisse-vor-den-genfer-friedensgesprachen/
 ---
 
-<font face=""Arial"" size=""3""></font>
 
-<div align=""left""> <font face=""Arial"" size=""3""> </font> </div><div align=""center"">**<font face=""Arial"" size=""3""><span style=""mso-spacerun:yes"">Die syrischen Kräfteverhältnisse vor den Genfer Friedensgesprächen</span></font>**  
-<font face=""Arial"" size=""3""><span style=""mso-spacerun:yes""></span></font>  
-<font face=""Arial"" size=""3""><span style=""mso-spacerun:yes"">Pinhas Inbari</span></font>  
-<font face=""Arial"" size=""3""><span style=""mso-spacerun:yes""></span></font></div><font face=""Arial"" size=""3""><span style=""mso-spacerun:yes"">  
- \* Dieser Bericht stützt sich auf Telefongespräche mit Mitgliedern der syrischen Opposition.</span></font>
+
+
+   
+
+**Die syrischen Kräfteverhältnisse vor den Genfer Friedensgesprächen**  
+  
+Pinhas Inbari  
+
+  
+ \* Dieser Bericht stützt sich auf Telefongespräche mit Mitgliedern der syrischen Opposition.
 
 • Die zweiter Genfer Friedenskonferenz zu Syrien wurde anberaumt, da die Vereinigten Staaten und Russland sich darüber einig waren, dass die größte Gefahr, die vom syrischen Schlachtfeld ausgeht, Al-Qaida ist, und die Situation daher unter Kontrolle gebracht werden muss.
 
@@ -102,8 +106,8 @@ Während die erste Genfer Konferenz im Juni 2012 einen Plan vorlegte, der eine �
 In der Zwischenzeit mehren sich Anzeichen, dass außerhalb des Konferenzrahmens ein Handel stattfinden könnte, in dem der Iran, Russland und die Vereinigten Staaten sich auf einen neuen Präsidenten einigen und Assad zur Akzeptanz nötigen. Eine derartige Initiative – sollte sie überhaupt zustande kommen – müsste jedoch den Zeitpunkt abwarten, an dem Assad alle chemischen Waffen abgeliefert hätte.
 
 Israel muss sich auf zwei Szenarien gefasst machen: Zum einen könnte ein Abkommen zwischen verschiedenen Nahost-Akteuren die palästinensische Sache aufgreifen. Der palästinensische Präsident Mahmoud Abbas wird nach Moskau fliegen, um Optionen mit den Russen zu klären. Zum anderen muss sich Israel darauf vorbereiten, dass, sobald eine neue Zentralregierung in Damaskus etabliert wurde, der Druck auf Israel erneuert wird, die Golanhöhen zurückzugeben, um diese neue syrische Regierung „zu stärken.“  
-<font face=""Arial"" size=""3""><font face=""Arial"" size=""3""></font></font>
 
-<font face=""Arial"" size=""3""></font>
 
-<font face=""Arial"" size=""3""> </font>
+
+
+ 

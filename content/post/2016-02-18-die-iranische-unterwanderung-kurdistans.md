@@ -17,11 +17,11 @@ title: Die iranische Unterwanderung Kurdistans
 url: /die-iranische-unterwanderung-kurdistans/
 ---
 
-<span small="" style=""font-size:">**Die iranische Unterwanderung Kurdistans**</span>
+**Die iranische Unterwanderung Kurdistans**
 
 Lazar Berman
 
-<span small="" style=""font-size:">Der iranische Einfluss im ganzen Nahen Osten weitet sich aus. Die bewaffneten Stellvertreter des Iran wie auch seine Soldaten sind in Syrien, im Irak, dem Libanon und in Jemen höchstpersönlich im Einsatz, um die Interessen des Iran durchzusetzen. Die iranischen Umtriebe in diesen Staaten sind nicht unbemerkt geblieben. Die sunnitischen Staaten mit Saudi Arabien an der Spitze verschärfen ihre diplomatischen und rhetorischen Kampagnen, um dem Iran die Stirn zu bieten. Doch der Iran ist auch in anderen Regionen nicht untätig geblieben, so z.B. in einem Gebiet, das von den Vereinigten Staaten, Israel und ihren Verbündeten als möglicher pro-westlicher und im wesentlichen demokratischer Partner betrachtet wird – die Kurdische Region (KR) im Irak. Obgleich es möglich ist, dass die KR zum Bollwerk gegen die aggressiven antiwestlichen Kräfte in der Region wird, scheint diese Zukunft doch zunehmend ungewiss. Indem er die wirtschaftlichen Interessen, die politischen Beziehungen und Sicherheitsbedürfnisse vor Ort ausnutzt – von der westlichen Passivität gegenüber den Kurden ganz zu schweigen -, gelingt es dem Iran seine Position in den kurdischen Gebieten des Irak zu stärken.</span>
+Der iranische Einfluss im ganzen Nahen Osten weitet sich aus. Die bewaffneten Stellvertreter des Iran wie auch seine Soldaten sind in Syrien, im Irak, dem Libanon und in Jemen höchstpersönlich im Einsatz, um die Interessen des Iran durchzusetzen. Die iranischen Umtriebe in diesen Staaten sind nicht unbemerkt geblieben. Die sunnitischen Staaten mit Saudi Arabien an der Spitze verschärfen ihre diplomatischen und rhetorischen Kampagnen, um dem Iran die Stirn zu bieten. Doch der Iran ist auch in anderen Regionen nicht untätig geblieben, so z.B. in einem Gebiet, das von den Vereinigten Staaten, Israel und ihren Verbündeten als möglicher pro-westlicher und im wesentlichen demokratischer Partner betrachtet wird – die Kurdische Region (KR) im Irak. Obgleich es möglich ist, dass die KR zum Bollwerk gegen die aggressiven antiwestlichen Kräfte in der Region wird, scheint diese Zukunft doch zunehmend ungewiss. Indem er die wirtschaftlichen Interessen, die politischen Beziehungen und Sicherheitsbedürfnisse vor Ort ausnutzt – von der westlichen Passivität gegenüber den Kurden ganz zu schweigen -, gelingt es dem Iran seine Position in den kurdischen Gebieten des Irak zu stärken.
 
 Dabei schienen die Kurden noch vor drei Jahren als Gewinner der Unruhen in der ganzen arabischen Welt. Der Vorteil der kurdischen Regionalregierung in Erbil war, dass die Zentralregierung in Bagdad geschwächt und zerstritten war. So konnte sie ihre eigenen Ölgeschäfte tätigen und eine Pipeleine in die Türkei bauen. Die syrischen Kurden schüttelten derweil die Herrschaft des syrischen Präsidenten Assad ab und schufen so de facto eine weitere autonome Kurdenregion, die direkt an die KR grenzte. Die kurdische Unabhängigkeit schien in greifbarer Nähe.
 
@@ -109,10 +109,10 @@ Die Aussicht auf eine formale kurdisch-israelische oder kurdisch-amerikanische A
 
 Doch die Erwartung, dass Kurdistan ein Partner für Israel, die Vereinigten Staaten oder Europa werden könnte, ist in Gefahr, wenn der Westen weiterhin irakischen und türkischen Interessen den Vorzug gibt. Denn da die Kurden fortgesetzt von der militärischen und politischen Unterstützung des Westens enttäuscht werden, hat der Iran eine ganze Zahl von Möglichkeiten gefunden, seinen politischen, ökonomischen und militärischen Einfluss in Irakisch-Kurdistan auszubauen. Wenn der Iran weiterhin freie Hand in der Region behält, könnte es ihm gelingen, eine potentielle Allianz zwischen dem Westen und den Kurden an seiner Grenze zu verhindern.
 
-**<span small="" style=""font-size:">\* \* \*</span>**
+**\* \* \***
 
-<span small="" style=""font-size:">  
-1 George Richards, “The Guardian Across the Zagros: Iranian influence in Iraqi Kurdistan, ”The Guardian, November 21 2013, http://www.theguardian.com/world/2013/nov/21/iran-influence-iraqi-kurdistan</span>
+  
+1 George Richards, “The Guardian Across the Zagros: Iranian influence in Iraqi Kurdistan, ”The Guardian, November 21 2013, http://www.theguardian.com/world/2013/nov/21/iran-influence-iraqi-kurdistan
 
 2 Ibid.
 
