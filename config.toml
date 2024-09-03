@@ -5,7 +5,7 @@ theme = 'mainroad'
 
 [Params]
   description = "Strategische Informationen zur Außen – und Sicherheitspolitik Israels" # Site description. Used in meta description
-  copyright = "Jerusalem Center for Public Affairs" # Footer copyright holder, otherwise will use site title
+  copyright = "Jerusalem Center for Security and Foreign Affairs (JCFA)" # Footer copyright holder, otherwise will use site title
   pager = true # Show pager navigation (prev/next links) at the bottom of pages if true
   post_meta = ["author", "date", "categories"] # Order of post meta information
   mainSections = ["post"] # Specify section pages to show on home page and the "Recent articles" widget
